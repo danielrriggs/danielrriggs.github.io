@@ -1,0 +1,1 @@
+Sexual dysfunction in which a person cannot achieve orgasm despite adequate stimulation.

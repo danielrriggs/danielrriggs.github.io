@@ -1,0 +1,1 @@
+An anti-anxiety medication belonging to the class of benzodiazepine drugs which works by binding GABA receptors in the brain and enhancing GABA-mediated synaptic inhibition.

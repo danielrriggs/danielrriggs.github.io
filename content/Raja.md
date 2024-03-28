@@ -8,6 +8,6 @@ The path of willpower.
 
 There's a stepwise process to enlightenment.
 
-The path of Raja Yoga has [[Eight Limbs of Yoga]].
+The path of Raja Yoga has [[Eight Limbs of Raja Yoga]].
 
 Related: [[Yoga]].

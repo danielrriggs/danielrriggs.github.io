@@ -4,7 +4,7 @@ aliases:
 ---
 A collection of experiences and undigested emotional energy that gets stored in your mind.
 
-Our memories. Thought generating machines that live in our [[citta]] which generates thoughts at the right time.
+A memory impression. Thought generating machines that live in our [[citta]] which generates thoughts at the right time.
 
 In the east, they understand the western term "[[personality]]" as a collection of samskaras.
 

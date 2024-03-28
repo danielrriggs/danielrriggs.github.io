@@ -64,7 +64,7 @@ Some people are do-ers (social activists). By trying to take social action we ca
 3) [[Jnana]] Yoga
 Some people are more intellectual in nature, & can use contemplation to logic your way towards enlightenment.
 4) [[Raja]] Yoga, also known as [[Raja|Ashtanga]] Yoga.
-	1) Has [[Eight Limbs of Yoga]]
+	1) Has [[Eight Limbs of Raja Yoga]]
 		1) [[Yama]]
 		2) [[Niyama]]
 		3) [[Asana]]

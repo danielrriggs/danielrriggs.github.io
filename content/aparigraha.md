@@ -1,0 +1,1 @@
+The observance of non-possessiveness or non-attachment, a [[Yama]] in [[Raja]] [[Yoga]].

@@ -1,4 +1,4 @@
-The Third Eye.
+The Third Eye. Situated at the eyebrow center. 
 
 Our source of intuition and understanding. This is not digesting information.
 

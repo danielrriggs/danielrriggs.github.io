@@ -40,12 +40,12 @@ See [[Science of Meditation]]
 ## Metaphysics of the Meditation
 See [[Metaphysics of Meditation]]
 
-There are 5 Meditation Paths:
+## There are 5 Meditation Paths:
 - [[Manas Padha]]
 	- [[Nature of Mind]]
 	- [[System of Mind]]
 		- [[Mantra]]
-	- [[Vedic Philosophy]]
+	- [[Vedic Psychology]]
 	- Working with [[Samskara]]s
 	- [[Coaching vs Therapy]]
 - [[Jnana Padha]]
