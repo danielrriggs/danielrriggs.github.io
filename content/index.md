@@ -1,1 +1,1 @@
-Start here: [[Meditation]]
+Start here: [[Meditation]] or [[Yoga]]
