@@ -1,0 +1,1 @@
+Symbols of power. When you meditation on them, they harness spiritual energy.

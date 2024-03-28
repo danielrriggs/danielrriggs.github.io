@@ -1,0 +1,1 @@
+Meditative practice where you dunk your face in ice water. Makes thoughts flee your mind because your attention focuses on the cold.

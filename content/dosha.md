@@ -1,0 +1,3 @@
+[[vata]]
+[[pitta]]
+[[kapha]]

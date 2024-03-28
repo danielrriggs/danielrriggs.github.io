@@ -1,0 +1,1 @@
+Part of the [[frontal lobes]] which involves empathy / compassion

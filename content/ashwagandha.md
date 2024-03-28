@@ -1,0 +1,1 @@
+An [[Ayurveda|ayurvedic]] herb.

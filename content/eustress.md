@@ -1,0 +1,1 @@
+A balanced level of stress. "Beneficial stress".

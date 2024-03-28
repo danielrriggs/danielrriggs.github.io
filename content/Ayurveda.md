@@ -1,0 +1,6 @@
+---
+aliases:
+  - ayurvedic
+  - ayurveda
+  - Ayurvedic
+---

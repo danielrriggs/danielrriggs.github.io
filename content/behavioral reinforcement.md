@@ -1,0 +1,1 @@
+When the brain sees that an action is tied to a result, it will reinforce that behavior. When we perform action that doesn't get our desired result, our brain discourages that behavior.

@@ -1,0 +1,1 @@
+A set of yoga postures designed to balance your physical body. It works a little bit on the [[Pranamaya Kosha|energetic body]], too.

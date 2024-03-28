@@ -1,0 +1,1 @@
+The intellect (part of the mind).

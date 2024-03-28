@@ -1,0 +1,1 @@
+The people who adhere to the original teachings of [[Buddha]] the most (contained in the [[Pāli Canon]]).

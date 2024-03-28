@@ -1,0 +1,5 @@
+---
+aliases:
+  - raga
+---
+Means "attraction"

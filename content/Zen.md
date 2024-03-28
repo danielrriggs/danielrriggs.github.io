@@ -1,0 +1,1 @@
+Birthed by [[Mahaya]] [[Buddhism]]. Originated in Japan. Zen is hardcore.

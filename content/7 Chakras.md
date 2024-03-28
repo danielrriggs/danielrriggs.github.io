@@ -1,0 +1,7 @@
+[[Muladhara Chakra]]
+[[Swadhisthana Chakra]]
+[[Manipura Chakra]]
+[[Anahata Chakra]]
+[[Vishuddha Chakra]]
+[[Ajna Chakra]]
+[[Sahasrara Chakra]]

@@ -1,0 +1,3 @@
+[[frontal lobes]]
+[[limbic system]]
+
