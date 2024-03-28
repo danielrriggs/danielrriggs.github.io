@@ -10,7 +10,7 @@ When consciousness oscillates at different frequencies, it creates different man
 
 ###### [[Bindu Visarga]]
 
-The yogis believe that all of this energy / consciousness is situated at the top of your head called [[Bindu Visarga]]. They believed that the universe was created out of [[Bindu Visarga]], which is an infinitely dense piece of matter and consciousness that then explodes and creates the universe. The universe, after exploding from [[Bindu Visarga]], expands until it reaches a terminal point, and it then will eventually collapses back into [[Bindu Visarga]].
+The yogis believe that all of this energy / consciousness is situated at the top of your head called [[Bindu Visarga]]. They believed that the universe was created out of [[Bindu Visarga]], which is an infinitely dense piece of matter and consciousness that then explodes and creates the universe. The universe, after exploding from [[Bindu Visarga]], expands until it reaches a terminal point, and it then eventually collapses back into [[Bindu Visarga]].
 
 ###### [[Karma]]
 

@@ -28,8 +28,8 @@ Sometimes, after meditating for a long time, sometimes years, people will become
 
 Successful entry into [[dhyana]] involves finding the right [[dharana]].
 
-## History of Meditation
-See [[History of Meditation]]
+###### Where Meditation Began
+[[Meditation]] began ~6,000 years ago in India with a group of people called the [[tantra|Tantrics]].
 
 ## Different Meditative Styles
 See [[Meditation Styles]]
@@ -65,3 +65,6 @@ There are 5 Meditation Paths:
 		- [[Dukkha]]
 		- [[Dharma]]
 		- [[Karma]]
+
+---
+## [[Meditation Index]]

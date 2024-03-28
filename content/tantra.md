@@ -12,7 +12,6 @@ The Tantrics believed the universe is made of cosmic consciousness (or, [[Shiva]
 For anything to be manifest in the world, we need an intention (a goal, a direction), and some kind of fuel, or energy, to make it happen.
 
 The Tantrics discovered 3 kinds of practices that are aimed at harnessing this cosmic energy to make a manifestation in the real world:
-
 1) [[Mantra]]
 2) [[Yantra]]
 3) [[Yajna]]
