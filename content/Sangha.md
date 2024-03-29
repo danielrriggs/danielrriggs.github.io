@@ -1,6 +1,6 @@
 (Sun-ghuh)
 
-Sanskrit for "community".
+Sanskrit for "community", or orbit, consisting of the people who you spend the most time with.
 
 If we want to build the right kind of life, we need to take the right actions. To take the right actions, we need to have the right kinds of thoughts. Building the right kind of community will shape your thinking, actions, and life in the right way.
 
@@ -29,12 +29,12 @@ If you spend time with the right kind of people, you'll cultivate the right kind
 
 You have to be very careful & pay attention to each group of people in your life, & ask yourself, "when I hang out with this person, what do I actually do?" A lot of times, you'll have relationships where you & your friends always philosophize & think deep thoughts, but then the next day you get up & do nothing with your life. That may not be the right sangha, even though it feels good. And the right kind of sangha may actually feel bad. Maybe you hang out with a group of people who take care of themselves physically, and you don't; you might feel embarrassed hanging out with them, but those are the people you need to be hanging out with if getting in better shape is one of your goals.
 
-The yogis discovered that a good [[Meditation|meditative practice]] absolutely requires a very solid sangha. You can't meditate all on your own. You can meditate for a few days, but your mind is going to get bored & will wonder. If you aren't in a good community of meditators, you're going to get lots of [[indriya]] exposure that has nothing to do with meditation. It's very hard to meditate on your own.
+The yogis discovered that a good [[Meditation|meditative practice]] absolutely requires a very solid sangha. You can't meditate all on your own. You can meditate for a few days, but your [[mind]] is going to get bored & will wonder. If you aren't in a good community of meditators, you're going to get lots of [[indriya]] exposure that has nothing to do with meditation. It's very hard to meditate on your own.
 
 Qualities for the right kind of sangha:
 First, a good meditation sangha **prompts you to practice**.
 	This is very important, because you may not feel like meditating. Attending a sangha that meets once a week is good because even if you fall out of your practice, you're on an automatic track to meditate for at least that day.
 Second, they teach you the intellectual stuff, or they'll have discussions about meditation.
-	If you engage your curiosity through discussions on meditation, you're going to be populating your mind with thoughts of meditation. Ergo, you'll be more likely to meditate.
+	If you engage your curiosity through discussions on meditation, you're going to be populating your [[mind]] with thoughts of meditation. Ergo, you'll be more likely to meditate.
 Third, a good meditation sangha tailors its practice to you.
 	If you're having difficulty in meditation, or don't know what kind of technique to do next, the perfect sangha is a place where you can explore that. Where people can help guide you on your personal journey through that.

@@ -1,0 +1,1 @@
+A psychological condition that causes a person to experience unreasonable euphoria, very intense moods, [[hyperactivity]], and delusions. Mania (or manic episodes) is a common symptom of [[bipolar disorder]]. People may not [[sleep]] or eat while in a manic episode.

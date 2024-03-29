@@ -8,7 +8,7 @@ Our society is very goal oriented.
 ###### Your Brain Will Sabotage Big Goals
 When you set a New Years resolutions to get in shape, your brain actually starts to work against you. The brain is incredibly efficient at [[behavioral reinforcement]].
 
-When we set big goals, the mind has a vision to get in shape (sexy beast). After a few days of spending effort on the gym & coming home & looking in the mirror, you don't see much change; the reinforcement that your brain sees when it thinks about the sexy beast image is that "we're putting in all of this effort & not seeing much change". So, it starts to sabotage your motivation ("this behavior is not achieving the reward, so you don't need to continue").
+When we set big goals, the [[mind]] has a vision to get in shape (sexy beast). After a few days of spending effort on the gym & coming home & looking in the mirror, you don't see much change; the reinforcement that your brain sees when it thinks about the sexy beast image is that "we're putting in all of this effort & not seeing much change". So, it starts to sabotage your motivation ("this behavior is not achieving the reward, so you don't need to continue").
 
 We don't move towards large, abstract, long-term goals. This is how we get stuck in life. We can do things that involve instant gratification. This is because the brain sees the behavior, and sees the reward right away.
 

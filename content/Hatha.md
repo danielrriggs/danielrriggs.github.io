@@ -1,3 +1,3 @@
-A hybrid tradition of Yoga that focuses on attaining enlightenment by purifying the body and mind through [[asana]] (physical postures) and [[pranayama]] (breath control).
+A hybrid tradition of Yoga that focuses on attaining enlightenment by purifying the body and [[mind]] through [[asana]] (physical postures) and [[pranayama]] (breath control).
 
-The Hatha Yogis believed, unlike [[Raja Yoga]] Yogis, that you don't have to do any of the other Yoga stuff (to attain enlightenment). They believed that you could purify & perfect your body & mind so much that you can attain enlightenment.
+The Hatha Yogis believed, unlike [[Raja Yoga]] Yogis, that you don't have to do any of the other Yoga stuff (to attain enlightenment). They believed that you could purify & perfect your body & [[mind]] so much that you can attain enlightenment.

@@ -1,1 +1,1 @@
-Regulates emotion
+System that deals primarily with emotional regulation.

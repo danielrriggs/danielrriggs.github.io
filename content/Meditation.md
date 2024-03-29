@@ -5,7 +5,7 @@ aliases:
 ## Meditation Overview
 
 There are different traditions of meditation. [[Mindfulness]], which is growing in popularity today, is a just tiny fraction of meditation. Different [[Meditation Styles]] & practices have different benefits & are suited for different kinds of people.
-	For example, some people have difficulty focusing their mind to focus on one thing. Those people can be given an [[Inquisitive Meditation Technique|inquisitive meditation technique]]
+	For example, some people have difficulty focusing their [[mind]] to focus on one thing. Those people can be given an [[Inquisitive Meditation Technique|inquisitive meditation technique]]
 
 There isn't one word in Sanskrit that means 'meditation'. There are 3 Sanskrit words that get translated as meditation.
 1) [[Dharana]] (verb). Focusing technique.
@@ -14,9 +14,9 @@ There isn't one word in Sanskrit that means 'meditation'. There are 3 Sanskrit w
 
 ## What is Meditation?
 
-Actually, the more that your mind wonders, the better you are going to get at meditation. Every time your mind wonders and you bring it back, it's like doing a push up for your mind. You're training your mind to come back to one spot. It's the most important skill of meditation ([[dharana]]).
+Actually, the more that your [[mind]] wonders, the better you are going to get at meditation. Every time your [[mind]] wonders and you bring it back, it's like doing a push up for your mind. You're training your [[mind]] to come back to one spot. It's the most important skill of meditation ([[dharana]]).
 
-The goal of meditation is to attain states of [[moksha]]. Sometimes, to attain [[moksha]], we will enter into states of [[samadhi]], which is a sub-state of [[dhyana]].
+The goal of meditation is to attain states of [[enlightenment|moksha]]. Sometimes, to attain [[enlightenment|moksha]], we will enter into states of [[samadhi]], which is a sub-state of [[dhyana]].
 
 See [[The Meditation Process]].
 

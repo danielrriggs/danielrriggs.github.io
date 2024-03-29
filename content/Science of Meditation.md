@@ -6,11 +6,11 @@ Meditation, from a hormonal perspective, can effect things like [[ADHD]] (by red
 
 Meditation reduces the severity of [[autoimmune conditions]].
 
-In meditation, we're trying to prime the mind to be active.
+In meditation, we're trying to prime the [[mind]] to be active.
 We want [[eustress]] to enter [[Flow State]].
 
 Meditation works through your hormones & through [[Stress Physiology]].
-As we train the mind in meditation, we're creating a hormonal balance; for a lot of people, that means de-stressing because we face a lot of stress in our society, but some people need to stress up a little bit.
+As we train the [[mind]] in meditation, we're creating a hormonal balance; for a lot of people, that means de-stressing because we face a lot of stress in our society, but some people need to stress up a little bit.
 
 #### [[The Autonomic Nervous System]]
 
@@ -26,10 +26,10 @@ For people with too much [[Surya|yang]], like a car accident victim, we want mor
 
 Developed [[frontal lobes]] are associated with maturity.
 
-There can be a war between [[frontal lobes]] & the [[limbic system]] - a war in the mind between your emotions and your logical self.
+There can be a war between [[frontal lobes]] & the [[limbic system]] - a war in the [[mind]] between your emotions and your logical self.
 
 For example, you might feel scared or afraid, but your head is telling you "everything's okay, you have nothing logically to be worried about".
-Or, if you're feeling lazy, your mind might be saying "we need to get up & do this thing," but you don't feel like it.
+Or, if you're feeling lazy, your [[mind]] might be saying "we need to get up & do this thing," but you don't feel like it.
 
 A lot of people's limbic system control their frontal lobes. As you meditate more, there's good evidence that your frontal lobes start to gain dominance over your limbic system. It doesn't mean you don't feel emotions. Your emotions can be put into context & you can overcome them.
 

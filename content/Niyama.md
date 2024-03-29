@@ -1,3 +1,5 @@
+Personal observances; the second step in the [[Eight Limbs of Raja Yoga|eightfold path of Raja Yoga]].
+
 The Niyamas are focused within.
 
 5 Personal Observances:

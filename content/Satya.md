@@ -1,6 +1,6 @@
 (Sat-yuh)
 
-Truthfulness.
+The observation of truthfulness, a [[Yama]] in [[Raja Yoga]].
 
 [[Niyama]]s are an important part of [[Raja Yoga]], spirituality, and personal growth.
 
@@ -25,7 +25,7 @@ This practice is helpful in treating people with [[addiction]]s. What they say w
 
 In the neuroscience of meditation, one of the mechanisms through which meditation improves sobriety is by increasing awareness of the present moment & internal signals. A lot of times these internal signals, like sadness, or unhappiness, or feeling ashamed about yourself, or a particular desire will actually drive people to use a substance to calm those things down. There's good evidence that, as you increase awareness of the present moment, it gives you control of your addictive impulses.
 
-So, the first way Satya helps is by forcing you to pay attention to what's going on in your mind & to what you say.
+So, the first way Satya helps is by forcing you to pay attention to what's going on in your [[mind]] & to what you say.
 
 The second way Satya is helpful is that it shapes your actions.
 

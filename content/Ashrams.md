@@ -1,6 +1,8 @@
 ---
 aliases:
   - ashrams
+  - stages of life
+  - stage of life
 ---
 The four stages of life.
 

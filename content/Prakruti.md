@@ -1,0 +1,1 @@
+The natural [[dosha|doshic]] balance, determined at birth.

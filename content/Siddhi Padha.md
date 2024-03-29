@@ -8,4 +8,4 @@ We hear from people who meditate a lot that they become more successful & optimi
 
 There is a relationship between [[intention]], and [[manifestation]].
 
-How can we cultivate a particular kind of mindset, environment, & cleansing practice so that our mind is focused and pure? Then, the things we want in life will become manifest.
+How can we cultivate a particular kind of mindset, environment, & cleansing practice so that our [[mind]] is focused and pure? Then, the things we want in life will become manifest.

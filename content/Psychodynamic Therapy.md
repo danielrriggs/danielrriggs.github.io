@@ -1,0 +1,1 @@
+The psychological interpretation of mental and emotional processes. Rooted in traditional psychoanalysis, it draws from object relations, [[ego]] psychology, and self-psychology.

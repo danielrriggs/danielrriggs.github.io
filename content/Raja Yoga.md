@@ -2,7 +2,7 @@
 aliases:
   - Ashtanga
 ---
-Also known as Ashtanga Yoga.
+A system of [[Yoga]]. Also known as Ashtanga Yoga.
 
 The path of Kings. The path of willpower.
 

@@ -1,3 +1,7 @@
+---
+aliases:
+  - eightfold path of Raja Yoga
+---
 In [[Raja Yoga]]/[[Raja Yoga|Ashtanga Yoga]], there are 8 prerequisites to attain a state of [[Meditation]]:
 
 1) [[Yama]] - Raja Yoga says that to purify yourself, you have to adhere to these standards.

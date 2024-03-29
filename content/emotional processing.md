@@ -1,0 +1,4 @@
+---
+aliases:
+  - emotional information processing
+---

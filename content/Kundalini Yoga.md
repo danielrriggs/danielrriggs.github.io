@@ -1,4 +1,4 @@
-The [[7 Chakras]] come out of Kundalini Yoga.
+A system of Yoga that focuses on meditation on the [[Chakras]] in order to develop particular faculties. The seven [[Chakras]] come out of Kundalini Yoga.
 
 The Kundalini Yogis realized that we have this vital energy that flows through our body called [[qi]], or, [[prana]], and that we have energy nexuses (Chakras) which govern different faculties. By purification of these Chakras, you can attain particular qualities - fix certain parts of your body or mental functioning, and eventually purify the Chakras to the point that you become enlightened.
 

@@ -2,4 +2,6 @@
 aliases:
   - pituitary gland
 ---
-A master gland in the brain that controls many of our [[hormone|hormones]]. A pea-shaped structure located below the [[thalamus]].
+A small, bean-shaped master gland situated at the base of your brain (located below the [[thalamus]]), somewhat behind your nose and between your ears.
+
+The gland influences nearly every part of your body. The [[hormone|hormones]] it produces help regulate important functions, such as growth, blood pressure and reproduction.

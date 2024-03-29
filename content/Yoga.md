@@ -1,7 +1,8 @@
 ---
 aliases:
-  - yogic
   - yoga
+  - Yogic
+  - yogic
 ---
 The Tantrics discovered [[tantra]] and molded their discoveries into Yoga.
 
@@ -59,7 +60,7 @@ The yogis realized that not all people are the same.
 The Yogis discovered that there are four ways that we can connect with the infinite:
 1) [[Bhakti Yoga]] - The path of [[Bhakti Yoga]] is right for someone with a devotional or religious temperament.
 
-2) [[Karma]] Yoga - Some people are do-ers (social activists). By trying to take social action we can purify ourselves & move 1 step closer to enlightenment.
+2) [[Karma Yoga]] - Some people are do-ers (social activists). By trying to take social action we can purify ourselves & move 1 step closer to enlightenment.
 
 3) [[Jnana Yoga]] - Some people are more intellectual in nature, & can use contemplation to logic your way towards enlightenment.
 
@@ -86,7 +87,7 @@ Other Yoga Traditions that cropped up:
 	1) [[Asana]]
 	2) [[Pranayama]]
 Some people are very physical.
-- [[Kundalini Yoga]] Yoga
-- [[Kriya]] Yoga
+- [[Kundalini Yoga]]
+- [[Kriya Yoga]]
 
 Some people are mystical by nature. Understanding esoteric forces & how to cultivate the energy of the universe to make certain manifestations in your life. Then [[tantra]] might be a good path.

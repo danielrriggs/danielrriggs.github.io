@@ -8,7 +8,7 @@ aliases:
 
 A focused method of meditation.
 
-The training of your mind to focus on one point.
+The training of your [[mind]] to focus on one point.
 
 Examples: Focusing on the breath, a guided meditation, or a sound based meditation.
 

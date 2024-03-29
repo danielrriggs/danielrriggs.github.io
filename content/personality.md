@@ -1,2 +1,6 @@
-The combination of ways we respond to situations. The automatic thoughts that populate your mind (which your mind generates).
+---
+aliases:
+  - personhood
+---
+The combination of ways we respond to situations. The automatic thoughts that populate your [[mind]] (which your [[mind]] generates).
 	*For example, when dealing with a setback / hardship, what are the automatic thoughts that come up? Do you beat yourself up & fall apart? Or, do you tell yourself you can persevere?*

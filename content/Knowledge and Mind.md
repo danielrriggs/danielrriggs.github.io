@@ -1,16 +1,16 @@
 When trying to [[studying|study]], on some days you can read a page once and everything sinks in. On other days, you can read it 10 times and little sinks in.
 
-Assertion 1 - the more calm the active mind is, the easier it is to learn.
-	Studying in a burning building isn't effective because your mind is thinking of a lot of different things. The more the mind is distracted, the more activity there is in the conscious mind, the hard it is for things to sink into the unconscious.
+Assertion 1 - the more calm the active [[mind]] is, the easier it is to learn.
+	Studying in a burning building isn't effective because your [[mind]] is thinking of a lot of different things. The more the [[mind]] is distracted, the more activity there is in the conscious mind, the hard it is for things to sink into the [[citta|unconscious]] .
 
 Assertion 2 - the yogis believed that all knowledge comes from within.
-	This posits that it isn't the information in the page or the # of repetitions (of reading) that's important; it's actually the calmness of my mind that determines how many times I need to read the page. If the knowledge was just on the page, then we should only have to read the page once. However, our experience of studying is that a "light bulb goes off", which is our discovery of that knowledge inside of us. Knowledge is a thing that is inside our mind, which is then recalled.
+	This posits that it isn't the information in the page or the # of repetitions (of reading) that's important; it's actually the calmness of my [[mind]] that determines how many times I need to read the page. If the knowledge was just on the page, then we should only have to read the page once. However, our experience of studying is that a "light bulb goes off", which is our discovery of that knowledge inside of us. Knowledge is a thing that is inside our mind, which is then recalled.
 The yogis looked at things like creativity & being able to invent stuff. Does that come from the outside world or the inside world? They reached a radical conclusion which is that, even when you read external information (such as in a book), it isn't that you absorb the information, but that it triggers your pre-existing knowledge of that subject. Is the "light bulb" on the outside or the inside?
 
 Use the hour of [[Brahmamuhurtha]] to [[studying|study]] if it works for you.
 
 Take aways:
-The more we can calm down conscious thoughts, the more knowledge actually sinks in. Learning is actually recalling knowledge from our unconscious mind to our conscious mind.
+The more we can calm down conscious thoughts, the more knowledge actually sinks in. Learning is actually recalling knowledge from our [[citta|unconscious]] [[mind]] to our conscious mind.
 
 See [[studying]] for tips on how to study well.
 
@@ -26,7 +26,7 @@ In [[addiction]], it isn't the people who *want* (desire) to be sober more that 
 
 [[Jnana]] isn't transmissible. It's the difference between being in love & reading a romance novel. The yogis believed that [[jnana]] is closer to the [[truth]] than [[vidya]]. No amount of objective knowledge will give you the taste of a strawberry. [[Jnana]] is about understanding. There are no books or podcasts about [[jnana]]. All we can do is make books & podcasts about [[vidya]]. And this is why people who don't get better, don't get better. Subjective understanding that creates behavioral change which transforms you as a person cannot be put down into any kind of medium.
 
-When you wake up in the morning, there's a part of you that tells you what you should do. This is what [[Sigmund Freud|Freud]] called the [[super ego]]. Our mind conflicts between the the [[super ego]] & the [[id]]. If our willpower is strong, [[super ego]] wins; if willpower is weak, the [[id]] wins. [[Jnana]] removes this conflict entirely. Once you [[understand]] something, your natural impulse is to do that thing. If you burn your hand touching a stove, you don't have to use willpower to touch the stove again. Once we learn our lessons in life, it's easy to move in the right direction. Once you gain [[jnana]], you don't need willpower.
+When you wake up in the morning, there's a part of you that tells you what you should do. This is what [[Sigmund Freud|Freud]] called the [[super ego]]. Our [[mind]] conflicts between the the [[super ego]] & the [[id]]. If our willpower is strong, [[super ego]] wins; if willpower is weak, the [[id]] wins. [[Jnana]] removes this conflict entirely. Once you [[Jnana|understand]] something, your natural impulse is to do that thing. If you burn your hand touching a stove, you don't have to use willpower to touch the stove again. Once we learn our lessons in life, it's easy to move in the right direction. Once you gain [[jnana]], you don't need willpower.
 
 ###### Pay attention, muppet!
 How do we gain [[jnana]]? The first thing that we must understand is that all [[jnana]] is founded in **experience**. We must experience these things to discover them. Once we experience something & make it subjective, it isn't about transmitting it to someone else or convincing someone else. It's all internal.

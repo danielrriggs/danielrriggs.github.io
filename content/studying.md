@@ -2,13 +2,13 @@
 aliases:
   - study
 ---
-The more calm your [[consciousness|conscious]] mind is, the easier it will be to learn.
+The more calm your [[Sakshi Bhava|conscious mind]] is, the easier it will be to learn.
 
-If you're calm, the thing you're reading will "sink in" through the [[consciousness|conscious]] mind & you'll learn (meaning it will be implanted in your unconscious mind, to be recalled later).
+If you're calm, the thing you're reading will "sink in" through the [[Sakshi Bhava|conscious mind]] & you'll learn (meaning it will be implanted in your [[citta|unconscious mind]], to be recalled later).
 
 #### How to study efficiently
 ###### Adapt your [[circadian rhythm]] to your biology
-Use the hours of [[Brahmamuhurtha]] to read stuff before class; then class isn't about learning stuff. Class is about solidifying the things you do understand & the mind can pay more attention to the things you don't understand. Then, whenever you're exhausted, like by 3pm or something, you can just chill for the rest of the day while everyone else is struggling like worms in the library.
+Use the hours of [[Brahmamuhurtha]] to read stuff before class; then class isn't about learning stuff. Class is about solidifying the things you do understand & the [[mind]] can pay more attention to the things you don't understand. Then, whenever you're exhausted, like by 3pm or something, you can just chill for the rest of the day while everyone else is struggling like worms in the library.
 
 Keep your morning yoga super light.
 
@@ -23,19 +23,19 @@ If you're a night owl, after 5/6/7pm, we have another period of high mental acui
 If [[Brahmamuhurtha]] doesn't work for you, then just find what does.
 
 ###### Create the right environment
-Your mind can be very habitually oriented. If you create the right studying environment, it will prime your mind to study really well.
+Your [[mind]] can be very habitually oriented. If you create the right studying environment, it will prime your [[mind]] to study really well.
 Cut out distractions.
 Silence your phone & put it far away from your work area.
 Play particular kinds of music before studying or during studying.
-Light an incense. This is great for [[Meditation|meditation]], because nothing anchors the mind as well as the [[indriya]] of scent. Essential oils?
+Light an incense. This is great for [[Meditation|meditation]], because nothing anchors the [[mind]] as well as the [[indriya]] of scent. Essential oils?
 
 ###### Spaced Repetition
 Going through stuff over and over and over again is inefficient.
-Our mind has some RAM (temporary memory) that gets solidified into our more permanent memory in the [[hippocampus]]. That solidifying process happens when we [[sleep]]. Take naps. Taking breaks can also help with solidifying studying.
+Our [[mind]] has some RAM (temporary memory) that gets solidified into our more permanent memory in the [[hippocampus]]. That solidifying process happens when we [[sleep]]. Take naps. Taking breaks can also help with solidifying studying.
 Give the brain more time & chances to consolidate short term memory into long term memory.
 
 ###### Restrict your studying time
-Your mind loves to procrastinate. If you give yourself an endless amount of time, your mind will not be efficient in using it. When you restrict your time, it will change the way you approach the time. You have to actually respect the boundaries you set.
+Your [[mind]] loves to procrastinate. If you give yourself an endless amount of time, your [[mind]] will not be efficient in using it. When you restrict your time, it will change the way you approach the time. You have to actually respect the boundaries you set.
 
 ###### [[Ayurveda|Ayurvedic]] perspective on studying
 If your primary [[dosha]] is:

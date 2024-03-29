@@ -1,0 +1,1 @@
+A major branch of [[Buddhism]] which states that there are multiple [[Buddha]], or enlightened masters, all of whose teachers are worth learning from.

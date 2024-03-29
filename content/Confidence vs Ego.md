@@ -43,6 +43,6 @@ One of the key things that the [[ego|ahamkara]] does is compare. Smarter. Faster
 	1) Recognize that the more you stack the deck in your favor, the more you're reinforcing insecurity. When you stack the deck & you win, was it because you gave 100%? Or was it because the odds were in your favor?
 2) Survive failure.
 	1) This part is hard. You can't really go out and fail on purpose because that isn't how real failure works. But when you do fail, recognize that it's actually okay. When taking risks, it is inevitable that you will fail; in the mist of failure, appreciate that you won't feel this way for forever. There is always a light at the end of the tunnel. You will come out of failure, eventually. Your failures make you who you are. Everything that you are able to offer the world is because of your failures. Failure will be the birth of your confidence. It may hurt in the moment, but it is important to keep moving forward & get to the other side.
-3) Spend more time with yourself. Get away from other people. Your mind gets populated by your [[indriya]]s.
+3) Spend more time with yourself. Get away from other people. Your [[mind]] gets populated by your [[indriya]]s.
 	1) Spend time in nature. Nature doesn't care who you are. If you go for a hike by yourself & either succeed or fail the hike, nobody cares or knows either way. As long as you don't post about it. We see lots of pictures of people's cool nature pictures.
 	2) Spend more time off of social media.

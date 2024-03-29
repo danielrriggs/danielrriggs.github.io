@@ -1,0 +1,1 @@
+A small, pea-shaped gland in the brain. Its function isn't fully understood. Researchers do know that it produces and regulates some [[hormone|hormones]], including [[melatonin]]. Melatonin is best known for the role it plays in regulating [[circadian rhythm]].

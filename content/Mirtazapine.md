@@ -1,0 +1,1 @@
+Tetracyclic antidepressant used in the treatment of [[major depressive disorder]] and is used off-label for [[insomnia]], to increase appetite, sedation, among other things.

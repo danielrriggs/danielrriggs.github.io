@@ -1,0 +1,1 @@
+One of the three [[dosha|doshas]] in [[Ayurveda]], Pitta's qualities are wet, hot, and light.

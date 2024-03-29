@@ -1,3 +1,5 @@
+Situated at the crown of our head, when [[kundalini energy]] reaches this point, we become enlightened.
+
 In the theory of [[Kundalini Yoga]], when the energy that you have in the bottom of your spine travels up to the top of your head, this is when you gain enlightenment.
 
 There aren't really practices for the Sahasrara Chakra. It's the final step (in enlightenment), which is kind of amorphous. If you're 'lucky', when your Chakras are aligned, your energy will rise all the way to the top & you'll become enlightened.

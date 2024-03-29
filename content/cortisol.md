@@ -8,5 +8,5 @@ Cortisol gets your entire body ready for a stressful encounter. Cortisol's funct
 
 For example, if you run away from a tiger, you'll still want to sleep lightly that night so that you're ready for a second encounter if the tiger follows your scent.
 
-Cortisol release activates the [[Reticular Activating Formation (RAF)]].
+Cortisol release activates the [[Reticular Activating Formation]].
 Cortisol release Hyperactivates our [[immune system]] (sends signal to be on high alert).

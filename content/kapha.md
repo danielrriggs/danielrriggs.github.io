@@ -1,0 +1,1 @@
+One of the three [[dosha|doshas]] in [[Ayurveda]], Kapha's qualities are wet, cold, and heavy.

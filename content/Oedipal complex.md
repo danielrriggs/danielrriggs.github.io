@@ -1,0 +1,1 @@
+In psychoanalytic theory, this is a desire for sexual involvement with the parent of the opposite sex and a concomitant sense of rivalry with the parent of the same sex; a crucial stage in the normal developmental process. [[Sigmund Freud]] introduced the concept in his Interpretation of Dreams.

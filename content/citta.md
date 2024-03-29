@@ -1,6 +1,7 @@
 ---
 aliases:
   - unconscious
+  - unconscious mind
 ---
 (Chit-tuh)
 
@@ -9,4 +10,4 @@ Means, "the screen of the mind". It gets translated into "the unconscious mind",
 
 [[samskara|Samskara]]s are stored in the citta and then sometimes become active.
 
-The citta is the screen on which all of the other parts of our mind "play".
+The citta is the screen on which all of the other [[parts of the mind]] "play".

@@ -1,6 +1,7 @@
 ---
 aliases:
   - understanding
+  - understand
 ---
 (Gyaan/Nyaan)
 
