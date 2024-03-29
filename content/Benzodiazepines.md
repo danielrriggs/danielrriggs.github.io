@@ -1,0 +1,1 @@
+Class of drugs that depress the central nervous system via the amino acid neurotransmitter: gamma-aminobutyric acid (GABA). GABA is a major inhibitory neurotransmitter in the brain. Benzodiazepines increase the activity of GABA, thereby producing a sedating effect, relaxing skeletal muscles, and inducing sleep, anesthesia, and amnesia.

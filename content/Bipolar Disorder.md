@@ -1,0 +1,1 @@
+Mental health condition that causes extreme mood swings that include emotional highs (mania or hypomania) and lows (depression).

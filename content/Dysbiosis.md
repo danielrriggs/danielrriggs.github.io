@@ -1,0 +1,1 @@
+A reduction in microbial diversity and a combination of the loss of beneficial bacteria.

@@ -22,7 +22,7 @@ For people with too much [[Chandra|yin]], like a low energy depressed person, we
 
 For people with too much [[Surya|yang]], like a car accident victim, we want more yin.
 
-#### [[The Central Nervous System]]
+#### [[Central Nervous System]]
 
 Developed [[frontal lobes]] are associated with maturity.
 

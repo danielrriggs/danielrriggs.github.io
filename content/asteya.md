@@ -1,1 +1,1 @@
-The observance of non-stealing, a [[Yama]] in [[Raja]] [[Yoga]].
+The observance of non-stealing, a [[Yama]] in [[Raja Yoga]].

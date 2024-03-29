@@ -1,3 +1,3 @@
 (Gruh-hus-thuh Aash-rum)
 
-The householder phase. You're supposed to apply your skills for your benefit & establishing yourself. Setup a household, maybe get married, travel the world, satisfy your material desires.
+The second of the four stages of life according to the Hindu tradition, the Grahastha Ashram involves applying your skills for your own benefit and growth & establish yourself. The householder phase. Setup a household, maybe get married, travel the world, satisfy your material desires.

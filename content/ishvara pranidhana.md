@@ -1,0 +1,1 @@
+Surrender or devotion to God, a [[Niyama]] in [[Raja Yoga]].

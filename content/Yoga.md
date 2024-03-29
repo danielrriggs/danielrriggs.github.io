@@ -57,13 +57,13 @@ Yoga --> Kriya
 The yogis realized that not all people are the same.
 
 The Yogis discovered that there are four ways that we can connect with the infinite:
-1) [[Bhakti]] Yoga
-For example, the path of Bhakti Yoga is right for someone with a devotional or religious temperament.
-2) [[Karma]] Yoga
-Some people are do-ers (social activists). By trying to take social action we can purify ourselves & move 1 step closer to enlightenment.
-3) [[Jnana]] Yoga
-Some people are more intellectual in nature, & can use contemplation to logic your way towards enlightenment.
-4) [[Raja]] Yoga, also known as [[Raja|Ashtanga]] Yoga.
+1) [[Bhakti Yoga]] - The path of [[Bhakti Yoga]] is right for someone with a devotional or religious temperament.
+
+2) [[Karma]] Yoga - Some people are do-ers (social activists). By trying to take social action we can purify ourselves & move 1 step closer to enlightenment.
+
+3) [[Jnana Yoga]] - Some people are more intellectual in nature, & can use contemplation to logic your way towards enlightenment.
+
+4) [[Raja Yoga]], also known as [[Raja Yoga|Ashtanga]] Yoga - Some people are very organized & want a stepwise path of A-Z to enlightenment.
 	1) Has [[Eight Limbs of Raja Yoga]]
 		1) [[Yama]]
 		2) [[Niyama]]
@@ -80,7 +80,6 @@ Some people are more intellectual in nature, & can use contemplation to logic yo
 				1) [[Zen]]
 					1) [[Mindfulness]]
 			3) [[Vajrayana]] Buddhism
-Some people are very organized & want a stepwise path of A-Z to enlightenment.
 
 Other Yoga Traditions that cropped up:
 - [[Hatha]] Yoga

@@ -1,0 +1,1 @@
+Also known as major depression or major depressive disorder. This is based on the presence of multiple criteria described by the DSM-V for a period of two weeks or longer.

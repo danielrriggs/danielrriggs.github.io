@@ -1,0 +1,1 @@
+A rare mood disorder. Cyclothymia causes emotional ups and downs, but they're not as extreme as those in bipolar I or II disorder. With cyclothymia, you experience periods when your mood noticeably shifts up and down from your baseline.

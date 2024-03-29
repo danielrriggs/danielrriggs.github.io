@@ -1,0 +1,1 @@
+It can be as simple as repeating back and validating the patient's emotional state. The first step is to identify the emotional state based on what the patient is saying, and by the nonverbal cues that the patient is showing (facial expressions, gestures, and mannerisms).

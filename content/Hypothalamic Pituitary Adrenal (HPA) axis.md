@@ -2,6 +2,9 @@
 aliases:
   - HPA axis
 ---
+Complex set of direct influences and feedback interactions among three components:
+the hypothalamus, the pituitary gland, and the adrenal.
+
 3 parts of our brain & body that govern stress.
 H - [[Hypothalamus]]
 P - [[Pituitary]]

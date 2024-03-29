@@ -1,0 +1,1 @@
+Profuse sweating that is unrelated to the usual and normal stimuli.

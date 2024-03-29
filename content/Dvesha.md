@@ -2,4 +2,4 @@
 aliases:
   - dvesha
 ---
-Means "repulsion".
+Means "repulsion". The experience of repulsion or dislike.

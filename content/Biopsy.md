@@ -1,0 +1,1 @@
+A sample of tissue taken from the body in order to examine it more closely.

@@ -2,7 +2,7 @@
 
 Truthfulness.
 
-[[Niyama]]s are an important part of [[Raja]] Yoga, spirituality, and personal growth.
+[[Niyama]]s are an important part of [[Raja Yoga]], spirituality, and personal growth.
 
 We know that people who meditate regularly are a little bit better at life. Their less prone to [[depression]], [[anxiety]], [[addiction]]s, are more able to [[focus]], & have improvements in [[memory]].
 

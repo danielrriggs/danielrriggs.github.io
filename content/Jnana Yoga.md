@@ -1,0 +1,1 @@
+A system of Yoga that focuses on becoming [[enlightenment|enlightened]] through the power of contemplation.

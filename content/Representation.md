@@ -14,4 +14,4 @@ Nothing's ever the same, maaaaannn.
 
 Questions:
 Are representations [[nominal]]?
-Are representations pragmatic (importance of having a [[telos]])?
+Are representations pragmatic? (importance of having a [[telos]])

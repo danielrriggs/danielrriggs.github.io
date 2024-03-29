@@ -1,0 +1,1 @@
+Feeling disconnected or detached from one's body and thoughts.
