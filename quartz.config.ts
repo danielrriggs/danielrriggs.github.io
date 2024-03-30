@@ -12,7 +12,7 @@ const config: QuartzConfig = {
     enableSPA: true,
     enablePopovers: true,
     analytics: {
-      provider: "plausible",
+      provider: "google", tagId: "danielrriggs.github.io",
     },
     locale: "en-US",
     baseUrl: "Meditation",
