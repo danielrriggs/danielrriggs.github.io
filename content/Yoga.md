@@ -4,9 +4,9 @@ aliases:
   - Yogic
   - yogic
 ---
-The Tantrics discovered [[tantra]] and molded their discoveries into Yoga.
+Yoga is An eastern system of introspection and self-discovery whose goal is to allow the practitioner to realize their true nature, get rid of [[Dukkha|suffering]], and become blissful by nature. Yoga is about discovering how we are connected to the infinite consciousness.
 
-Yoga is about discovering how we are connected to the infinite consciousness.
+The Tantrics discovered [[tantra]] and molded their discoveries into Yoga.
 
 There's a cosmic consciousness ([[Brahman]]). Ex: "I'm a piece of the divine."
 We are tiny droplets that come out of that ocean & get trapped in these bodies. As long as we exist as a droplet, we have our own unique identity.

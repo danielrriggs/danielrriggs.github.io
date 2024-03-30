@@ -1,0 +1,1 @@
+For all Kundalini practices, our head, throat, & neck need to be in perfect alignment.

@@ -71,5 +71,5 @@ Is what I'm doing now the best thing I could be doing to achieve my mission (or 
 
 https://www.youtube.com/watch?v=8ExZIFWVG98
 Balance learning for the sake of **doing** vs just exploring (learning that isn't directed to a known goal).
-Concepts vs applications (demonstration of concepts).
+Concepts vs applications (concept = a fundamental thing we can all agree on) (application - a demonstration of a concept).
 	(Seek to collapse many applications to a fewer # of more generic concepts).

@@ -1,6 +1,6 @@
 (Sid-dhee Puh-dah)
 
-The path of accomplishment.
+The path of accomplishment, focused on reaching your goals.
 
 We have intentions, desires, & goals, but things get in the way. We may be undisciplined, or unmotivated; or, we may fail to cultivate the right environment.
 

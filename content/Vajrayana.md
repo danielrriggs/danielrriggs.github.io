@@ -1,5 +1,8 @@
-[[Buddhist Tantra]]
+---
+aliases:
+  - Vajrayana Buddhism
+  - Buddhist Tantra
+---
+Buddhist tantra.
 
-[[tantra|tantric]] teachings which kind of got de-emphasized over a few thousand years blended with [[Buddhism]] & came up with Vajrayana
-
-Related: [[tantra]]
+A branch of Buddhism that included [[tantra|tantric]] teachings, which had been deemphasized over the preceding few thousand years of development of the Buddhist traditions, blended with [[Buddhism]] & came up with Vajrayana.

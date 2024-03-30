@@ -1,0 +1,5 @@
+---
+aliases:
+  - motivate
+---
+Intentional thought

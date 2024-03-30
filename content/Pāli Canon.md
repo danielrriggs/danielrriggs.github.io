@@ -1,1 +1,1 @@
-Contains Bhudda's literal words.
+Contains [[Bhudda]]'s literal words.

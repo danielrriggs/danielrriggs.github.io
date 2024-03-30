@@ -6,7 +6,7 @@ Lots of people want all sorts of stuff. I might want a yacht. But I'm not motiva
 
 We have two different words for motivation and habit. Motivation is when you have a thought in your head that overcomes habit. If I have a habit of sleeping in every day & eating pizza for breakfast, motivation is what allows me to overcome my habit. 
 
-Habit is automatic thought. Motivation is intentional thought.
+[[Habit]] is automatic thought. [[Motivation]] is intentional thought.
 
 In these old texts on [[yoga]], you won't even find a word for motivation. It's bizarre, but what the yogis discovered is that what we call **motivation is simply the ability to hold one thought persistently in the mind**. When you can keep your [[mind]] concentrated on one thing over a period of time, it will result in what other people see as motivation.
 

@@ -1,1 +1,1 @@
-Part of the [[frontal lobes]] which involves empathy / compassion
+Located in the [[frontal lobe]] at the bottom of the cerebral hemispheres and is implicated in the processing of risk and fear, as it is critical in the regulation of amygdala activity in humans. Also involves empathy / compassion.

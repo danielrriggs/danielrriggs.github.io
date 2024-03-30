@@ -1,0 +1,1 @@
+Historically cited as the pneumogastric nerve, it is the tenth cranial nerve or CN X, and interfaces with the parasympathetic control of the heart, lungs, and digestive tract.

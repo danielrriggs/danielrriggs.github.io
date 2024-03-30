@@ -6,6 +6,8 @@ aliases:
 
 Cleansing.
 
+A practice that aims to cleanse a part of our self, such as the body, energy, or mind.
+
 The yogis discovered that optimal function of the body and [[mind]] cannot happen unless they are clean & pure. This is one of the [[Niyama]]s of [[Raja Yoga]].
 
 Think about your life. Which days are hardest? Brain fog can be so debilitating that you can't study at all. Shuddhi is a way to clear sluggishness of the body & mind. The more pure the body & [[mind]] becomes, the better it will function.
