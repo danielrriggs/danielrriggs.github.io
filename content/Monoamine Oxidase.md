@@ -2,4 +2,4 @@
 aliases:
   - MAO
 ---
-Family of [[enzymes]] that catalyze the oxidation of [[monoamines]] ([[dopamine]], [[noradrenaline]] and [[serotonin]]).
+Family of [[enzymes]] that catalyze the oxidation of [[monoamines]] ([[Dopamine]], [[noradrenaline]] and [[serotonin]]).

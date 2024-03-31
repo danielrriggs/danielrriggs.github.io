@@ -20,7 +20,7 @@ In psychiatry, there's an emotional defense mechanism called [[regression (psych
 
 Sometimes in therapy, we examine memories to bring them from primitive stages to more mature stages, thereby processing them.
 
-Oftentimes a samskara is at the root of [[self-sabotage]].
+Oftentimes a samskara is at the root of [[resistance|self-sabotage]].
 	*Example: Someone who's been abandoned before behaves insecurely in a relationship & then, it becomes a self-fulfilling prophecy & the partner breaks up with them, and the samskara gets strengthened even more*
 
 Samskaras are responsible for what we call [[personality]] (traits) in the West. ("*I'm lazy; I'm undisciplined; I'm unlovable; I won't be able to be as good as this other person*")
@@ -30,7 +30,7 @@ It's also responsible for positive things in our mind; like a cancer survivor of
 You have to be able to define & find a samskara to start working with it. This is done by paying attention to your emotional state. There may be times in your life where you respond disproportionately to a situation.
 
 **First**, notice the samskara in the present. Try to understand the features of it.
-	*Example: I'm feeling afraid, abandoned, ashamed; physically, my stomach is queezy, I feel like throwing up, I don't feel hungry. There can be mental sensations & physical sensations.*
+	*Example: I'm feeling afraid, abandoned, ashamed; physically, my stomach is queasy, I feel like throwing up, I don't feel hungry. There can be mental sensations & physical sensations.*
 Remember that this is emotional energy which is carried over from the past, so there will be times in your life where you felt that same way.
 
 The **next** step is to ask yourself, "when have I felt this way before"? If you're really careful, you may find some weird examples of when you felt that way.

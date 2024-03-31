@@ -34,7 +34,13 @@ Is it achievable? Does it inspire me to act?
 - Non-Clinical Track
 	- [[Hunters vs Farmers]]
 		- Spirituality of Thoughts
-			- [[Origins of Action]]
-
----
-#wip work in progress
+			- [[Origins of Action]] 
+		- Resistance
+			- [[resistance]]
+			- [[ego|ahamkara]]
+			- [[procrastination]]
+		- Science of thought
+			- [[Neuroscience of Motivation]]
+			- [[Reward Circuitry]]
+			- [[Hedonic Circuit]]
+			- [[Dopamine Reset and Detox]]

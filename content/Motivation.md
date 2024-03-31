@@ -2,4 +2,6 @@
 aliases:
   - motivate
 ---
-Intentional thought
+Intentional thought.
+
+Motivation relies on our sense of [[ego|identity]].

@@ -29,3 +29,7 @@
 | Catching Techniques                              | Dreams, Death                 | Ajna              | Grounding, Inquisitive      | Advanced | -                   |     |
 | Uijayi Pranayama                                 | Breath, Energy                | -                 | Grounding, Focusing         | Advanced | -                   |     |
 | Replace "I am" with "my mind says"               | -                             | Ajna              | Grounding                   | Advanced | Anxiety, Depression |     |
+
+[[Vishuddha and Manipura Linking]] - !TODO
+
+[[ego meditations]] - !TODO

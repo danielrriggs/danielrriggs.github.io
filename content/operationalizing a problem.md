@@ -1,0 +1,1 @@
+In therapy, breaking a larger task into individual components.

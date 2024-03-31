@@ -13,12 +13,7 @@ The yogis didn't look on the outside at all. They didn't try to use any objectiv
 The yogis used a subjective methodology. The theory that they came up with is so much simpler than the Western theories, and arguably, much more encapsulating (if you buy it) of how the [[mind]] works.
 Example - a clinical psychiatrist trying to explain to someone they have an [[Oedipal complex]] is super complicated. On the other hand, the Vedic model can be taught to kids. When it's taught to people, they can understand how their [[mind]] works, not in 5 years of study, but in one hour.
 
-There are 5 parts of the mind
-- [[Manas]]
-- [[buddhi]]
-- [[ego|Ahamkara]]
-- [[samskara|Samskara]]
-- [[Citta]]
+See the Vedic system's 5 [[parts of the mind]].
 
 Note that the quality of the ([[ego|ahamkara]]) (my identity as a programmer, for example) is a completely different quality of stuff than an emotion ([[manas]]) or analytical reasoning ([[buddhi]]).
 
@@ -41,7 +36,9 @@ The difference between someone who is 5/10/15/20/30 years old is not their emoti
 Suppose you come into the office, late, and your boss yells at you ... "You're always late. If you're late 3 more times in the next 3 months, you're fired." What happens in your mind?
 In the first second or so, you'll feel things like shame, embarrassment, dislike. Then, within a minute or so, you may start to feel different things. Things like anger, blame (blaming your boss). Then you start to see different stuff in your head, like, "What does this guy know? At the end of the day, my work here is awesome ... who cares if I show up at 9:00 or 9:30? This doesn't matter; what matters is that I do good work." Our [[mind]] starts putting down our boss & pumping us up. This is the activity of our [[ego|ahamkara]]. The [[ego|ahamkara]] is the faculty of [[mind]] that pumps us up and puts other people down. It's the bouncer of our mind. The shield of our mind. Protects our mind. Any time we feel negative emotions, our [[ego|ahamkara]] is like, "Oh crap, we're feeling bad. Let's step up & put him down so that we don't have to feel bad." Once we get hurt by something, we have to start knocking it down & pumping ourselves up.
 
-The [[ego|ahamkara]] tells us a bunch of logical stuff. "I don't need to show up to work on time because I do good work." This sounds super logical. But what the [[ego|ahamkara]] does is selectively bullies our [[buddhi]] into coming up with the right kind of information. In those moments, our [[mind]] very conveniently forgets that the reason this person is the manager is because they were the best person in the office. The reason he wants you to come on time is because the entire office huddles at 9:00 and determines who will handle which clients. When the negative emotion triggers in the [[manas]] and our [[ego|ahamkara]] steps in, it doesn't look at things objectively. There is a war between the [[ego|ahamkara]] and our [[buddhi]]. They're clashing against each other. When you talk to someone who's egotistical, how logical are they? More importantly, how logical do they think they are? If you talk to someone who's emotional, how logical are they? More importantly, how logical do they think they are? If you argue with someone who's [[ego]] is active, you aren't going to get anywhere. It's like their [[mind]] has this impervious shield of cognitive bias that swats away any argument, no matter how logical it is. We see this in political discussions, where both sides think they're 100% logical and the other side is 100% illogical. People with big [[ego|ahamkara]]s bully the [[buddhi]]. It goes to the [[buddhi]] and says "Hey listen, we're feeling really bad right now. Come up with as much evidence as you can so I can knock this other person down & then we don't have to feel this pain anymore. I gotta protect us from the pain & I need your help, [[buddhi]]." We see this in [[rationalization]] all the time. Example: infidelity in a committed relationship. The perpetrator will justify their behavior by coming up with reasons for why it was the other person's fault that they cheated.
+The [[ego|ahamkara]] tells us a bunch of logical stuff. "I don't need to show up to work on time because I do good work." This sounds super logical. But what the [[ego|ahamkara]] does is selectively bullies our [[buddhi]] into coming up with the right kind of information. In those moments, our [[mind]] very conveniently forgets that the reason this person is the manager is because they were the best person in the office. The reason he wants you to come on time is because the entire office huddles at 9:00 and determines who will handle which clients. When the negative emotion triggers in the [[manas]] and our [[ego|ahamkara]] steps in, it doesn't look at things objectively.
+
+See [[There is a war between the ahamkara and our buddhi]].
 
 The [[ego|ahamkara]] is fundamentally comparative. Any time you're putting someone else down, that's the [[ego|ahamkara]].
 
