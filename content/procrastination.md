@@ -1,3 +1,7 @@
+---
+aliases:
+  - procrastinate
+---
 ###### Procrastination isn't a problem, it's a solution.
 Which equation makes more sense to your brain: work for 30 days & get an 'A', or chill for 28 days, cram for 2, and get a 'C'?
 If you look at neuroscience, everyone procrastinates. Things that everyone does aren't bugs, they're features. It's how we're designed to function. Procrastination is an efficient strategy. It's a way to allocate your resources to do a good enough job in a relatively small amount of time.

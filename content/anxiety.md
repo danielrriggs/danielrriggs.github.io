@@ -1,6 +1,7 @@
 ---
 aliases:
   - Physiologic Anxiety
+  - anxious
 ---
 Anxiety is a psychological, physiological, and behavioral state induced in animals and humans by a threat to well-being or survival, either actual or potential. It is characterized by increased arousal, expectancy, autonomic and neuroendocrine activation, and specific behavior patterns.
 

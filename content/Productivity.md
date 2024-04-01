@@ -41,7 +41,7 @@ https://www.youtube.com/watch?v=sibcmEQGFmQ
 
 Mental State
 Sleep & Exercise
-	When exercise, tap into higher stuff.
+	To exercise, tap into higher things; flow.
 		[[John Demartini]] - observe & write down the things that bring a tear to your eye. Map these feelings & experiences to your values. This can help you stay in alignment more.
 
 Raise your standards. Success is fun. It's better than frivolity.

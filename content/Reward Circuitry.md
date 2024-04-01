@@ -3,14 +3,13 @@ aliases:
   - mesolimbic circuit
   - reward circuitry
   - mesolimbic circuitry
+  - dopamine circuit
+  - dopamine circuitry
 ---
-Mesolimbic circuit.
-
-The primary circuit of our reward circuitry is the mesolimbic circuit.
-
-Our [[Reward Circuitry]] is governed by [[Dopamine]] & is found in the [[nucleus accumbens]]. The primary circuit is the [[mesolimbic circuit]].
+Our **mesolimbic circuit** (found in the [[nucleus accumbens]]) is our **reward circuit** and is governed by [[Dopamine]]. Sometimes people call also call it the dopamanergic circuit.
 
 We'll have a behavior, get a **reward**, and then *learn* something from it (reinforce that behavior). This is what we call 'learning'.
+	**Our mesolimbic circuit governs the relationship between behaviors, rewards, and reinforcement (or, learning).**
 
 ###### What happens when you mess with this circuit (with addictions)?
 When you use a substance of abuse like cocaine, marijuana, or opiates, there's direct chemical activation of the reward circuit, so our behavior becomes so powerfully reinforced to the point where it overrides everything else.

@@ -10,20 +10,13 @@ Those who can consistently maintain motivation can consistently maintain focus. 
 
 How is ADHD diagnosed & treated?
 
-What is ADHD's impact on anxiety disorders? On Mood? On depression?
+What is ADHD's impact on [[anxiety]] disorders? On Mood? On [[depression]]?
 
-Having ADHD as a child makes you more prone to depression as an adult.
+Having ADHD as a child makes you more prone to [[depression]] as an adult.
 
-The relationship between ADHD and addiction.
+The relationship between ADHD and [[addiction]].
 
 Having a child with ADHD completely changes parental behavior.
-
-Neuroscience of motivation.
-Doing stuff is about rewards. Dopamine governs behavior. Reward circuitry in neuroscience.
-
-Resistance - the stuff that gets in the way.
-When I want to do something, but I also don't want to do it. Who is the 'me' that gets in the way?
-There are parts of the mind that sabotage the goals we have.
 
 How to get stuff done. Environmental influence can support or reduce motivation.
 
@@ -35,7 +28,7 @@ Is it achievable? Does it inspire me to act?
 	- [[Hunters vs Farmers]]
 		- Spirituality of Thoughts
 			- [[Origins of Action]] 
-		- Resistance
+		- Resistance - When I want to do something, but I also don't want to do it. Who is the 'me' that gets in the way? There are parts of the mind that sabotage the goals we have.
 			- [[resistance]]
 			- [[ego|ahamkara]]
 			- [[procrastination]]
@@ -44,3 +37,4 @@ Is it achievable? Does it inspire me to act?
 			- [[Reward Circuitry]]
 			- [[Hedonic Circuit]]
 			- [[Dopamine Reset and Detox]]
+			- [[Action Success Calculation]]

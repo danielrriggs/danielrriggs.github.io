@@ -46,7 +46,7 @@ The yogis were onto something when they discovered that shuddhi is an important 
 	- You can light Himalayan Sage. Some people use certain kinds of incense.
 	- Getting fresh air into your home.
 	- Going out for walks is cleansing.
-		- Plant aerosols (the compounds plants release) have beneficial effects on mood & anxiety (by activating your [[olfactory receptors]], which balances your mood & anxiety).
+		- Plant aerosols & phytochemicals (the compounds plants release) balance your mood & anxiety (by activating your [[olfactory receptors]]).
 	- You can use certain kinds of purifying music. This varies based on culture or which religious tradition you're from. A lot of cultures have purifying vibes, so, think about that sort of stuff.
 - Mental cleaning
 	- Even through technology. Getting your inbox to zero is one of the most important productivity things you can do. Have a clean desktop. Have a phone that doesn't bombard you with different kinds of stimuli.
