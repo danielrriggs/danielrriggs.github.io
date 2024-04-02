@@ -35,3 +35,5 @@
 [[ego meditations]] - !TODO
 
 [[Urge Surfing]]
+
+[[Thought Control Meditations]]

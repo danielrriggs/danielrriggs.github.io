@@ -5,7 +5,7 @@ aliases:
   - tantrics
 ---
 The Tantrics - the group of people in ancient India that discovered [[tantra]].
-Tantra - The Teachings of the [[Tantrics]].
+Tantra - The Teachings of the Tantrics.
 
 The Tantrics believed the universe is made of cosmic consciousness (or, [[Shiva]]), and cosmic energy (or, [[shakti]]).
 

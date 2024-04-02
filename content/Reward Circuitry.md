@@ -36,3 +36,7 @@ The [[Reward Circuitry|mesolimbic circuit]] can be stimulated by opiates, gettin
 	- Our ability to learn from our mistakes & get positive reinforcement & engage in behaviors we enjoy seems to be messed up. Your brain never adapts. It's always a struggle.
 
 By better understanding the different parts of our brain, we'll better understand how to reset them.
+
+---
+https://youtu.be/SPjUCLFtN8g?si=ydhaEq1DGtyvWgI4
+"There's only 1 currency in the world, and that's [[dopamine]]" - Huberman

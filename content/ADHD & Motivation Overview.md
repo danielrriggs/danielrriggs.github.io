@@ -26,13 +26,15 @@ Is it achievable? Does it inspire me to act?
 [[Model of Motivation]]
 - Non-Clinical Track
 	- [[Hunters vs Farmers]]
-		- Spirituality of Thoughts
+		- **Spirituality of Thoughts**
 			- [[Origins of Action]] 
-		- Resistance - When I want to do something, but I also don't want to do it. Who is the 'me' that gets in the way? There are parts of the mind that sabotage the goals we have.
+			- [[Origin of Motivation]]
+			- [[How to Concentrate]]
+		- **Resistance** - When I want to do something, but I also don't want to do it. Who is the 'me' that gets in the way? There are parts of the mind that sabotage the goals we have.
 			- [[resistance]]
 			- [[ego|ahamkara]]
 			- [[procrastination]]
-		- Science of thought
+		- **Science of Thought**
 			- [[Neuroscience of Motivation]]
 			- [[Reward Circuitry]]
 			- [[Hedonic Circuit]]
