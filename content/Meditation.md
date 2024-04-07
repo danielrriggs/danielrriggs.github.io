@@ -2,7 +2,10 @@
 aliases:
   - meditative practice
 ---
+# See [[Meditation Index]] for Meditations
+
 ## Meditation Overview
+Meditation began ~6,000 years ago in India with a group of people called the [[tantra|Tantrics]].
 
 There are different traditions of meditation. [[Mindfulness]], which is growing in popularity today, is a just tiny fraction of meditation. Different [[Meditation Styles]] & practices have different benefits & are suited for different kinds of people.
 	For example, some people have difficulty focusing their [[mind]] to focus on one thing. Those people can be given an [[Inquisitive Meditation Technique|inquisitive meditation technique]]
@@ -27,9 +30,6 @@ When you get good at [[dharana]], you get better at focusing & [[studying]]. Stu
 Sometimes, after meditating for a long time, sometimes years, people will become different people. Examples of cosmic changes: being happier, being less attached, enjoying life more, being more focused (cosmically). These come out of the state of [[samadhi]].
 
 Successful entry into [[dhyana]] involves finding the right [[dharana]].
-
-###### Where Meditation Began
-[[Meditation]] began ~6,000 years ago in India with a group of people called the [[tantra|Tantrics]].
 
 ## Different Meditative Styles
 See [[Meditation Styles]]
@@ -65,6 +65,3 @@ See [[Metaphysics of Meditation]]
 	- [[Dukkha]]
 	- [[Dharma]]
 	- [[Karma]]
-
----
-## [[Meditation Index]]

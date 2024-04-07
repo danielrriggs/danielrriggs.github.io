@@ -1,6 +1,7 @@
 ---
 aliases:
   - karma
+  - karmic
 ---
 (kar-muh)
 

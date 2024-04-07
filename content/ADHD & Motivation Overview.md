@@ -27,9 +27,19 @@ Is it achievable? Does it inspire me to act?
 - Non-Clinical Track
 	- [[Hunters vs Farmers]]
 		- **Spirituality of Thoughts**
-			- [[Origins of Action]] 
+			- [[Origins of Action]]
 			- [[Origin of Motivation]]
+				- [[Trataka]] (Fixed Point Gazing)
+				- [[Yantra]] (Internal Trataka)
 			- [[How to Concentrate]]
+				- [[Thought Control Meditations]]
+			- [[indriya|Indriya]]s
+				- [[Watch Food Indriyas]]
+				- [[Indriya of Internal Sound]]
+			- [[pratyahara|Pratyahara]]
+				- [[Kaya Shtiram]]
+				- [[Sound with Eyes Open and Closed]]
+			- [[Cognitive Drains]]
 		- **Resistance** - When I want to do something, but I also don't want to do it. Who is the 'me' that gets in the way? There are parts of the mind that sabotage the goals we have.
 			- [[resistance]]
 			- [[ego|ahamkara]]
@@ -40,3 +50,12 @@ Is it achievable? Does it inspire me to act?
 			- [[Hedonic Circuit]]
 			- [[Dopamine Reset and Detox]]
 			- [[Action Success Calculation]]
+		- Organization
+			- [[Environment Organization]]
+			- [[Permissive Influences of Motivation]]
+			- [[Top-Down vs Bottom-Up Thinking]]
+			- [[Technology Habits]]
+		- Goal Setting & Motivation
+			- [[Planning & Goal Setting]]
+			- [[Learning Mindset vs Performance Mindset]]
+				- [[Meditation - Changing Mindset]]

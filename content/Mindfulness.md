@@ -2,7 +2,7 @@
 aliases:
   - mindfulness
 ---
-An open awareness meditation technique where we watch our thoughts pass, like a river.
+An open awareness meditation technique where we watch our thoughts pass, like a river. It's about observing, cultivating non-judgmentalness, & being in the present.
 
 ###### How did the explosion in [[Mindfulness|mindfulness]] today happen?
 Through research. In the 60's & 70's, there was a large interest in the West on [[meditation]]. All these gurus started travelling to the West & teaching [[meditation]] & a lot of people liked it. Then, a group of researchers who were fascinated by learning it in their personal lives wanted to understand the science behind it. But, they faced a problem, which is that not all [[meditation]] is the same. [[Om Chanting]] is very different than noticing the flow of your thoughts like a river. How can we study this scientifically when there's a lot of variability?

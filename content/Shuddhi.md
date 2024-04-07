@@ -19,14 +19,13 @@ Clinically, psychotherapists find a correlation between how [[depression|depress
 
 This is also the case with [[ADHD]]. If people with [[ADHD]] have a cluttered house, they can't concentrate. For many patients with [[ADHD]], in order to work, they must fastidiously clean their entire place. The current neuroscience finds that this is exactly the case. A clean environment literally leads to more optimal mental function. To understand this, let's understand how our brain attends to things.
 
-There are two aspects that control our mental attention - top down & bottom up (sensory stimuli).
-Top down thinking is when you send an order (which comes from the [[cerebral cortices]]) to all the parts of your [[mind]] to fall in line, calm down, and focus on one thing (like study, for example).
-Bottom up stimuli is like when you're walking and you see a snake. Your top down activity gets interrupted. In this case, our [[visual cortices]] tells our [[cortices]] to cease activity. We're going to stop thinking about whatever you were just thinking about, because there's a snake.
-There's a constant communication between (or sometimes, a war) between your top down circuit & your bottom up circuit.
+There are two aspects that control our mental attention - [[Top-Down vs Bottom-Up Thinking|top-down]] & [[Top-Down vs Bottom-Up Thinking|bottom-up]] (sensory stimuli).
 
-You might understand this well if you've tried to study in a noisy place. When your bottom up circuit is getting bombarded, you can't study optimally.
+There's a constant communication between (or sometimes, a war) between your [[Top-Down vs Bottom-Up Thinking|top-down]] circuit & your [[Top-Down vs Bottom-Up Thinking|bottom-up]] circuit.
 
-Research have found that if you try to do top down thinking in a visually cluttered environment, the [[visual cortices|visual cortex]] is active, and it takes a portion of your mental energy to suppress all those visual signals.
+When you study in a noisy place, your [[Top-Down vs Bottom-Up Thinking|bottom-up]] circuit is getting bombarded & you can't study optimally.
+
+Research has found that if you try to do [[Top-Down vs Bottom-Up Thinking|top-down]] thinking in a visually cluttered environment, the [[visual cortices|visual cortex]] is active, and it takes a portion of your mental energy to suppress all those visual signals.
 
 ###### Physiology
 One of the most important functions of [[sleep]] is clearing out [[adenosine]] from our cells. If we're not able to clean our brains through [[sleep]], it's hard to function the next day.

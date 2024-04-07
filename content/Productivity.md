@@ -1,3 +1,9 @@
+---
+aliases:
+  - productive
+---
+[[sleep]] is vital.
+
 Productivity is the joyous pursuit of execution.
 https://www.youtube.com/watch?v=BBbrLjcrTlw
 
@@ -40,9 +46,8 @@ https://www.youtube.com/watch?v=sibcmEQGFmQ
 1) Have a clean workspace
 
 Mental State
-Sleep & Exercise
-	To exercise, tap into higher things; flow.
-		[[John Demartini]] - observe & write down the things that bring a tear to your eye. Map these feelings & experiences to your values. This can help you stay in alignment more.
+Find ways to enter into & stay in [[Flow State]].
+	[[John Demartini]] - observe & write down the things that bring a tear to your eye. Map these feelings & experiences to your values. This can help you stay in alignment more.
 
 Raise your standards. Success is fun. It's better than frivolity.
 	Get used to carving out lots of time & getting it done. Uninterrupted. Work on targeted, highly prioritized work.

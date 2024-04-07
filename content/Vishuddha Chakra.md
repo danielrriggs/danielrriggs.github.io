@@ -1,3 +1,8 @@
+---
+aliases:
+  - Vishuddha
+---
+
 Throat Chakra.
 
 Situated at the base of our throat, it is about affecting change in the outside world.
