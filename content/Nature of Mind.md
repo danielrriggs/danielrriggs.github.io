@@ -27,10 +27,10 @@ Normal Waking Activity:  + Mental Activity, + Consciousness
 Sleep:  - Mental Activity, - Consciousness
 Dreaming:  + Mental Activity, - Consciousness
 DayDreaming:  + Mental Activity, - Consciousness
-	*When we "get lost" in a day dream, we have mental activity without awareness.
-	When we "snap out" of a daydream, we move from a state of mental activity without awareness to a state of mental activity with awareness.
+- *When we "get lost" in a day dream, we have mental activity without awareness.
+- When we "snap out" of a daydream, we move from a state of mental activity without awareness to a state of mental activity with awareness.
 Meditation ([[Dhyana]]):  - Mental Activity, + Consciousness
-	*Example: Watching the dawn / dusk. Putting your feet in the ocean. Conscious, but low mental activity.*
+- *Example: Watching the dawn / dusk. Putting your feet in the ocean. Conscious, but low mental activity.*
 
 The following are examples of states of [[Mind]] on a *spectrum* between *mental activity (mind)* and consciousness.
 The left states are higher states of [[Mind]] (and lower states of consciousness, and the right states are higher states of conscious (and lower states of mind).
@@ -47,7 +47,7 @@ flowState[Flow State] --> Dhyana
 Dhyana --> HighConsciousness[High Conscioussness, Low Mental Activity]
 ```
 
-[[Cognitive Behavioral Therapy|CBT]] noticed [[Thought fusion]]. One of the goals of [[Cognitive Behavioral Therapy|CBT]] is to train people to move from states of [[Thought fusion]] to states of [[Thought diffusion]]. This is also one of the goals of [[meditation]].
+[[Cognitive Behavioral Therapy|CBT]] noticed [[Thought fusion]]. One of the goals of [[Cognitive Behavioral Therapy|CBT]] is to train people to move from states of [[Thought fusion]] to states of [[Thought diffusion]]. This is also one of the goals of [[Meditation]].
 
 The realization that the [[Mind]] is not our true self is important, not only for optimizing our performance, but is clinically useful for any mental illness. Studies have been done on everything from [[Depression]] to [[Anxiety]] to [[Schizophrenia]] to even [[Trauma]], demonstrating that [[Meditation|meditation]] is an effective treatment for all of them.
 

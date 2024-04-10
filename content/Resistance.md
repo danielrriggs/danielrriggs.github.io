@@ -23,12 +23,12 @@ Emotion drives & catalyzes behavioral change.
 The [[Hippocampus]] is tightly connected to our [[Amygdala]].
 
 Emotions are like the override switch for behavior. If the [[Amygdala]] activates, it overrides any kind of logic.
-	The [[Amygdala]] is responsible for a performer who can easily perform something they've rehearsed a ton, fails to perform "on stage".
+- The [[Amygdala]] is responsible for a performer who can easily perform something they've rehearsed a ton, fails to perform "on stage".
 
 Our experience of lack of motivation is usually emotionally neutral. When you feel a lack of motivation, what you usually do is distract yourself. It isn't like you sit there & think about "going to the gym" & then don't go to the gym. You evoke a certain amount of distraction. Why? Why do we evoke distraction? What are we distracting ourselves from? We evoke distraction to distract ourselves from the emotion to begin with. That's exactly why we don't feel it. If you do sit there for a minute & feel the emotion some amount of fear / frustration / shame will arise if we let it. But, our brain protects us from that with distraction.
 
 If you find yourself with a lack of motivation & engaging in distraction when you try to do something, the missing link there is a sub-surface emotion. The stronger the emotion, the stronger the lack of motivation.
-	*Example: A student got COVID & procrastinated on sending a simple email to their professor asking for an extension on a deadline. Despite having a good excuse, this student procrastinated on sending the email because they felt shame about it.*
+- *Example: A student got COVID & procrastinated on sending a simple email to their professor asking for an extension on a deadline. Despite having a good excuse, this student procrastinated on sending the email because they felt shame about it.*
 
 Shame holds us back. Example: [[Imposter Syndrome]]. The emotional override switch is irrational, & we know this. Emotions are, by definition, irrational.
 

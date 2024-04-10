@@ -18,7 +18,7 @@ Dawn & dusk is beautiful. Why? Why do the colors at sunrise & sunset seem vivid 
 There's a simple experiment you can do - pick a spot that has different shades of green (trees, grass, etc) & look at all the shades of green at night. See how many shades you see. Then, look at it at noon. Then, look at dawn or dusk & see how vivid the greens are. Simply because our bodies have evolved to function during that time.
 
 If you're a night owl, after 5/6/7pm, we have another period of high mental acuity. You can have a second efficient push at the end of the day.
-	*Caveat: teenagers have their circadian rhythm shifted forward a few hours. Teenagers' brains are wired to come online at like 7/8/9 am.*
+- *Caveat: teenagers have their circadian rhythm shifted forward a few hours. Teenagers' brains are wired to come online at like 7/8/9 am.*
 
 If [[Brahmamuhurtha]] doesn't work for you, then just find what does.
 
@@ -39,9 +39,9 @@ Your [[Mind]] loves to procrastinate. If you give yourself an endless amount of 
 
 ###### [[Ayurveda|Ayurvedic]] perspective on studying
 If your primary [[Dosha]] is:
-	[[Vata]], you may need more frequent breaks.
-	[[Pitta]], you can start mid-morning, work for like 8 hours, but then need to call it quits around 4 or 5 pm.
-	[[Kapha]], can benefit from marathon study sessions. Slower to get going, but have the highest top speed.
+- [[Vata]], you may need more frequent breaks.
+- [[Pitta]], you can start mid-morning, work for like 8 hours, but then need to call it quits around 4 or 5 pm.
+- [[Kapha]], can benefit from marathon study sessions. Slower to get going, but have the highest top speed.
 
 Ultimately, figuring out your protocols is going to be a journey you will have to undertake & figure out yourself.
 

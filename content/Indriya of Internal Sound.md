@@ -15,7 +15,7 @@ Sit up straight, plug your ears and practice:
 Do a round of 30 seconds. Break ~ 10 seconds. 
 Do a round of 30 seconds. Break ~ 10 seconds.
 Then, do another round for 60 seconds. Break for 30 seconds.
-	*Since this round is longer, it will be harder and require more focus to bring the sounds to the surface for the full duration.*
+- *Since this round is longer, it will be harder and require more focus to bring the sounds to the surface for the full duration.*
 
 Notice that you can't pay attention to everything. You can focus on the one that pulls you into your internal attention in the strongest way.
 

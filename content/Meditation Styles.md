@@ -27,3 +27,6 @@ x-axis: [[Open awareness meditation technique]] vs [[Focus based meditation tech
 [[Ice Diving]] - a Grounding practice
 
 [[Kundalini Yoga]] - good for people with a goal in mind.
+
+---
+#wip - categorize more practices

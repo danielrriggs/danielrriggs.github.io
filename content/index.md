@@ -3,10 +3,9 @@ These integrated notes began as an exploration of learning the traditional yogic
 
 The notes are intended to be pragmatic rather than thorough or complete.
 
-All notes are in the ingress phase; much ongoing integration, reduction, & refinement will take place in the future on an ongoing basis.
-	For now, expect no formal change control. Significant & frequent changes to content will take place.
+Significant, frequent changes will take place.
 
 Start with one of these:
 - [[Meditation]]
 - [[Yoga]]
-- [[ADHD & Motivation Overview]] #wip
+- [[ADHD & Motivation Overview]]

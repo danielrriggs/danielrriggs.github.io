@@ -1,6 +1,6 @@
 Derived from the Sanskrit words “yam” (meaning “to control”) and “tra” (meaning “tool” or “instrument”), a **yantra** is a geometric figure or diagram representing an energetic or spiritual aspect of the universe.
 
-A [[tantra|tantric]] symbol of power. The [[tantra|Tantrics]]]] believed that when you meditate on them, they harness / cultivate various cosmic spiritual energies.
+A [[tantra|tantric]] symbol of power. The [[tantra|Tantrics]] believed that when you meditate on them, they harness / cultivate various cosmic spiritual energies.
 
 ![[2. Sri_Yantra_Correct_Colors_Johari_1974.jpg]]
 
@@ -16,7 +16,7 @@ We're going to train our attention by staring at the center of the Yantra for aw
 This is phase 2 of [[Trataka]] practice, which is [[Trataka]] on a Yantra.
 
 When we close our eyes, we can notice the screen of our mind, or [[Akash]] (which is in our [[Citta]]). It is almost like a monitor in our brain, where we can visualize things, imagine things, or see after images.
-	From a biological perspective, our eyes have pigments called rhodopsins that become exhausted when we stare at something too long. As a result of rhodopsin exhaustion, we see “after images” that include the negative or opposite color of what we were gazing at. Internal trataka leverages these principles to create a visual object for us to focus on in the mind. This practice also teaches us [[Vairagya]].
+- From a biological perspective, our eyes have pigments called rhodopsins that become exhausted when we stare at something too long. As a result of rhodopsin exhaustion, we see “after images” that include the negative or opposite color of what we were gazing at. Internal trataka leverages these principles to create a visual object for us to focus on in the mind. This practice also teaches us [[Vairagya]].
 
 #### Example Yantra Meditation (#WIP - guided meditation?)
 - Stare at the center for awhile & aclimate. For this entire exercise, keep your gazed fixed on the center. Don't look away.

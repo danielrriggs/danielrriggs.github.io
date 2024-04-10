@@ -8,7 +8,7 @@ aliases:
 Meditation began ~6,000 years ago in India with a group of people called the [[tantra|Tantrics]].
 
 There are different traditions of meditation. [[Mindfulness]], which is growing in popularity today, is a just tiny fraction of meditation. Different [[Meditation Styles]] & practices have different benefits & are suited for different kinds of people.
-	For example, some people have difficulty focusing their [[Mind]] to focus on one thing. Those people can be given an [[Inquisitive Meditation Technique|inquisitive meditation technique]]
+- For example, some people have difficulty focusing their [[Mind]] to focus on one thing. Those people can be given an [[Inquisitive Meditation Technique|inquisitive meditation technique]]
 
 There isn't one word in Sanskrit that means 'meditation'. There are 3 Sanskrit words that get translated as meditation.
 1) [[Dharana]] (verb). Focusing technique.

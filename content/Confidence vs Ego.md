@@ -1,8 +1,8 @@
 Many problems we see are rooted in [[confidence]] or [[Ego]].
 
 *Example Problems:*
-	*[[low self-esteem]] - people who don't believe in themselves & never try.*
-	*Arrogance (Egotistical people) - people who believe in themselves too much. Can result in relationship problems. Not making the right decision at the right time.*
+- *[[low self-esteem]] - people who don't believe in themselves & never try.*
+- *Arrogance (Egotistical people) - people who believe in themselves too much. Can result in relationship problems. Not making the right decision at the right time.*
 
 Some of us want to be a little more confident, for example, to step outside of our 9-5 jobs & pursue a different career / dream. This comes down to our ability to be secure in ourselves; to be confident. To step away from our [[Ego]].
 
@@ -17,12 +17,12 @@ The more egotistical a person is, the less confident they are in themselves. The
 A lot of the times we'll stack things in our favor; this may lead to success, but it actually reinforces insecurity.
 
 *Examples:* 
-	*1) The nice guy. Has fear to ask girl out. Does lots of nice things to stack the deck so that when he does ask her out, she'll say yes. He gets friendzoned (probably due to emanating insecurity). This experience can cause a negative feedback loop (reinforces nice guy behavior so that next time he is even nicer).*
-	*2) Someone who cheats in a game. The more they cheat, the more they have to rely on cheating to win the game & the more insecure they become in their skill in the game.*
+- *The nice guy. Has fear to ask girl out. Does lots of nice things to stack the deck so that when he does ask her out, she'll say yes. He gets friendzoned (probably due to emanating insecurity). This experience can cause a negative feedback loop (reinforces nice guy behavior so that next time he is even nicer).*
+- *Someone who cheats in a game. The more they cheat, the more they have to rely on cheating to win the game & the more insecure they become in their skill in the game.*
 
 *More examples:*
-	*- Medical school / ivy league school environment - when a person go from an environment (high school) where they're ranked highly to an environment where they're average, suddenly they aren't the smartest person in the room anymore & their [[confidence]] comes crumbling down. Their [[confidence]] was never real; it was [[Ego]].*
-	*- [[Imposter Syndrome]] - when someone feels they don't belong. They may objectively be doing well, but they don't feel like they belong. It happens to people who become very successful very quickly.*
+- *Medical school / ivy league school environment - when a person go from an environment (high school) where they're ranked highly to an environment where they're average, suddenly they aren't the smartest person in the room anymore & their [[confidence]] comes crumbling down. Their [[confidence]] was never real; it was [[Ego]].*
+- *[[Imposter Syndrome]] - when someone feels they don't belong. They may objectively be doing well, but they don't feel like they belong. It happens to people who become very successful very quickly.*
 
 Success leads to [[Ego]]. [[Confidence]] comes from surviving failure.
 
@@ -36,9 +36,9 @@ One of the key things that the [[Ego|ahamkara]] does is compare. Smarter. Faster
 
 ###### How do you gain confidence & become less egotistical?
 1) Learn to face uncertainty. Take chances.
-	1) Recognize that the more you stack the deck in your favor, the more you're reinforcing insecurity. When you stack the deck & you win, was it because you gave 100%? Or was it because the odds were in your favor?
+- Recognize that the more you stack the deck in your favor, the more you're reinforcing insecurity. When you stack the deck & you win, was it because you gave 100%? Or was it because the odds were in your favor?
 2) Survive failure.
-	1) This part is hard. You can't really go out and fail on purpose because that isn't how real failure works. But when you do fail, recognize that it's actually okay. When taking risks, it is inevitable that you will fail; in the mist of failure, appreciate that you won't feel this way for forever. There is always a light at the end of the tunnel. You will come out of failure, eventually. Your failures make you who you are. Everything that you are able to offer the world is because of your failures. Failure will be the birth of your confidence. It may hurt in the moment, but it is important to keep moving forward & get to the other side.
+- This part is hard. You can't really go out and fail on purpose because that isn't how real failure works. But when you do fail, recognize that it's actually okay. When taking risks, it is inevitable that you will fail; in the mist of failure, appreciate that you won't feel this way for forever. There is always a light at the end of the tunnel. You will come out of failure, eventually. Your failures make you who you are. Everything that you are able to offer the world is because of your failures. Failure will be the birth of your confidence. It may hurt in the moment, but it is important to keep moving forward & get to the other side.
 3) Spend more time with yourself. Get away from other people. Your [[Mind]] gets populated by your [[Indriya]]s.
-	1) Spend time in nature. Nature doesn't care who you are. If you go for a hike by yourself & either succeed or fail the hike, nobody cares or knows either way. As long as you don't post about it. We see lots of pictures of people's cool nature pictures.
-	2) Spend more time off of social media.
+- Spend time in nature. Nature doesn't care who you are. If you go for a hike by yourself & either succeed or fail the hike, nobody cares or knows either way. As long as you don't post about it. We see lots of pictures of people's cool nature pictures.
+- Spend more time off of social media.

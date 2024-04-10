@@ -21,7 +21,7 @@ Based on how we're raised (what success & failure is attributed to), it changes 
 [[Carol Dweck]] was the person who discovered this in the west, but this concept was understood thousands of years ago through the concept of a [[Samskara]].
 
 A [[Samskara]] is an experience which carries some kind of emotional energy, which gets called up when we're faced with various circumstances. A kid who gets praised internalizes something, & that internalization will become their [[Mindset]] through which they navigate life.
-	*When you internalized something as a kid, like a failure, what were the emotions you carried with that failure? How were they processed? How did your parents support you with that failure? Did they say to you, this is because you're smart / stupid? Or, you did a good job because you worked hard? Or, even though you failed this time, you still worked hard & I'm sure you'll do better next time?*
+- *When you internalized something as a kid, like a failure, what were the emotions you carried with that failure? How were they processed? How did your parents support you with that failure? Did they say to you, this is because you're smart / stupid? Or, you did a good job because you worked hard? Or, even though you failed this time, you still worked hard & I'm sure you'll do better next time?*
 
 Does your motivation tank in the face of a setback? If you fail, what happens in your [[Mind]]? Do you get engaged with it? - "oh, this is something I need to learn, let's try again." Or, does failure lead to avoidance? Mindset is formed as a [[Samskara]]. [[Samskara|Samskara]]s are not permanent. They can be digested & new ones can be laid down. Our [[Personality]] can change over time. Whether you find yourself in the [[Growth mindset]] or [[Fixed mindset]] "camp", you can reframe into the other.
 
@@ -32,6 +32,6 @@ The second thing we need to **notice** is what **effect** your instinctive react
 Once we notice these things, we can catch it & re-frame. When you catch your thoughts, imagine that you were intercepting the thoughts of one of your friends. What would you tell them?
 
 As you become aware of your thoughts, you will notice a natural change in motivation.
-	*As we combat the perception that failure is deterministic, we will naturally increase our motivation.*
+- *As we combat the perception that failure is deterministic, we will naturally increase our motivation.*
 
 See [[Meditation - Changing Mindset]]

@@ -30,8 +30,8 @@ We need to optimize all 3.
 		- How to set good technology habits.
 
 Motivation isn't something you can increase.
-	*Analogy - like flight for a bird. Is flight in the bones? In the wings? In the feathers? Is it the height that the bird starts from? Is it the wind that's blowing? Flight includes all of these components.*
-	When we try to just "do stuff" (motivate ourselves), we're looking for "flight" without understanding the elements of flight.
+- *Analogy - like flight for a bird. Is flight in the bones? In the wings? In the feathers? Is it the height that the bird starts from? Is it the wind that's blowing? Flight includes all of these components.*
+- When we try to just "do stuff" (motivate ourselves), we're looking for "flight" without understanding the elements of flight.
 
 We're need to figure out which of these things applies to me.
 Is the reason I'm not motivated because my goals are internalized from parental expectation? Then no wonder you don't want to do it.

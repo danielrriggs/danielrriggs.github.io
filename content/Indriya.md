@@ -13,24 +13,24 @@ The five sense organs.
 
 If we want to act rightly in life, we need to manage thought, because actions come from thought. Shaping our thoughts in the right way involves 2 things -
 1) How do we manage / manipulate them?
-	- Hold them
-	- Pick them up
-	- Put them down
+- Hold them
+- Pick them up
+- Put them down
 2) The origin of thought - we need to understand where thoughts come from in the first place (which is fundamentally sensory impressions).
 
 Thoughts come from 3 places:
 ###### 1) Indriyas
 The first place thoughts come from are the indriyas (sensory impressions).
 Whatever movie / game / album thing that you're excited about right now originated from your sense organs. People 2,000 years ago weren't excited about this thing, because it didn't exist. Your thoughts had to enter through your sense organs. This suggests that if we're careful about our sense organs, we'll cultivate the right kinds of thoughts.
-	The goal of the field of advertising is to populate your thoughts, using sensory inputs. If we can manipulate the thoughts in your head, we can manipulate your behavior. The thoughts in our head come from our sense organs. We know this scientifically
-		*Lots of studies have been done on alcoholics; getting sober for alcoholics is very difficult. Spending time where their sensory inputs are different is helpful (avoiding bars / friends who drink, spending time in AA meetings / retreats) - what they get exposed to sensorilly is an important aspect in their recovery.*
+- The goal of the field of advertising is to populate your thoughts, using sensory inputs. If we can manipulate the thoughts in your head, we can manipulate your behavior. The thoughts in our head come from our sense organs. We know this scientifically
+	- *Lots of studies have been done on alcoholics; getting sober for alcoholics is very difficult. Spending time where their sensory inputs are different is helpful (avoiding bars / friends who drink, spending time in AA meetings / retreats) - what they get exposed to sensorilly is an important aspect in their recovery.*
 
 Startup incubators can be good sensory environments for wanna be entrepreneurs.
 
 ###### 2) Associations
 The second place thoughts come from are associations (memory, emotion).
 Thoughts don't just come from pure sensory impressions. Our mind also attaches things to sensory impressions.
-	*Example: a child who grows up in a toxic household. Maybe they get told certain things; when someone says something mean, it isn't just a mere sensory impression; it gets laid down in memory and we attach emotions to it. Sensory impressions come with associations. The formation of those associations will generate certain thoughts.*
+- *Example: a child who grows up in a toxic household. Maybe they get told certain things; when someone says something mean, it isn't just a mere sensory impression; it gets laid down in memory and we attach emotions to it. Sensory impressions come with associations. The formation of those associations will generate certain thoughts.*
 Take 2 stimuli for 2 different people; say someone calls you an "idiot." The emotional impact (association) with that sensory input is different for the adult vs the child.
 
 These associations can shape behavior and the course of your entire life. [[Samskara]]s get formed & can create all kinds of problems (self esteem problems, etc). If we want to control our fears & anxieties, we need to understand where they originated from.

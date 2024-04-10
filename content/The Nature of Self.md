@@ -14,9 +14,9 @@ Then, they looked at the [[Ego|identity]] (or, the ego). What do most people thi
 There's a *youness* that threads through all of the dimensions of life, so these dimensions of like can't be the real you.
 Since we aren't taught who we truly are, in the absence of that knowledge, the [[Mind]] fills that knowledge vacuum in with the false self, which is the [[Ego]] (or, the identity). The answer to the question "who are you?" is something that goes on their resume.
 The yogis discovered that the more we identify with our [[Ego]], the more we [[Dukkha|suffer]]. Even though everything on the resume can evoke things like pride, they ultimately end up leading to [[Dukkha|suffering]].
-	*Examples:
-		Even when you get the job you were targeting, you end up promotion chasing to no end.
-		Posting on social media; you get more likes over time & get some joy; look for more likes, but then when you don't get as many likes, it brings suffering.*
+- *Examples:
+	- Even when you get the job you were targeting, you end up promotion chasing to no end.
+	- Posting on social media; you get more likes over time & get some joy; look for more likes, but then when you don't get as many likes, it brings suffering.*
 
 The yogis discovered that the real self is the observing self. It's the capacity to witness everything in our life. This capacity stays constant through our whole life. We can always witness our anger & sadness. At the end of the day, there is an experiencer that experiences all of the fluctuations of life. The more we become centered in that experiencer, the more content we become. Even negative emotions, when experienced through this witnessing attitude, actually lead to peace and joy. Think about what makes a good movie. Tribulation makes the high points better. The true secret to contentedness is grounding ourselves.
 
