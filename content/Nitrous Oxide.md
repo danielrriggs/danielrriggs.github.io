@@ -1,0 +1,1 @@
+Inhalatory gas used in surgery and dentistry for its anesthetic and analgesic effects, commonly known as "laughing gas"

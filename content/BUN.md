@@ -1,0 +1,1 @@
+A blood urea nitrogen (BUN) test measures the amount of urea nitrogen in your blood. Too much urea nitrogen in your blood, your kidneys aren’t filtering it properly.

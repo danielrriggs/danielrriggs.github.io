@@ -1,0 +1,1 @@
+Stimulant present in tea, coffee, cola beverages, analgesic drugs, and agents used to increase alertness. [[Adenosine]] antagonist.

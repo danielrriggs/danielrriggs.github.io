@@ -1,0 +1,1 @@
+Intense fear of a certain object or situation.

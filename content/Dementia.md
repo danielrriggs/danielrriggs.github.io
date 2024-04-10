@@ -1,0 +1,1 @@
+The loss of cognitive functioning—thinking, remembering, and reasoning—and behavioral abilities to such an extent that it interferes with a person's daily life and activities.

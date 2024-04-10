@@ -1,0 +1,1 @@
+A type of anxiety disorder in which you fear and avoid places or situations that might cause you to panic and make you feel trapped, helpless or embarrassed.

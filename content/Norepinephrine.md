@@ -1,0 +1,1 @@
+[[Neurotransmitter]] and [[Hormone]] of the [[Sympathetic Nervous System|SNS]] secreted by the [[Adrenal Glands]]. In stressful situations, it is involved in the body's the fight-or-flight response.

@@ -1,0 +1,1 @@
+A balanced level of stress. "Beneficial stress". Moderate or normal psychological stress interpreted as being beneficial for the experiencer.

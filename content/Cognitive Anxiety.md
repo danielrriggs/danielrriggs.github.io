@@ -1,0 +1,1 @@
+Broadly defined as “negative expectations, worries, and concerns about oneself, the situation at hand, and potential consequences” and “the perception of one's physiological arousal.”

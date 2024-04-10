@@ -1,0 +1,1 @@
+Divine. Believed to be an incarnation of God in the Hindu tradition.

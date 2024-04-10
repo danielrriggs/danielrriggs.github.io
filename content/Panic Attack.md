@@ -1,0 +1,1 @@
+In a panic attack, your thoughts feel very real, but you're also wrapped up in your mind.

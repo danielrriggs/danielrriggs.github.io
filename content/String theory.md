@@ -1,0 +1,4 @@
+---
+aliases:
+  - String theory
+---

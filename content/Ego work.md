@@ -1,0 +1,3 @@
+How do we get a handle on [[Ego|ahamkara]]? How do we know if we're experiencing some other kind of [[Resistance]], or if it's coming from [[Ego|ahamkara]]?
+1) Meditative practice which raise awareness of the ego. See [[Ego meditations]].
+2) If you're avoiding something, ask yourself questions, not about the behavior, but what it means about you as a person. If I try to engage in this behavior & it works, what does it say about me as a person? ... if it doesn't work, what does it say about me as a person? If I don't engage in this behavior, what kind of hope do I keep alive for myself? Ask these kinds of questions about our identity; more importantly, how actions will shape our perception of who we are.

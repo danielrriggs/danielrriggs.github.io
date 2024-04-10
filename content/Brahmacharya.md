@@ -1,0 +1,1 @@
+Sort of gets translated as celibacy. Means "to dwell in the infinite". It's not really celibacy, it's more non-lustfulness. A [[Yama]] in [[Raja Yoga]].
