@@ -1,1 +1,0 @@
-Sensation of irregular beating of the heart.

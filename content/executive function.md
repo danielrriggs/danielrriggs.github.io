@@ -1,1 +1,0 @@
-The ability to plan and following through with tasks.

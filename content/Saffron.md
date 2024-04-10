@@ -1,1 +1,0 @@
-An herb used both as a spice for food and in Eastern medicine for centuries for various ailments including [[Mood]]. People use saffron most commonly for [[Depression]], [[Anxiety]], [[Alzheimer's disease]], menstrual [[Cramps]], and premenstrual syndrome. Please consult with your healthcare provider before taking any herbal supplements.

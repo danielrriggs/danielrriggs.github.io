@@ -1,1 +1,0 @@
-A medication or intervention that reduces anxiety

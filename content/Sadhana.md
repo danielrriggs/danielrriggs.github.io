@@ -1,3 +1,0 @@
-Sādhanā.
-
-Spiritual practices

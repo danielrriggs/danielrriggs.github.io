@@ -1,1 +1,0 @@
-The inability to feel pleasure. People with anhedonia are unable to enjoy activities that are normally "fun."

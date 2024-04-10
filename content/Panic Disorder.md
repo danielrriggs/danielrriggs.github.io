@@ -1,1 +1,0 @@
-A constant excessive worry about future panic attacks or danger that may not be present. It may cause changes in your life and routines out of fear of future panic attacks.

@@ -1,1 +1,0 @@
-A group of mental health conditions that are characterized by inflexible and unhealthy patterns of thinking, feeling, and behaving.

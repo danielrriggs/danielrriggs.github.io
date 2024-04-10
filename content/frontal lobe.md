@@ -1,1 +1,0 @@
-The most anterior (front) part of the brain. It extends from the area behind the forehead back to the precentral gyrus. As a whole, the frontal lobe is responsible for higher cognitive functions such as memory, emotions, impulse control, problem solving, social interaction, and motor function.

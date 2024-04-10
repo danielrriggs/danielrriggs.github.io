@@ -1,1 +1,0 @@
-Increased heart rate over 100 beats per minute.

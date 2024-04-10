@@ -1,4 +1,0 @@
----
-aliases:
-  - lacking meaning
----

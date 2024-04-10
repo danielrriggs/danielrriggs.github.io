@@ -1,1 +1,0 @@
-A part of the brain located at the front of the [[Frontal lobe]]. It is implicated in a variety of complex behaviors, including planning, and greatly contributes to personality development.

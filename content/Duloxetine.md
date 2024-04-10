@@ -1,1 +1,0 @@
-A drug that works by dual serotonin and norepinephrine reuptake inhibition (SNRI) and is typically used to treat major depressive disorder, generalized anxiety disorder, neuropathic pain, fibromyalgia, chronic musculoskeletal pain, and stress incontinence.

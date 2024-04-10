@@ -1,1 +1,0 @@
-The path of contentment, focusing on building happiness through internal exploration.

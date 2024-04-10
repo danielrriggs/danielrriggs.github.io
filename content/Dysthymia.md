@@ -1,1 +1,0 @@
-Persistent depressive disorder that is a more chronic depression.

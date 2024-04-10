@@ -1,1 +1,0 @@
-Hormone and neurotransmitter that is produced by the [[Adrenal Glands|adrenal glands]] as part of the body's fight-or-flight response.

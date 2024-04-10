@@ -1,1 +1,0 @@
-Contains [[Bhudda]]'s literal words.
