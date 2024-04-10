@@ -1,6 +1,4 @@
-Welcome to Daniel's Integrated Thinking Environment. 
-
-These integrated notes began as an exploration of learning the traditional yogic and traditional traditions.
+These integrated notes began as an exploration of learning the traditional yogic and meditative traditions.
 	As such, the information contained tends toward an opinionated yogic perspective.
 
 The notes are intended to be pragmatic rather than thorough or complete.
