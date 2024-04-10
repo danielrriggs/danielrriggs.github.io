@@ -1,29 +1,28 @@
 ---
-aliases:
-  - Samskara
+aliases: []
 ---
 A collection of experiences and undigested emotional energy that gets stored in your mind.
 
-A memory impression. Thought generating machines that live in our [[citta]] which generates thoughts at the right time.
+A memory impression. Thought generating machines that live in our [[Citta]] which generates thoughts at the right time.
 
-In the east, they understand the western term "[[personality]]" as a collection of samskaras.
+In the east, they understand the western term "[[Personality]]" as a collection of samskaras.
 
 A lot of what hold us back and propel us forward are samskaras.
 
-Our [[citta]] has a storehouse of all of our samskaras. The [[buddhi]] is constantly scanning for the appropriate samskara to use in a given environment.
-	*For example, if I have a phobia of dogs because I was bitten by a dog as a child, that samskara isn't going to be active when I'm riding on the subway. But the moment the doors open and a guy with a big dog walks onto the subway, it's activated. The [[buddhi]] calls up negative emotional energy, in this case.*
+Our [[Citta]] has a storehouse of all of our samskaras. The [[Buddhi]] is constantly scanning for the appropriate samskara to use in a given environment.
+	*For example, if I have a phobia of dogs because I was bitten by a dog as a child, that samskara isn't going to be active when I'm riding on the subway. But the moment the doors open and a guy with a big dog walks onto the subway, it's activated. The [[Buddhi]] calls up negative emotional energy, in this case.*
 
-A samskara is like a memory folder in your [[mind]] with lots of files which are your prior experiences that share a common thread. If you have some negative experiences with dogs and some positive experiences with dogs, you can feel both negative and positive emotional energy. Like, wanting to pet it, but also some fear.
+A samskara is like a memory folder in your [[Mind]] with lots of files which are your prior experiences that share a common thread. If you have some negative experiences with dogs and some positive experiences with dogs, you can feel both negative and positive emotional energy. Like, wanting to pet it, but also some fear.
 
-Samskaras retain the emotional age at which we had the experience. We may grow up, but it gets saved in the [[mind]] in the current form.
-In psychiatry, there's an emotional defense mechanism called [[regression (psychology)|regression]]. This is caused by [[samskara]]s activation. Your [[mind]] can get transported back to a previous point in time.
+Samskaras retain the emotional age at which we had the experience. We may grow up, but it gets saved in the [[Mind]] in the current form.
+In psychiatry, there's an emotional defense mechanism called [[Regression (psychology)|regression]]. This is caused by [[Samskara]]s activation. Your [[Mind]] can get transported back to a previous point in time.
 
 Sometimes in therapy, we examine memories to bring them from primitive stages to more mature stages, thereby processing them.
 
-Oftentimes a samskara is at the root of [[resistance|self-sabotage]].
+Oftentimes a samskara is at the root of [[Resistance|self-sabotage]].
 	*Example: Someone who's been abandoned before behaves insecurely in a relationship & then, it becomes a self-fulfilling prophecy & the partner breaks up with them, and the samskara gets strengthened even more*
 
-Samskaras are responsible for what we call [[personality]] (traits) in the West. ("*I'm lazy; I'm undisciplined; I'm unlovable; I won't be able to be as good as this other person*")
+Samskaras are responsible for what we call [[Personality]] (traits) in the West. ("*I'm lazy; I'm undisciplined; I'm unlovable; I won't be able to be as good as this other person*")
 It's also responsible for positive things in our mind; like a cancer survivor oftentimes is left with a powerful positive samskara. "If I've beaten cancer, I can beat this, too".
 
 ###### How to digest negative samskaras
@@ -46,6 +45,6 @@ The key thing is that you have to feel the feelings in the present and then let 
 ###### How to implant positive samskaras
 Just like negative samskaras, positive samskaras come from powerful emotional experiences.
 
-When the [[mind]] is "one-pointed", a samskara can move past the surface layers of the [[mind]] and implant deeply in the unconscious. If we think about a traumatic experience, we are so intensely focused on it that the [[mind]] is" one-pointed." If we can train our minds to be still and send a message into the depths of the unconscious, then a positive samskara will arise.
+When the [[Mind]] is "one-pointed", a samskara can move past the surface layers of the [[Mind]] and implant deeply in the unconscious. If we think about a traumatic experience, we are so intensely focused on it that the [[Mind]] is" one-pointed." If we can train our minds to be still and send a message into the depths of the unconscious, then a positive samskara will arise.
 
-Do [[yoga nidra]] to achieve a deep state of relaxation. Then, when you're very very calm, take a [[sankalpa]] & plant it deep into your unconscious.
+Do [[Yoga Nidra]] to achieve a deep state of relaxation. Then, when you're very very calm, take a [[Sankalpa]] & plant it deep into your unconscious.

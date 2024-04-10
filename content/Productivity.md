@@ -2,7 +2,7 @@
 aliases:
   - productive
 ---
-[[sleep]] is vital.
+[[Sleep]] is vital.
 
 Productivity is the joyous pursuit of execution.
 https://www.youtube.com/watch?v=BBbrLjcrTlw
@@ -62,7 +62,7 @@ Minimalizing your lifestyle
 	Every day, take a look at 1 thing that wasted your time.
 Regexp
 
-[[energy production]] is the one single most important factor in every single thing you do. Ability for your nervous system to function, brain to function, muscles to contract, hormones. The rate of energy production per unit time.
+[[Energy production]] is the one single most important factor in every single thing you do. Ability for your nervous system to function, brain to function, muscles to contract, hormones. The rate of energy production per unit time.
 The earth, sun affect this. Prioritize it.
 
 Oftentimes, if we can take off our brakes, we don't need to worry about applying the gas pedal.

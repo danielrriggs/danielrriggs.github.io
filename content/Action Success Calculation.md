@@ -1,5 +1,5 @@
 
-When we think about "motivation", we think about concepts like [[procrastination]], "follow through", and [[Confidence]].
+When we think about "motivation", we think about concepts like [[Procrastination]], "follow through", and [[Confidence]].
 
 When we understand how the brain chooses to do something, all of these things will become clear. We think about motivation as a static quality, but that isn't how motivation works; motivation is a constantly ongoing calculation.
 
@@ -19,7 +19,7 @@ The [[Reward Circuitry]] doesn't respond to ideas. It responds to experiences. T
 
 ###### Cost
 All behaviors have a cost. Much like how our brain makes all kinds of mistakes in other parts of our "motivational calculations" (like the [[Prediction reward error processing|prediction reward error]]), it also oftentimes makes mistakes in the costs.
-If we overestimate costs, it results in [[procrastination]]. If we underestimate costs, it results in follow-through problems.
+If we overestimate costs, it results in [[Procrastination]]. If we underestimate costs, it results in follow-through problems.
 When the cost is really high, it decreases motivation, and we wait till the last minute.
 	*Studying for the test the night before.*
 If we can find the appropriate cost, it'll reduce our tendency to procrastinate.

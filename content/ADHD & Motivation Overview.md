@@ -1,3 +1,4 @@
+#wip
 People who accomplish more aren't more disciplined or motivated. What's the difference between people who do things vs people who merely try to do things?
 
 What's the relationship between a thought and an action? What determines whether a desire comes to fruition or not? Where do our desires come from?
@@ -10,11 +11,11 @@ Those who can consistently maintain motivation can consistently maintain focus. 
 
 How is ADHD diagnosed & treated?
 
-What is ADHD's impact on [[anxiety]] disorders? On Mood? On [[depression]]?
+What is ADHD's impact on [[Anxiety]] disorders? On Mood? On [[Depression]]?
 
-Having ADHD as a child makes you more prone to [[depression]] as an adult.
+Having ADHD as a child makes you more prone to [[Depression]] as an adult.
 
-The relationship between ADHD and [[addiction]].
+The relationship between ADHD and [[Addiction]].
 
 Having a child with ADHD completely changes parental behavior.
 
@@ -33,7 +34,7 @@ Is it achievable? Does it inspire me to act?
 				- [[Yantra]] (Internal Trataka)
 			- [[How to Concentrate]]
 				- [[Thought Control Meditations]]
-			- [[indriya|Indriya]]s
+			- [[Indriya|Indriya]]s
 				- [[Watch Food Indriyas]]
 				- [[Indriya of Internal Sound]]
 			- [[pratyahara|Pratyahara]]
@@ -41,9 +42,9 @@ Is it achievable? Does it inspire me to act?
 				- [[Sound with Eyes Open and Closed]]
 			- [[Cognitive Drains]]
 		- **Resistance** - When I want to do something, but I also don't want to do it. Who is the 'me' that gets in the way? There are parts of the mind that sabotage the goals we have.
-			- [[resistance]]
-			- [[ego|ahamkara]]
-			- [[procrastination]]
+			- [[Resistance]]
+			- [[Ego|ahamkara]]
+			- [[Procrastination]]
 		- **Science of Thought**
 			- [[Neuroscience of Motivation]]
 			- [[Reward Circuitry]]

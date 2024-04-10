@@ -2,7 +2,7 @@
 aliases:
   - the mind
 ---
-[[Vedic Psychology]] has five [[parts of the mind]].
+[[Vedic Psychology]] has five [[Parts of the mind]].
 
 See these two Meditation paths for more:
 - [[Manas Padha]]

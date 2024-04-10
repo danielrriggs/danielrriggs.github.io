@@ -19,12 +19,12 @@ The yogis also discovered the principle of [[Karma]]. The yogis also applied Kar
 The theory of Karma suggested lots of stuff in science / physics (genetics, electricity, down syndrome, etc). They basically believe that [[Newton’s Third Law]] is a universal principle. All causes yield effects & must have antecedent causes.
 
 The Big Bang sounds like [[Bindu Visarga]].
-[[String theory]] sounds like the [[mantra|system of mantra]].
+[[String theory]] sounds like the [[Mantra|system of mantra]].
 
 You can find the idea of [[Schrödinger's cat]] in yogic thinking. The sea of [[Brahman]] doesn't have any form that can be described. When we observe something, Brahman coalesces into a particular manifestation. The universe exists as a potential. Through observation & action, it collapses into a reality.
 
 Physics is about science, reducing things to mathematical equations / laws, and experiments. You'll have to use your judgment to determine whether the yogic worldview & the tradition of science / physics are talking about the same thing(s).
 
-The yogic perspective is not about convincing people through science, it's about understanding through experience (like experiencing [[samadhi]]). Sometimes when people meditate, they have memories that are not from this life. You have memories of this life, but you were a different person in the past.
+The yogic perspective is not about convincing people through science, it's about understanding through experience (like experiencing [[Samadhi]]). Sometimes when people meditate, they have memories that are not from this life. You have memories of this life, but you were a different person in the past.
 
 A utilitarian / pragmatic stance on this stuff is concerned with whether thinking this way is useful or not useful; not whether it's "real" or "not real".

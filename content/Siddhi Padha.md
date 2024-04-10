@@ -6,6 +6,6 @@ We have intentions, desires, & goals, but things get in the way. We may be undis
 
 We hear from people who meditate a lot that they become more successful & optimize their performance.
 
-There is a relationship between [[intention]], and [[manifestation]].
+There is a relationship between [[Intention]], and [[Manifestation]].
 
-How can we cultivate a particular kind of mindset, environment, & cleansing practice so that our [[mind]] is focused and pure? Then, the things we want in life will become manifest.
+How can we cultivate a particular kind of mindset, environment, & cleansing practice so that our [[Mind]] is focused and pure? Then, the things we want in life will become manifest.

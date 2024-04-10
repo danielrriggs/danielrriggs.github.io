@@ -21,7 +21,7 @@ Prerequisites: Practice # 1 for at least 3 days.
 
 Now that we're grounded ourself in awareness of thoughts, we're going to practice bringing thoughts - the skill of thinking about one thing, then a second thing, third, fourth, fifth thing, etc.
 
-We're going to start to develop a relationship between the [[indriya|Indriya]]s and the thoughts that we have.
+We're going to start to develop a relationship between the [[Indriya|Indriya]]s and the thoughts that we have.
 
 Go to a setting where there are many things your senses can engage with (example - a park bench - a place with lots of sensory input). If you're at home, you can move back from your computer so that you can see the whole room.
 

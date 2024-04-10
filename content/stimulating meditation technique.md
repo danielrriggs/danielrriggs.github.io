@@ -1,1 +1,1 @@
-[[nadi shuddhi]]
+[[Nadi Shuddhi]]

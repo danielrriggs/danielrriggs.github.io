@@ -4,7 +4,7 @@ However, we are definitely observing a shortening in our attention span, which i
 
 #### Technology Habit Tips
 Be very careful about phone use.
-	*When work & recreation are shared on the phone, work can become recreation, & recreation can slip into work. Phones don't just distract us from work, they also allow us to work 24/7. This prevents our brain from ever getting a break, which leads to [[burnout]].*
+	*When work & recreation are shared on the phone, work can become recreation, & recreation can slip into work. Phones don't just distract us from work, they also allow us to work 24/7. This prevents our brain from ever getting a break, which leads to [[Burnout]].*
 		*Think about what you're training & signaling when you respond to work stuff outside of work hours.*
 
 - Create physical separation from your phone. This prevents you from giving into fluctuating attention.

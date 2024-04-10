@@ -6,7 +6,7 @@ A [[tantra|tantric]] symbol of power. The [[tantra|Tantrics]]]] believed that wh
 
 This yantra has lots of different colors and shapes. We're going to use these colors and shapes to train our attention to go where we tell it to.
 
-A lot of what holds us back in life is our mind not obeying when we tell it to do something, like [[studying|study]] a book, our attention wonders all over the place.
+A lot of what holds us back in life is our mind not obeying when we tell it to do something, like [[Studying|study]] a book, our attention wonders all over the place.
 
 You can select whatever Yantra you want based on what kind of spiritual energy you want to cultivate.
 
@@ -15,10 +15,10 @@ We're going to train our attention by staring at the center of the Yantra for aw
 #### Yantra Meditation
 This is phase 2 of [[Trataka]] practice, which is [[Trataka]] on a Yantra.
 
-When we close our eyes, we can notice the screen of our mind, or [[Akash]] (which is in our [[citta]]). It is almost like a monitor in our brain, where we can visualize things, imagine things, or see after images.
+When we close our eyes, we can notice the screen of our mind, or [[Akash]] (which is in our [[Citta]]). It is almost like a monitor in our brain, where we can visualize things, imagine things, or see after images.
 	From a biological perspective, our eyes have pigments called rhodopsins that become exhausted when we stare at something too long. As a result of rhodopsin exhaustion, we see “after images” that include the negative or opposite color of what we were gazing at. Internal trataka leverages these principles to create a visual object for us to focus on in the mind. This practice also teaches us [[Vairagya]].
 
-#### Example Yantra Meditation (TODO - guided meditation?)
+#### Example Yantra Meditation (#WIP - guided meditation?)
 - Stare at the center for awhile & aclimate. For this entire exercise, keep your gazed fixed on the center. Don't look away.
 - While looking at the center, answer, "what color is on the outer edge?"
 	- *Getting the right answer doesn't matter. We're just trying to train our attention. Notice that you have to concentrate to be able to discover which color is at the furthest outer edge. It's this concentration that is the purpose of this exercise.*

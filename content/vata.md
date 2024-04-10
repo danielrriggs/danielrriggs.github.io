@@ -1,1 +1,1 @@
-One of the three [[dosha|doshas]] in [[Ayurveda]], Vata's qualities are dry, cold, and light.
+One of the three [[Dosha|doshas]] in [[Ayurveda]], Vata's qualities are dry, cold, and light.

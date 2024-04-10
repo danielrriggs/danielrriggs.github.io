@@ -1,5 +1,5 @@
 (Muh-nas Puh-dah)
 
-The path of the [[mind]].
+The path of the [[Mind]].
 
-The nature of mind. What are the pieces of mind? How can we understand the [[mind]] & where thoughts come from?
+The nature of mind. What are the pieces of mind? How can we understand the [[Mind]] & where thoughts come from?

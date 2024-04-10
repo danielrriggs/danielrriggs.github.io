@@ -6,8 +6,8 @@ aliases:
 The Vedic system has 5 parts of the mind:
 - [[Manas]]
 - [[Buddhi]]
-- [[ego|Ahamkara]]
-- [[samskara|Samskara]]
+- [[Ego|Ahamkara]]
+- [[Samskara]]
 - [[Citta]]
 
 See [[Vedic Psychology]] for more.

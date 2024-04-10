@@ -10,6 +10,6 @@ H - [[Hypothalamus]]
 P - [[Pituitary]]
 A - [[Adrenal Glands|Adrenal]]
 
-The Hypothalamic Pituitary Adrenal (HPA) axis is the major circuit that regulates stress by the release of [[hormone|hormones]] such as [[cortisol]].
+The Hypothalamic Pituitary Adrenal (HPA) axis is the major circuit that regulates stress by the release of [[Hormone|hormones]] such as [[Cortisol]].
 
-Stress starts in the [[Hypothalamus]]. It secretes a chemical that travels down to the [[Pituitary|pituitary gland]]. The pituitary secretes [[cortisol]], which travels all around the body, and also affects the [[Adrenal Glands|adrenal glands]].
+Stress starts in the [[Hypothalamus]]. It secretes a chemical that travels down to the [[Pituitary|pituitary gland]]. The pituitary secretes [[Cortisol]], which travels all around the body, and also affects the [[Adrenal Glands|adrenal glands]].

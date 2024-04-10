@@ -28,7 +28,7 @@ The ahamkara is the **protector** of the mind. When negative emotions arise, it 
 [[Example - how intelligence leads to avoidance]]
 	In this example, we see that preserving the identity of being a gifted kid comes at the cost of every other aspect of this person's life.
 
-Ahamkara is also where [[resistance]] comes from.
+Ahamkara is also where [[Resistance]] comes from.
 
 [[There is a war between the ahamkara and our buddhi]].
 
@@ -37,7 +37,7 @@ When we have a thought in our mind, we believe it's true. That it is fact.
 Identity attributes aren't facts. Identities are just perceptions we have about ourselves.
 	*This person was a themselves before they were a doctor, and they will be themselves after they are a doctor.*
 
-Our ahamkara tries to preserve our identities; sometimes, at all costs. A lot of the motivational issues & [[resistance]] we encounter when we try to take an action comes from the ahamkara; this resistance manifests in 2 major ways, which are both types of avoidance:
+Our ahamkara tries to preserve our identities; sometimes, at all costs. A lot of the motivational issues & [[Resistance]] we encounter when we try to take an action comes from the ahamkara; this resistance manifests in 2 major ways, which are both types of avoidance:
 	*If you're **avoiding** something in life and you **really** can't figure out why (you've analyzed everything you can, you've talked to people, & still can't figure it out), then there's a decent chance it's an ahamkara.*
 The ahamkara avoids for 2 reasons:
 1) To preserve our sense of identity
@@ -57,4 +57,4 @@ The thing that can disprove our fears is the thing that the ahamkara prevents us
 
 The [[confirmation bias]] of ahamkara can shape our information. People will misinterpret information based on their sense of identity to confirm what they already believe.
 
-See [[ego work]].
+See [[Ego work]].

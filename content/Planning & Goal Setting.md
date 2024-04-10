@@ -3,7 +3,7 @@ We can set all kinds of goals, but unless they come from the right place, we str
 There are probably some goals in your life you're highly motivated to do, but others which you *should* do, but struggle to enact upon.
 
 #### Origin of a goal
-Where do goals come from in our [[mind]]?
+Where do goals come from in our [[Mind]]?
 	*Example: Harvard medical students. Harvard medical students are usually try hard winners who worked hard & did well their whole life. But, if you keep rising in life, eventually you will be average, somewhere. Grades at Harvard medical are stack ranked. 50% of them are going to get below average grades, and these are people who have never been below average in their life & hate not excelling. The goals these people have been setting were appropriate for those phases in their life, but at this point in life, they need to frame shift. Why are you at medical school for? To get an A? Or, to learn to save lives? When called upon in an emergency, you don't get to say, "sorry, I got bad grades, I can't help", or "I got the best grades" - all that matters is real performance, not the grades. But, these people have been conditioned for over a decade to strive for the wrong goal - grades. The students who are devoted to learn medicine to help people are also the ones who perform the best in the real world when they get out of school. The ones who can adopt such a mindset are protected against despair if / when they get below average grades - they interpret sub-par grades as opportunities to learn more. Where your goal comes from matters.*
 
 Think about the goals you have in life - where did they come from? How did you decide on your profession?
@@ -11,7 +11,7 @@ Or, the people in your life - how did they decide on their professions?
 
 The truth is, most of our goals come from the outside in some way. We are conditioned by cultural influence. When we do something like that, we aren't actually motivated. The motivation isn't coming from us. It's coming from things like societal respect. What other people will think about you. What your parents will get to brag about. These are not good sources of intrinsic motivation. When you choose a career based on what will make your parents happy, sure that pressure is real, but it isn't going to internally drive you to succeed.
 
-Our goals come from our [[indriya|Indriya]]s. Monkey see, monkey do.
+Our goals come from our [[Indriya|Indriya]]s. Monkey see, monkey do.
 	*Anecdote: "80% of the Indian kids in my high school wound up being doctors. Is that because Indian kids make better doctors? No, it's entirely cultural.*
 This is how we understand peer pressure - how you dress; the stuff you want to buy, etc.
 
@@ -19,12 +19,12 @@ Most people aren't motivated towards their profession for their own sake. Their 
 
 How can we find motivation to stay up extra, work extra hard, work extra hard for a goal we "should" do? We can do this by reframing our goals to align our actions to internal goals. To do that, we need to understand the origin of goals.
 
-**[[desire|Desires]]** - come from the **[[indriya]]s**, are **transient** in nature, and **don't drive** a lot of **motivation**. 
+**[[Desire|Desires]]** - come from the **[[Indriya]]s**, are **transient** in nature, and **don't drive** a lot of **motivation**. 
 
 I don't have to have an experience to get a desire; I just need a sensory experience / impression. Marketing bombards you with sensory impressions.
-	I want a Yacht, even though I have never stepped foot on one. They seem cool & it seems like people have fun on them. How is this thought possible? I got the idea that a Yacht would be nice through my [[indriya]]s. Even though I "want" a yacht, I don't wake up every day, thinking about it: "I'm going to work extra hard today because it will get me one step closer to the Yacht."
+	I want a Yacht, even though I have never stepped foot on one. They seem cool & it seems like people have fun on them. How is this thought possible? I got the idea that a Yacht would be nice through my [[Indriya]]s. Even though I "want" a yacht, I don't wake up every day, thinking about it: "I'm going to work extra hard today because it will get me one step closer to the Yacht."
 
-The satisfaction [[desire|desires]] lead to is **temporary** in nature.
+The satisfaction [[Desire|desires]] lead to is **temporary** in nature.
 	*When someone else gets a promotion, you want a promotion, then after you get a promotion, you're only satisfied for a little while.*
 
 **[[Shoulds]]** - come from our conditioning. They come from internalizing the expectations of other people, which are outside of us. Society, parents, other people. Our level of motivation towards things we should do is very low.

@@ -39,5 +39,5 @@
 
 [[Vishuddha and Manipura Linking]] - !TODO
 
-[[ego meditations]] - !TODO
+[[Ego meditations]] - !TODO
 

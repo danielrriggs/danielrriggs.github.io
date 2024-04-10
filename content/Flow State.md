@@ -1,3 +1,3 @@
-The mental state of optimal activity. A specific mental state in which the degree of mental activity is minimal (in a very focused, specific way), & the degree of [[consciousness]] is very high.
+The mental state of optimal activity. A specific mental state in which the degree of mental activity is minimal (in a very focused, specific way), & the degree of [[Consciousness]] is very high.
 
 Also known colloquially as "being in the zone", this is the mental state in which a person performing some activity is fully immersed in a feeling of energized focus, full involvement, and enjoyment in the process of the activity. In essence, flow is characterized by the complete absorption in what one does, and a resulting transformation in one's sense of time.

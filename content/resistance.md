@@ -16,14 +16,14 @@ The influence of emotion on behavior is way stronger than logical reasoning. Log
 
 What motivates behavior is emotion. The centers of our brain that govern emotion are tightly connected to the centers that manage learning, behavioral control, & motivation.
 
-Reasoning comes from the [[cerebral cortices]]. The emotional circuitry in our brain is right in the middle, next to where we learn, & next to where we get motivated towards action.
+Reasoning comes from the [[Cerebral cortices]]. The emotional circuitry in our brain is right in the middle, next to where we learn, & next to where we get motivated towards action.
 
 Emotion drives & catalyzes behavioral change.
 
-The [[hippocampus]] is tightly connected to our [[amygdala]].
+The [[Hippocampus]] is tightly connected to our [[Amygdala]].
 
-Emotions are like the override switch for behavior. If the [[amygdala]] activates, it overrides any kind of logic.
-	The [[amygdala]] is responsible for a performer who can easily perform something they've rehearsed a ton, fails to perform "on stage".
+Emotions are like the override switch for behavior. If the [[Amygdala]] activates, it overrides any kind of logic.
+	The [[Amygdala]] is responsible for a performer who can easily perform something they've rehearsed a ton, fails to perform "on stage".
 
 Our experience of lack of motivation is usually emotionally neutral. When you feel a lack of motivation, what you usually do is distract yourself. It isn't like you sit there & think about "going to the gym" & then don't go to the gym. You evoke a certain amount of distraction. Why? Why do we evoke distraction? What are we distracting ourselves from? We evoke distraction to distract ourselves from the emotion to begin with. That's exactly why we don't feel it. If you do sit there for a minute & feel the emotion some amount of fear / frustration / shame will arise if we let it. But, our brain protects us from that with distraction.
 

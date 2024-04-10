@@ -2,4 +2,4 @@
 aliases:
   - Freud
 ---
-Proposed three parts of mind: [[super ego]], [[id]], and [[ego]]
+Proposed three parts of mind: [[Super ego]], [[Id]], and [[Ego]]

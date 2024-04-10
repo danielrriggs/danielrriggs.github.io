@@ -1,4 +1,4 @@
-[[parkinson's disease]]
-[[alzheimer's disease]]
-[[dementia]]
+[[Parkinson's disease]]
+[[Alzheimer's disease]]
+[[Dementia]]
 [[mad cow]]

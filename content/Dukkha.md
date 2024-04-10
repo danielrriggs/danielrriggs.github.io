@@ -16,10 +16,10 @@ People seek pleasure & avoid pain. Even if we're good at this, hedonistic people
 There's civil war. Arjuna (an archer) despairs about fighting in battle (against guy who taught him right & wrong, guy who taught him to be an archer, people he loves, like his cousin, grandfather, etc).
 [[Krishna]] & [[Arjuna]]'s conversation becomes the [[Bhagavad Gita]].
 [[Krishna]] helps him understand that his [[dukkha]] doesn't have to do with the situation, it has to do with his attachment to the situation (his expectations about the situation). To be free from his [[Dukkha|dukkha]], he must let go of his attachment.
-This also might be the first recorded example of [[psychotherapy]].
+This also might be the first recorded example of [[Psychotherapy]].
 
 ###### Story of Buddha
-Everything in Buddha's life was accomplished; everything was going well, but he woke up one day & felt he was unhappy. When you feel unhappy, your [[mind]] says "I'm missing something... when I get the thing I want I'll be happy". You get the thing, you're happy for a little bit, but then the cycle of discontentment repeats itself. Buddha reached the end of the road. Had everything. That's when he started his journey to overcome [[Dukkha|dukkha]] & find [[sukha]].
+Everything in Buddha's life was accomplished; everything was going well, but he woke up one day & felt he was unhappy. When you feel unhappy, your [[Mind]] says "I'm missing something... when I get the thing I want I'll be happy". You get the thing, you're happy for a little bit, but then the cycle of discontentment repeats itself. Buddha reached the end of the road. Had everything. That's when he started his journey to overcome [[Dukkha|dukkha]] & find [[sukha]].
 
 There are two guarantees, or, fundamental "rights" in life: Death, and [[Dukkha|dukkha]].
 
@@ -32,7 +32,7 @@ There's civil war. Arjuna (an archer) despairs about fighting in battle (against
 This also might be the first recorded example of psychotherapy.
 
 ###### Story of Buddha
-Everything in Buddha's life was accomplished; everything was going well, but he woke up one day & felt he was unhappy. When you feel unhappy, your [[mind]] says "I'm missing something... when I get the thing I want I'll be happy". You get the thing, you're happy for a little bit, but then the cycle of discontentment repeats itself. Buddha reached the end of the road. Had everything. That's when he started his journey to overcome [[Dukkha|dukkha]] & find [[sukha]].
+Everything in Buddha's life was accomplished; everything was going well, but he woke up one day & felt he was unhappy. When you feel unhappy, your [[Mind]] says "I'm missing something... when I get the thing I want I'll be happy". You get the thing, you're happy for a little bit, but then the cycle of discontentment repeats itself. Buddha reached the end of the road. Had everything. That's when he started his journey to overcome [[Dukkha|dukkha]] & find [[sukha]].
 
 There are two guarantees, or, fundamental "rights" in life: Death, and [[Dukkha|dukkha]].
 

@@ -5,4 +5,4 @@ Information Systems do 3 things:
 [[Inform]]
 [[Act]]
 
-A [[note]] is an information system.
+A [[Note]] is an information system.

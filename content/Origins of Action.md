@@ -11,4 +11,4 @@ Actions come from 3 places
 		The [[Yogis|Yogi]]s really [[Jnana|understood]] that **the origin of all action is thought**.
 		Our society isn't really structured this way. Our society is focused on outcomes, productivity, metrics (grades, as opposed to [[Jnana|understanding]], for example) instead of the *origins* of action.
 		Today, we see people struggling to *[[Motivation|motivate]]* themselves, or *accomplish more* (focus is on the end result) instead of focusing on the birth of the action.
-		We gain [[vidya|knowledge]], but we don't train the [[mind]] itself - how to do the equivalent of pushups & sit-ups for the [[mind]]. Training the mind starts with the skill of concentration, or, [[dharana]].
+		We gain [[Vidya|knowledge]], but we don't train the [[Mind]] itself - how to do the equivalent of pushups & sit-ups for the [[Mind]]. Training the mind starts with the skill of concentration, or, [[Dharana]].

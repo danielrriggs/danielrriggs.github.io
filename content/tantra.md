@@ -7,7 +7,7 @@ aliases:
 The Tantrics - the group of people in ancient India that discovered [[tantra]].
 Tantra - The Teachings of the Tantrics.
 
-The Tantrics believed the universe is made of cosmic consciousness (or, [[Shiva]]), and cosmic energy (or, [[shakti]]).
+The Tantrics believed the universe is made of cosmic consciousness (or, [[Shiva]]), and cosmic energy (or, [[Shakti]]).
 
 For anything to be manifest in the world, we need an intention (a goal, a direction), and some kind of fuel, or energy, to make it happen.
 

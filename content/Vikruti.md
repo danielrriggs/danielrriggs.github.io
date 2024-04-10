@@ -1,1 +1,1 @@
-A [[dosha|doshic]] balance that has deviated from [[Prakruti]] due to environmental factors.
+A [[Dosha|doshic]] balance that has deviated from [[Prakruti]] due to environmental factors.

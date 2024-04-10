@@ -2,7 +2,7 @@
 aliases:
   - Hedonic Circuitry
 ---
-Found in the [[orbitofrontal cortex]]. The circuit of **liking** things. Enjoyment happens in the [[orbitofrontal cortex]]. The primary [[neurotransmitter|neurotransmitters]] are [[Gamma-Aminobutyric Acid|GABA]] and [[opiod]]s.
+Found in the [[Orbitofrontal cortex]]. The circuit of **liking** things. Enjoyment happens in the [[Orbitofrontal cortex]]. The primary [[Neurotransmitter|neurotransmitters]] are [[Gamma-Aminobutyric Acid|GABA]] and [[Opiod]]s.
 
 Substances of abuse like Alcohol and opioids make people enjoy things more (it isn't reward or fulfilment).
 

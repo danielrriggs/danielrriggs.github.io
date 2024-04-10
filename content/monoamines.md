@@ -1,1 +1,1 @@
-Refer to the the particular [[neurotransmitter|neurotransmitters]]: [[Dopamine]], [[noradrenaline]] and [[serotonin]].
+Refer to the the particular [[Neurotransmitter|neurotransmitters]]: [[Dopamine]], [[Noradrenaline]] and [[Serotonin]].

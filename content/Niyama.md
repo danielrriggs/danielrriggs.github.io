@@ -4,7 +4,7 @@ The Niyamas are focused within.
 
 5 Personal Observances:
 	Purity. Cleanliness. ([[Shuddha]])
-	Contentment ([[santosha]])
-	Discipline. Asceticism. ([[tapas]])
+	Contentment ([[Santosha]])
+	Discipline. Asceticism. ([[Tapas]])
 	Self-Study (of scripture) ([[Swadhyaya]])
-	Surrender to the Divine. Devotion to God. Recognizing that there's something within you that is divine. ([[ishvara pranidhana]])
+	Surrender to the Divine. Devotion to God. Recognizing that there's something within you that is divine. ([[Ishvara pranidhana]])

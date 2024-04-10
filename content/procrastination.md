@@ -18,16 +18,16 @@ Perfectionists will procrastinate. They won't start until they can do it right. 
 
 We need to understand the nature of perfection, and the nature of readiness.
 
-Why does the mind want to be perfect? It comes down to the [[ego]]. When you do something perfectly, no one can criticize you for it; you do it better than everyone else. We don't want to open ourselves up to criticism; we don't want to feel bad about our work. If no one can say anything bad about you, you don't have to hear bad things about yourself, & your [[ego]] is preserved.
+Why does the mind want to be perfect? It comes down to the [[Ego]]. When you do something perfectly, no one can criticize you for it; you do it better than everyone else. We don't want to open ourselves up to criticism; we don't want to feel bad about our work. If no one can say anything bad about you, you don't have to hear bad things about yourself, & your [[Ego]] is preserved.
 
 This person has something to compensate for. They have to make up for something they did in the past. It makes their work challenging.
 
 Another way to think about that is readiness. People don't want to act unless they're ready. This seems like it kind of makes sense, but the problem is, what does readiness even really mean? And, what does readiness help us do? It means I'm confident I'm going to do a good job. Readiness protects us in the same way perfectionism does. I know something will go well, therefore I don't have to deal with the consequences of it going poorly. Readiness paralyzes us. Eternally preparing & never doing.
 
 How do we 'just do it?'
-First, we have to do work on our [[ego]] to okay with not being perfect.
+First, we have to do work on our [[Ego]] to okay with not being perfect.
 
-The solution to idealistic procrastination is in [[ego work]].
+The solution to idealistic procrastination is in [[Ego work]].
 
 ###### 2) Avoidance Procrastination
 Tends to be more emotional in nature. Our brain doesn't want to do something because of the emotions involved.
@@ -50,15 +50,15 @@ The problem with avoidance procrastination is that we aren't even aware of this 
 Sometimes we don't engage in a behavior because our brain can't figure out how to do it.
 
 Researchers did studies to figure out who would actually study for a chemistry test. What kind of thinking correlates with getting an 'A' on a chemistry test? They discovered 3 kinds of thoughts.
-	The first kind of thought was, "I want to get an 'A'". This [[correlation coefficient]] was 0.36 with getting an 'A'. Decent, but not very powerful.
-	The second kind of thought was, "I need to study for the chemistry test". It wasn't the goal they wanted to achieve, but rather, that they "need to do". This thought also had about a 0.36 [[correlation coefficient]] with getting an 'A'.
-	The third kind of thought was what they call an "implementation thought" which had a 0.65 [[correlation coefficient]] with getting an 'A'. An example of an implementation thought: "I'm going to study for chemistry on Wednesday at 3:00"
+	The first kind of thought was, "I want to get an 'A'". This [[Correlation coefficient]] was 0.36 with getting an 'A'. Decent, but not very powerful.
+	The second kind of thought was, "I need to study for the chemistry test". It wasn't the goal they wanted to achieve, but rather, that they "need to do". This thought also had about a 0.36 [[Correlation coefficient]] with getting an 'A'.
+	The third kind of thought was what they call an "implementation thought" which had a 0.65 [[Correlation coefficient]] with getting an 'A'. An example of an implementation thought: "I'm going to study for chemistry on Wednesday at 3:00"
 
 **If you want to engage in a behavior, your mind needs to think, not about goals, but about implementation.**
 
 The larger the goal, the more overwhelming it is; the brain doesn't know how to break it down, & the worse the operational procrastination gets.
 
-The solution to operational procrastination is to break larger goals into lots of implementable steps. We call this technique [[operationalizing a problem]]. The more that we use an *external* process to break a task into individual components, the easier it is to execute.
+The solution to operational procrastination is to break larger goals into lots of implementable steps. We call this technique [[Operationalizing a problem]]. The more that we use an *external* process to break a task into individual components, the easier it is to execute.
 	That has even become a job - project management. A project manager takes a big project & breaks it into small steps; this is how things get made.
 
 Simple technique: Reverse engineer it. "What is the last final step?" Then work your way backwards from that.

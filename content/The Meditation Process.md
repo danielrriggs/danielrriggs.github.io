@@ -1,6 +1,6 @@
 The steps involved in meditation, over time.
 
-[[dharana]] >> [[dhyana]] >> [[samadhi]]
+[[Dharana]] >> [[Dhyana]] >> [[Samadhi]]
 
 ```mermaid
 graph TD;

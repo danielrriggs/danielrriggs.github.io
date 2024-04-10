@@ -8,14 +8,14 @@ There are 2 ways our brain directs our attention. These are methods of of inform
 - Bottom-up
 
 #### Top-Down
-Governed by the [[cerebral cortices|cerebral cortex]]. A higher order "controller" "gives an order", and the rest of the brain "gets in line". Sends signals all throughout the rest of the brain. Sends signals to "do it's bidding". It suppresses the distracting signals (like, "I'm hungry", or "I forgot to do -this- today") when it's focused.
+Governed by the [[Cerebral cortices|cerebral cortex]]. A higher order "controller" "gives an order", and the rest of the brain "gets in line". Sends signals all throughout the rest of the brain. Sends signals to "do it's bidding". It suppresses the distracting signals (like, "I'm hungry", or "I forgot to do -this- today") when it's focused.
 
 #### Bottom-Up
-When you're walking & you see a snake, in this case, our [[visual cortices]] tells our [[cortices]] to cease activity. That visual bottom-up stimulus interrupts your top-down control, because there's a snake.
+When you're walking & you see a snake, in this case, our [[Visual cortices]] tells our [[Cortices]] to cease activity. That visual bottom-up stimulus interrupts your top-down control, because there's a snake.
 
 There's a constant communication between (or sometimes, a war) between your top-down circuit & your bottom-up circuit.
 
-Example of a conflict: your phone dings due to a notification while you're [[studying]]. If the bottom-up processing wins, suddenly you're paying attention to the notification. If your top-down processing wins, you ignore it and focus on what you're supposed to be focusing on.
+Example of a conflict: your phone dings due to a notification while you're [[Studying]]. If the bottom-up processing wins, suddenly you're paying attention to the notification. If your top-down processing wins, you ignore it and focus on what you're supposed to be focusing on.
 
 This is particularly important in the case of [[ADHD]], because they're more vulnerable to bottom-up stimuli.
 
@@ -30,5 +30,5 @@ Our brain is constantly taking in tons of stimulus. The only way your brain can 
 #### Improve Top-Down Control
 - [[Meditation]]
 - Clean your environment - suppressing stimulus costs mental resources
-	- Research has found that if you try to do [[Top-Down vs Bottom-Up Thinking|top-down]] thinking in a visually cluttered environment, the [[visual cortices|visual cortex]] is active, and it takes a portion of your mental energy to suppress all those visual signals.
-	- When you [[studying|study]] in a noisy place, your [[Top-Down vs Bottom-Up Thinking|bottom-up]] circuit is getting bombarded & you can't study optimally.
+	- Research has found that if you try to do [[Top-Down vs Bottom-Up Thinking|top-down]] thinking in a visually cluttered environment, the [[Visual cortices|visual cortex]] is active, and it takes a portion of your mental energy to suppress all those visual signals.
+	- When you [[Studying|study]] in a noisy place, your [[Top-Down vs Bottom-Up Thinking|bottom-up]] circuit is getting bombarded & you can't study optimally.

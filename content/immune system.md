@@ -1,1 +1,1 @@
-Cortisol can activate 50% of our [[white blood cells]].
+Cortisol can activate 50% of our [[White blood cells]].

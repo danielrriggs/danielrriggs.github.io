@@ -2,6 +2,6 @@
 aliases:
   - neurotransmitters
 ---
-A chemical messenger that carries, boosts, and balances signals between [[neurons]] and target cells throughout the body.
+A chemical messenger that carries, boosts, and balances signals between [[Neurons]] and target cells throughout the body.
 
-[[monoamines]]
+[[Monoamines]]

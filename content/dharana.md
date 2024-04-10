@@ -8,8 +8,8 @@ aliases:
 
 A focused method of meditation.
 
-Our capacity to focus. The training of your [[mind]] to focus on one point.
+Our capacity to focus. The training of your [[Mind]] to focus on one point.
 
 Examples: Focusing on the breath, a guided meditation, or a sound based meditation.
 
-When you get good at dharana, you get better at [[studying]].
+When you get good at dharana, you get better at [[Studying]].

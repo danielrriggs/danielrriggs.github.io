@@ -4,7 +4,7 @@ The observation of truthfulness, a [[Yama]] in [[Raja Yoga]].
 
 [[Niyama]]s are an important part of [[Raja Yoga]], spirituality, and personal growth.
 
-We know that people who meditate regularly are a little bit better at life. Their less prone to [[depression]], [[anxiety]], [[addiction]]s, are more able to [[focus]], & have improvements in [[memory]].
+We know that people who meditate regularly are a little bit better at life. Their less prone to [[Depression]], [[Anxiety]], [[Addiction]]s, are more able to [[focus]], & have improvements in [[Memory]].
 
 When we look at spirituality, there are lots of phrases that people say, like "learn how to live in the present," "learn how to detach," "learn how to let go." When we talk about these vague concepts, people always tell you to "**learn to** ..."; they won't tell you "**how to** ... live in the present, etc".
 
@@ -21,11 +21,11 @@ Satya will do 3 things:
 
 If I tell you, "go for as long as you can without telling a lie," think about how that changes your mind. Suddenly, you're paying a lot of attention to what you say. Life stops happening on autopilot, & your awareness comes down to the present. Every time you tell a lie, you're either going to do it intentionally, but most of the time, chances are you don't know you're doing it. You really have to pay attention to everything that comes out of your mouth. At the beginning, it can be quite cognitively intensive & exhausting. The reason it's exhausting is because, in those moments, your brain is rewiring. You're teaching your brain a new skill. That new skill is to be aware in the present moment. To be aware of your thoughts & words.
 
-This practice is helpful in treating people with [[addiction]]s. What they say when they relapse is they didn't even know how it happened. They had been sober for 300 days, then suddenly on the 301st day, "I don't know what happened." A week bender goes by, & they feel like all of their sobriety goes out of the window.
+This practice is helpful in treating people with [[Addiction]]s. What they say when they relapse is they didn't even know how it happened. They had been sober for 300 days, then suddenly on the 301st day, "I don't know what happened." A week bender goes by, & they feel like all of their sobriety goes out of the window.
 
 In the neuroscience of meditation, one of the mechanisms through which meditation improves sobriety is by increasing awareness of the present moment & internal signals. A lot of times these internal signals, like sadness, or unhappiness, or feeling ashamed about yourself, or a particular desire will actually drive people to use a substance to calm those things down. There's good evidence that, as you increase awareness of the present moment, it gives you control of your addictive impulses.
 
-So, the first way Satya helps is by forcing you to pay attention to what's going on in your [[mind]] & to what you say.
+So, the first way Satya helps is by forcing you to pay attention to what's going on in your [[Mind]] & to what you say.
 
 The second way Satya is helpful is that it shapes your actions.
 

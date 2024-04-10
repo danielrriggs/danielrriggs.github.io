@@ -11,7 +11,7 @@ When do they go to bed?
 What do they do before they go to bed?
 How do they eat? How do they train?
 
-[[optimize movement]]
+[[Optimize movement]]
 
 [[Ido Portal]]
 

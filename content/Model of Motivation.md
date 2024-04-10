@@ -20,10 +20,10 @@ We need to optimize all 3.
 	- Resistances comes from 2 major places:
 		- Emotions 
 			- ex: a lonely person has a well reasoned desire for companionship, but emotional blockage prevents them from going out).
-		- [[ego|Ahamkara]]. Our sense of identity can hold us back.
+		- [[Ego|Ahamkara]]. Our sense of identity can hold us back.
 			- If I view myself as lazy, what does that do for my chance of success? It reduces the possibility for success & decreases motivation. Our brain doesn't do things it thinks will fail. We only engage in tasks we think will be successful. In this case, we need to let go of part of our identity.
 3) Action
-	- The [[frontal lobes]] take an abstract goal (like, throw a party) & breaks it down into bitesize pieces. Sometimes the brain doesn't know how to break up a larger goal we set for ourselves. The hardest step is usually getting started.
+	- The [[Frontal lobes]] take an abstract goal (like, throw a party) & breaks it down into bitesize pieces. Sometimes the brain doesn't know how to break up a larger goal we set for ourselves. The hardest step is usually getting started.
 		- Practical techniques on how to set good goals.
 		- How to operationalize tasks.
 		- How to cultivate an environment that cultivates motivation.
@@ -35,5 +35,5 @@ Motivation isn't something you can increase.
 
 We're need to figure out which of these things applies to me.
 Is the reason I'm not motivated because my goals are internalized from parental expectation? Then no wonder you don't want to do it.
-Is the reason you can't act because you're ashamed of yourself? Or that you'll look like an idiot? That comes from your [[ego]]; no wonder you can't act.
+Is the reason you can't act because you're ashamed of yourself? Or that you'll look like an idiot? That comes from your [[Ego]]; no wonder you can't act.
 Or do you not act because your goal is so abstract that your brain doesn't know what to do - "I need to find a purpose." How are you even supposed to get started on that?

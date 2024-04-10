@@ -20,7 +20,7 @@ Karma presents itself to you. You can't foresee it.
 Example - someone has a medical emergency on a plane. There's a doctor on the plane. That's the doctor's dharma. The situation of finding a patient on a plane was a karma (wasn't determined by the doctor).
 
 One exercise to explore your dharma - write one page on what you think is wrong with the world.
-The exercise can't be done in your head. You have to actually do it. In clinical experience, by the end of the page, many people end up writing about things they don't expect. Limiting to one page forces your [[mind]] to navigate towards one direction. You may find a particular [[dharma]] evolving. You can use this exercise as a compass.
+The exercise can't be done in your head. You have to actually do it. In clinical experience, by the end of the page, many people end up writing about things they don't expect. Limiting to one page forces your [[Mind]] to navigate towards one direction. You may find a particular [[dharma]] evolving. You can use this exercise as a compass.
 
 An exercise to explore your karma - think about little things in your life that you know you should do, that you could do, that you would do. Think about tiny things, not big things. You probably aren't ready for where your karma is leading or your big dharmas, yet. You need to do the tiny dharmas of your life to get you moving in the right direction so that your karmas will present to you the larger dharmas when you're ready.
 
