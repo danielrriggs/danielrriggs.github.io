@@ -16,7 +16,7 @@ See [[Studying]] for tips on how to study well.
 
 ## Vidya and Jnana
 
-Understanding what makes people successful can be done through [[Vidya]] & [[jnana]].
+Understanding what makes people successful can be done through [[Vidya]] & [[Jnana]].
 
 When we ask "why is that person successful & I'm not?" The answers we give are things like "I'm not motivated / disciplined", or "I'm lazy". These are umbrella terms. They're unsophisticated ways of us looking from the outside at someone and saying "that's the reason". It's like saying lightening is caused by Zeus. The Zeus of today is discipline, laziness, and motivation.
 
@@ -24,12 +24,12 @@ If we want to understand what makes someone successful, all we have to do is ask
 The [[Linguistic cortex]] is what helps us choose words. When successful people are asked how they change their lives (like an alcoholic who sobers up), they'll say things like, "I woke up one day and I realized; I just knew; I discovered, ... etc." The words which they use are not words of motivation, discipline, or energy. They use words of ***knowledge***.
 In [[Addiction]], it isn't the people who *want* (desire) to be sober more that are able to do it. The first week or two of getting sober, the desires to relapse are way stronger than the person who isn't sober. The answer isn't in desire. The answer is in knowledge.
 
-[[Jnana]] isn't transmissible. It's the difference between being in love & reading a romance novel. The yogis believed that [[jnana]] is closer to the [[Truth]] than [[Vidya]]. No amount of objective knowledge will give you the taste of a strawberry. [[Jnana]] is about understanding. There are no books or podcasts about [[jnana]]. All we can do is make books & podcasts about [[Vidya]]. And this is why people who don't get better, don't get better. Subjective understanding that creates behavioral change which transforms you as a person cannot be put down into any kind of medium.
+[[Jnana]] isn't transmissible. It's the difference between being in love & reading a romance novel. The yogis believed that [[Jnana]] is closer to the [[Truth]] than [[Vidya]]. No amount of objective knowledge will give you the taste of a strawberry. [[Jnana]] is about understanding. There are no books or podcasts about [[Jnana]]. All we can do is make books & podcasts about [[Vidya]]. And this is why people who don't get better, don't get better. Subjective understanding that creates behavioral change which transforms you as a person cannot be put down into any kind of medium.
 
-When you wake up in the morning, there's a part of you that tells you what you should do. This is what [[Sigmund Freud|Freud]] called the [[Super ego]]. Our [[Mind]] conflicts between the the [[Super ego]] & the [[Id]]. If our willpower is strong, [[Super ego]] wins; if willpower is weak, the [[Id]] wins. [[Jnana]] removes this conflict entirely. Once you [[Jnana|understand]] something, your natural impulse is to do that thing. If you burn your hand touching a stove, you don't have to use willpower to touch the stove again. Once we learn our lessons in life, it's easy to move in the right direction. Once you gain [[jnana]], you don't need willpower.
+When you wake up in the morning, there's a part of you that tells you what you should do. This is what [[Sigmund Freud|Freud]] called the [[Super ego]]. Our [[Mind]] conflicts between the the [[Super ego]] & the [[Id]]. If our willpower is strong, [[Super ego]] wins; if willpower is weak, the [[Id]] wins. [[Jnana]] removes this conflict entirely. Once you [[Jnana|understand]] something, your natural impulse is to do that thing. If you burn your hand touching a stove, you don't have to use willpower to touch the stove again. Once we learn our lessons in life, it's easy to move in the right direction. Once you gain [[Jnana]], you don't need willpower.
 
-###### Pay attention, muppet!
-How do we gain [[jnana]]? The first thing that we must understand is that all [[jnana]] is founded in **experience**. We must experience these things to discover them. Once we experience something & make it subjective, it isn't about transmitting it to someone else or convincing someone else. It's all internal.
+###### Pay attention!
+How do we gain [[Jnana]]]? The first thing that we must understand is that all [[Jnana]] is founded in **experience**. We must experience these things to discover them. Once we experience something & make it subjective, it isn't about transmitting it to someone else or convincing someone else. It's all internal.
 
 If you want to eat healthy, **pay attention**. Pay attention to how you feel when you eat particular foods. Pay attention to yourself. What does it feel like to eat the food? What does it feel like afterward? To have that food coma & be completely wiped out for the rest of the day? As you gain understanding of this, you will naturally gravitate away from eating unhealthy food.
 
