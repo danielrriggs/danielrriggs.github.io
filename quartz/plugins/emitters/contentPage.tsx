@@ -15,6 +15,7 @@ import { Content } from "../../components"
 import chalk from "chalk"
 import { write } from "./helpers"
 import DepGraph from "../../depgraph"
+import { SmartConnectionData } from "../../util/smart-connection-data"
 
 // get all the dependencies for the markdown file
 // eg. images, scripts, stylesheets, transclusions
@@ -89,13 +90,15 @@ export const ContentPage: QuartzEmitterPlugin<Partial<FullPageLayout>> = (userOp
       const allFiles = content.map((c) => c[1].data)
 
       let containsIndex = false
+      SmartConnectionData.ensureLoaded();
+      const allSmartConnectionEmbeddings = SmartConnectionData.allData;
       for (const [tree, file] of content) {
         const slug = file.data.slug!
         if (slug === "index") {
           containsIndex = true
         }
 
-        const externalResources = pageResources(pathToRoot(slug), resources)
+        const externalResources = pageResources(pathToRoot(slug), resources);
         const componentData: QuartzComponentProps = {
           ctx,
           fileData: file.data,
@@ -104,6 +107,7 @@ export const ContentPage: QuartzEmitterPlugin<Partial<FullPageLayout>> = (userOp
           children: [],
           tree,
           allFiles,
+          allSmartConnectionEmbeddings
         }
 
         const content = renderPage(cfg, slug, componentData, opts, externalResources)

@@ -58,6 +58,10 @@ export interface Translation {
     contentMeta: {
       readingTime: (variables: { minutes: number }) => string
     }
+    similarity: {
+      title: string,
+      noSimilaritiesFound: string
+    }
   }
   pages: {
     rss: {

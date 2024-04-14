@@ -56,6 +56,10 @@ export default {
     contentMeta: {
       readingTime: ({ minutes }) => `${minutes} min read`,
     },
+    similarity: {
+      title: "Similarity",
+      noSimilaritiesFound: "No similarities found",
+    },
   },
   pages: {
     rss: {
