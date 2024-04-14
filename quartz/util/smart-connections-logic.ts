@@ -1,11 +1,8 @@
 import { Embedding, SmartConnectionData } from "./smart-connection-data";
 
 export class SmartConnectionsLogic {
-    constructor() {
-        SmartConnectionData.ensureLoaded();
-    }
 
-    findConnections(fileKey?: string): {
+    findConnections(allSmartConnectionEmbeddings: Embedding[], fileKey: string): {
         filePath: string;
         similarity: number;
     }[] {
@@ -13,14 +10,14 @@ export class SmartConnectionsLogic {
             console.log(`findConnections(), no fileKey provided`);
             return [];
         }
-        const embedding = SmartConnectionData.allData.find(data => data.key === fileKey);
+        const embedding = allSmartConnectionEmbeddings.find(data => data.key === fileKey);
         const thisFileVec = embedding?.embedding.vec;
         if (!thisFileVec) {
             console.log(`${fileKey} has no vec`);
             return [];
         }
 
-        const allOtherEmbeddings = SmartConnectionData.allData.filter(emb => emb.key !== fileKey);
+        const allOtherEmbeddings = allSmartConnectionEmbeddings.filter(emb => emb.key !== fileKey);
 
         return this.nearest(thisFileVec, allOtherEmbeddings);
     }

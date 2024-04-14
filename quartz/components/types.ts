@@ -4,6 +4,7 @@ import { QuartzPluginData } from "../plugins/vfile"
 import { GlobalConfiguration } from "../cfg"
 import { Node } from "hast"
 import { BuildCtx } from "../util/ctx"
+import { Embedding } from "../util/smart-connection-data"
 
 export type QuartzComponentProps = {
   ctx: BuildCtx
@@ -13,7 +14,8 @@ export type QuartzComponentProps = {
   children: (QuartzComponent | JSX.Element)[]
   tree: Node
   allFiles: QuartzPluginData[]
-  displayClass?: "mobile-only" | "desktop-only"
+  displayClass?: "mobile-only" | "desktop-only",
+  allSmartConnectionEmbeddings: Embedding[]
 } & JSX.IntrinsicAttributes & {
     [key: string]: any
   }

@@ -4,25 +4,35 @@ import { classNames } from "../util/lang";
 import { i18n } from "../i18n";
 import { resolveRelative } from "../util/path";
 import { QuartzComponent, QuartzComponentConstructor, QuartzComponentProps } from "./types";
-// const vecLite = require("../util/vecLite");
+
+interface ResultVM {
+  slug: string;
+  similarity: number;
+}
 
 const SmartConnections: QuartzComponent = ({
     fileData,
     allFiles,
     displayClass,
-    cfg
+    cfg,
+    allSmartConnectionEmbeddings
   }: QuartzComponentProps) => {
     const smartConnLogic = new SmartConnectionsLogic();
-    const results = smartConnLogic.findConnections(fileData.relativePath?.toString());
+    
+    const results = smartConnLogic.findConnections(allSmartConnectionEmbeddings, fileData.relativePath?.toString());
 
-    // optimize?
     const resultVMs = allFiles.filter(allFile => results.some(resultFile => resultFile.filePath === allFile.relativePath)).map(allFile => {
       const thisResult = results.find(result => result.filePath === allFile.relativePath);
       return {
         slug: allFile.slug,
-        similarity: Math.round((thisResult?.similarity + Number.EPSILON) * 100) + "%"
-      }
+        similarity: Math.round((thisResult?.similarity + Number.EPSILON) * 100)
+      } as ResultVM;
     })
+
+    resultVMs.sort(function (a: ResultVM, b: ResultVM) {
+      return b.similarity - a.similarity;
+  });
+  
     return (
       <div class={classNames(displayClass, "backlinks")}>
       <h3>{i18n(cfg.locale).components.similarity.title}</h3>
@@ -30,7 +40,7 @@ const SmartConnections: QuartzComponent = ({
         {resultVMs?.length > 0 ? (
           resultVMs?.map((vm) => (
             <li>
-              {vm.similarity} | <a href={resolveRelative(fileData.slug!, vm.slug!)} class="internal">
+              {vm.similarity}% | <a href={resolveRelative(fileData.slug!, vm.slug!)} class="internal">
               {vm.slug}
               </a>
             </li>
