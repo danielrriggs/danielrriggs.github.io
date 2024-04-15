@@ -1,4 +1,4 @@
-import { Embedding, SmartConnectionData } from "./smart-connection-data";
+import { Embedding } from "./smart-connection-data";
 
 export class SmartConnectionsLogic {
 

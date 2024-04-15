@@ -1,0 +1,1 @@
+ I want her, I miss her. Okay, so what? But it'll hurt to not have her. Okay, so it'll hurt. Accept it. Right? When we chase after those things and we'll do whatever it takes to get other people to like us, that is the degradation of self-respect. And so why is it hard to get self-respect? Because you have to pay the price of other people not liking you.

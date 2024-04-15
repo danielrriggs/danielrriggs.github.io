@@ -24,7 +24,7 @@ export class SmartConnectionData {
 
     static readEmbeddingsFile() {
         const all: Array<Embedding> = []
-        readFileSync(`${process.cwd()}/content/.smart-connections/smart_notes-jina-embeddings-v2-small-en-4096.ajson`, 'utf8').split(",\n").filter(value => Object.keys(value).length !== 0).forEach((batch, i) => {
+        readFileSync(`${process.cwd()}/content/.smart-connections/smart_notes-jina-embeddings-v2-small-en-2048.ajson`, 'utf8').split(",\n").filter(value => Object.keys(value).length !== 0).forEach((batch, i) => {
             const items = JSON.parse(`{${batch}}`);
             Object.entries(items).forEach(([key, value]) => {
                 all.push(value as Embedding);
