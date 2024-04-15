@@ -7,6 +7,7 @@ import { QuartzComponent, QuartzComponentConstructor, QuartzComponentProps } fro
 
 interface ResultVM {
   slug: string;
+  title: string;
   similarity: number;
 }
 
@@ -25,6 +26,7 @@ const SmartConnections: QuartzComponent = ({
       const thisResult = results.find(result => result.filePath === allFile.relativePath);
       return {
         slug: allFile.slug,
+        title: allFile.frontmatter?.title,
         similarity: Math.round((thisResult?.similarity + Number.EPSILON) * 100)
       } as ResultVM;
     })
@@ -41,7 +43,7 @@ const SmartConnections: QuartzComponent = ({
           resultVMs?.map((vm) => (
             <li>
               {vm.similarity}% | <a href={resolveRelative(fileData.slug!, vm.slug!)} class="internal">
-              {vm.slug}
+              {vm.title}
               </a>
             </li>
           ))
