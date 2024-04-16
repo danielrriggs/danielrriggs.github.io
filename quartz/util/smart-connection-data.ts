@@ -18,19 +18,19 @@ export class SmartConnectionData {
 
     static ensureLoaded() {
         if (SmartConnectionData.loaded !== true) {
-            const embeddings = this.readEmbeddingsFile();
+            SmartConnectionData.allData = this.readEmbeddingsFile();
         }
     }
 
     static readEmbeddingsFile() {
-        const all: Array<Embedding> = []
+        const allEmbeddings: Array<Embedding> = []
         readFileSync(`${process.cwd()}/content/.smart-connections/smart_notes-jina-embeddings-v2-small-en-2048.ajson`, 'utf8').split(",\n").filter(value => Object.keys(value).length !== 0).forEach((batch, i) => {
             const items = JSON.parse(`{${batch}}`);
             Object.entries(items).forEach(([key, value]) => {
-                all.push(value as Embedding);
+                allEmbeddings.push(value as Embedding);
             });
         });
 
-        SmartConnectionData.allData = all;
+        return allEmbeddings;
     }
 }
