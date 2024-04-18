@@ -1,1 +1,0 @@
- You look at the Chi and the Prana and all that stuff, the middle finger has a different kind of, it activates particularly energy circuits. It activates something inside me as well. My favorite finger. Yeah. I'm going to dodge that one. Just dodge.

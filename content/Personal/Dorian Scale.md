@@ -1,0 +1,1 @@
+[(1) The Mysterious Scale behind the Music of Halo & Gears of War - YouTube](https://www.youtube.com/watch?v=IIOvep4ZdPU&list=PLzfWWpa5SR8H27IEuTQbntK4-9F2T35Eh&index=6)

@@ -1,0 +1,1 @@
+Recommended Rest Client: Vs Code Extension `humao.rest-client`

@@ -2,6 +2,8 @@
 aliases:
   - productive
 ---
+See [[Methodology for Working Productivity]]
+
 [[Sleep]] is vital.
 
 Productivity is the joyous pursuit of execution.

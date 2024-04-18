@@ -1,0 +1,3 @@
+https://www.mrmoneymustache.com/2011/09/28/get-rich-with-moving-to-a-better-place/
+
+The Ultimate Human-friendly city in my own view is one with a population between 50,000 and 200,000, in a compact and bikeable footprint, separated from neighboring cities by Actual Cows And Fields, as opposed to the suburbs-that-are-named-as-if-they-are-actual-cities that exist by the dozen on the sides of giant metro areas.

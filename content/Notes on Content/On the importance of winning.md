@@ -1,0 +1,3 @@
+Success is hard. All in, round the clock, semen retention, 2+ weeks.
+Starting to get some hope. See possibilities for the future that previously didn't exist. Started just doing something without knowing why exactly. Led me to LLMs a bit.
+Being able to fail day after day, over and over and keep on working is so hard. It's the reason programming is so hard. Takes a lot of patience. Mastery of the mind is necessary. Already had 10 years exp + strong physical competency, academic cred aren't the best but I tried about as well as I could have. Toward top of class at least; I worked like a mad man to do that.

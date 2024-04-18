@@ -1,0 +1,1 @@
+Define [[personal mantra]], [[personal manifesto]], [[work mantra]]

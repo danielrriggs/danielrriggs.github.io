@@ -5,7 +5,10 @@ aliases:
   - mesolimbic circuitry
   - dopamine circuit
   - dopamine circuitry
+  - Incentive Reward
 ---
+Aliases: mesolimbic circuit, dopamine circuit, Incentive Reward.
+
 Our **mesolimbic circuit** (found in the [[Nucleus accumbens]]) is our **reward circuit** and is governed by [[Dopamine]]. Sometimes people call also call it the dopamanergic circuit.
 
 We'll have a behavior, get a **reward**, and then *learn* something from it (reinforce that behavior). This is what we call 'learning'.

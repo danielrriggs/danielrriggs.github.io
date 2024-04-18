@@ -16,7 +16,15 @@ const config: QuartzConfig = {
     },
     locale: "en-US",
     baseUrl: "Meditation",
-    ignorePatterns: ["private", "templates", ".obsidian"],
+    ignorePatterns: [
+    ".obsidian",
+    "Excluded",
+    "Notes on Content",
+    "Personal",
+    "Programming",
+    "textgenerator",
+    ".git",
+  ],
     defaultDateType: "created",
     theme: {
       fontOrigin: "googleFonts",

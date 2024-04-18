@@ -1,4 +1,4 @@
-Different perspectives on motivation -
+Different perspectives on motivation:
 Neuroscience - People do brain scans to figure out what motivates people to do an action.
 Addiction psychiatrists - sit with people struggling to overcome a substance.
 Advertising - people are trying to figure out, what motivates people to spend $?

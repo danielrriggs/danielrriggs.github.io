@@ -1,1 +1,1 @@
-The ability to plan and following through with tasks.
+The ability to plan and follow through with tasks. The ability to break apart & sequence an abstract goal into steps.

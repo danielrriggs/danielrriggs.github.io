@@ -1,0 +1,15 @@
+- Get sun in the morning - walk or laptop work outside
+	- Get sun in the afternoon
+- Lateral Eye movements - 10 reps. Decrease stress. Breathe
+- Learning boughts
+	- Ramp up intensity for 5-10 min.
+	- Work hard 80 - 90 min.
+	- Defocus for 10 - 30 min. It's a rest interval. Look into distance, or do NSDR / Yoga Nidra.
+	- Make lots (more) mistakes. Mistakes = learning.
+- After looking at close stuff (screens, etc), look into the distance for 2 minutes.
+- Physiological Sigh - 2 inhales, followed by long exhale. (Major inbreath, sneak in a little more air, exhale all out).
+- 
+- Supplement Fish Oil & Magnesium
+	- 1-4g fish oul. 2g of EPA / day. Refrigerate it. Keep it out of sun. (so it won't oxidize).
+	- 300mg Magnesium Glyconate
+	- 

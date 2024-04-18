@@ -57,6 +57,12 @@ Is it achievable? Does it inspire me to act?
 			- [[Top-Down vs Bottom-Up Thinking]]
 			- [[Technology Habits]]
 		- Goal Setting & Motivation
-			- [[Planning & Goal Setting]]
+			- [[Planning & Goal Setting - Intent Model]]
 			- [[Learning Mindset vs Performance Mindset]]
 				- [[Meditation - Changing Mindset]]
+				- [[Common Pitfalls in Goal Setting]]
+				- [[25% Rule]]
+				- [[Getting Overwhelmed]]
+				- [[Vedic Psychology]]
+		- [[Intro to Samskaras Relating to Motivation]]
+			- [[This may work for other people, but I’m different]]
