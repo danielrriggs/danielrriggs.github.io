@@ -1,1 +1,0 @@
-Superposition is the ability of a quantum system to be in multiple states at the same time until it is measured.

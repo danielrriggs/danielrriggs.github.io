@@ -1,1 +1,0 @@
-Heroes in the Hindu tradition.

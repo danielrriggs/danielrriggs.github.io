@@ -1,1 +1,0 @@
-A hormone your pancreas makes. It helps move [blood glucose](https://medlineplus.gov/bloodglucose.html) (blood sugar) from your bloodstream into your cells where it's used for energy.

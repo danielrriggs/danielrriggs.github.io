@@ -1,1 +1,0 @@
-A series of wave-like muscle contractions that move food through the digestive tract.

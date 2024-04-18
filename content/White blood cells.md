@@ -1,4 +1,0 @@
----
-aliases:
-  - White blood cells
----

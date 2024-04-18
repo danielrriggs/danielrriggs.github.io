@@ -1,1 +1,0 @@
-Rapid, often exaggerated changes in mood, where strong emotions or feelings (uncontrollable laughing or crying, or heightened irritability or temper) occur.

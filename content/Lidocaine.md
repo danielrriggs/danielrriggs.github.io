@@ -1,1 +1,0 @@
-Local anesthetic used for analgesia in a wide variety of superficial and invasive procedures.

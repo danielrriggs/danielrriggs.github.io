@@ -1,1 +1,0 @@
-A point of infinitely dense energy.

@@ -1,1 +1,0 @@
-A neurotransmitter that plays a major role in the parasympathetic nervous system for muscle contraction.

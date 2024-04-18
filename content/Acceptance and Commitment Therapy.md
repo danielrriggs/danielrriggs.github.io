@@ -1,1 +1,0 @@
-An evidence based psychotherapy practice which basically says that overcoming [[Desire|desires]] involves discovering what your [[values]] are and then starting to live in accordance with them.

@@ -1,1 +1,0 @@
-A system of Yoga that focuses on becoming enlightened by doing good deeds, performing selfless action, and making the world a better place. See [[Karma]].

@@ -1,1 +1,0 @@
-Frequent worry about being apart from family members or other close people.

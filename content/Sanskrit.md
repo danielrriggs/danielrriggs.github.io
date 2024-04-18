@@ -1,1 +1,0 @@
-Ancient South Asian language, commonly found in yogic texts.

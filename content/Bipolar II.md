@@ -1,1 +1,0 @@
-Defined by a pattern of depressive episodes and hypomanic episodes, but not the fullblown manic episodes that are typical of Bipolar I Disorder.

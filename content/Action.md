@@ -1,1 +1,0 @@
-The origin of all action is thought - [[Origins of Action]].

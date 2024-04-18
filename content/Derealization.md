@@ -1,1 +1,0 @@
-A mental state where you feel detached from your surroundings. People and objects around you may seem unreal. Even so, you’re aware that this altered state isn’t normal.

@@ -1,1 +1,0 @@
-Small proteins that are crucial in controlling the growth and activity of other immune system cells and blood cells.

@@ -1,1 +1,0 @@
-Endogenous [[Hormone]] produced by the pineal gland that regulates [[Sleep]]-wake cycles and when provided exogenously has beneficial effects on [[Sleep]]-onset latency; available as an over-the-counter supplement.

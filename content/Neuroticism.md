@@ -1,1 +1,0 @@
-A core personality trait that describes a person’s propensity to worry.

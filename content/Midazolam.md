@@ -1,1 +1,0 @@
-An anticonvulsant and [[Benzodiazepines|benzodiazepine]] drug with rapid onset that is commonly used in seizures, anesthesia and [[Anxiety]] disorders.

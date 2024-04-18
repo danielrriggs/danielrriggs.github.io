@@ -1,1 +1,0 @@
-A toxic substance produced due to an inefficient digestive process, and is the cause of disease in the body according to Ayurveda

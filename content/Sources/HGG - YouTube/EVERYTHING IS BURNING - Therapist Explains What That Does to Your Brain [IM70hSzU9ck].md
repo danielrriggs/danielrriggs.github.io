@@ -1,1 +1,0 @@
- Economic crises, climate change, there's stuff like 9-11, this global pandemic. The problem is that what is that doing to our psychology? What is it like to be a 20-year-old kid existing in the world today?

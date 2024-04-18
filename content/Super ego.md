@@ -1,1 +1,0 @@
-One of [[Sigmund Freud|Freud]]'s parts of mind. Our moralistic self. The "should's"  we tell ourselves.

@@ -1,1 +1,0 @@
-Return of anxiety symptoms after an anxiolytic substance (eg. medication, alcohol, etc) wears off.

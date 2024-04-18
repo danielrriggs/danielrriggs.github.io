@@ -1,1 +1,0 @@
-The observation of non-violence, a [[Yama]] in [[Raja Yoga]].
