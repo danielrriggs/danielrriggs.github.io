@@ -1,1 +1,0 @@
-"To the best of your ability, cook every meal. Prepare for all day. Your steps do not happen randomly, by chance. "But what if -this- happens? You don't get caught off guard. Proper preparation prevents poor performance."

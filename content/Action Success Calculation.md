@@ -1,4 +1,3 @@
-
 When we think about "motivation", we think about concepts like [[Procrastination]], "follow through", and [[Confidence]].
 
 When we understand how the brain chooses to do something, all of these things will become clear. We think about motivation as a static quality, but that isn't how motivation works; motivation is a constantly ongoing calculation.
