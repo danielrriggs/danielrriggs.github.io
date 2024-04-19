@@ -1,0 +1,1 @@
+One way out is to simply say to yourself, "I can no longer live this way" and internalize that it's really not an option to continue. You will then be able to see new opportunities for change, as well as assign the proper cost to making those changes. In other words, you'll start to gain the perspective you need to move forward.

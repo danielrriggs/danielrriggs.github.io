@@ -1,0 +1,1 @@
+Talk about my life Karma & dharma

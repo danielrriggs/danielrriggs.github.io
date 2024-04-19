@@ -1,0 +1,1 @@
+A symbol is the physical embodiment of [[spiritual meaning]] (pg 25).
