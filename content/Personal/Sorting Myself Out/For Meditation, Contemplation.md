@@ -11,7 +11,8 @@ Why do you often not do what you really want to do?
 
 [[Dimartini Values inventory]]
 
-Sleep meditation: you're laying down to your deathbed. Was what you did today worthwhile?
+Sleep meditation:
+- Going to bed at night, you're laying down to your deathbed. Was what you did today worthwhile?
 
 Path of expression.
 

@@ -6,6 +6,7 @@ kanban-plugin: basic
 
 ## Study Backlog Long
 
+- [ ] Look into Obsidian template / hotkey to create new daily note in the correct folder
 - [ ] Moksha<br><br>[Moksha | Mythos/Logos (mythoslogos.org)](https://mythoslogos.org/tag/moksha/)
 - [ ] Kundalini Yoga<br><br>Carl Jung's lectures<br>William Donahue
 - [ ] [Category Theory & Symbolism : TheSymbolicWorld (reddit.com)](https://www.reddit.com/r/TheSymbolicWorld/comments/wh5c0e/category_theory_symbolism/)
@@ -26,8 +27,10 @@ kanban-plugin: basic
 
 ## danielrriggs.github.io ToDos
 
-- [ ] danielrriggs.github.io<br>Draw the content map with mermaid graphs.
+- [ ] Don't allow these chars in Obsidian file names:<br>\# ^ [ ] |
+- [ ] Test mp4 embedding
 - [ ] Create Ecology of Practices<br><br>[(5) Building an Ecology of practices for self transcendence with John Vervaeke: EMP Podcast 25 - YouTube](https://www.youtube.com/watch?v=iiqXOWQJcpM)
+- [ ] danielrriggs.github.io<br>Draw the content map with mermaid graphs.
 
 
 ## Study Backlog Medium
