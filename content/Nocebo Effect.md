@@ -1,0 +1,1 @@
+The opposite of the [[Placebo Effect]]. Even if a treatment has a biological therapeutic effect, the effect of that treatment is going to be diminished if the patient doesn't believe that it will work.

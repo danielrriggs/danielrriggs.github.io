@@ -66,3 +66,8 @@ Is it achievable? Does it inspire me to act?
 				- [[Vedic Psychology]]
 		- [[Intro to Samskaras Relating to Motivation]]
 			- [[This may work for other people, but I’m different]]
+			- [[I'd rather stay in limbo than take a chance]]
+			- [[I'm not ready or I'll do it when I'm ready]]
+			- [[It's a waste of time, so don't bother]]
+			- [[It doesn't matter what I do]]
+		- [[Intro to Ayurveda]]

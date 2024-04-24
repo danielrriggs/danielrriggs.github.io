@@ -9,6 +9,9 @@ In the east, they understand the western term "[[Personality]]" as a collection 
 
 A lot of what hold us back and propel us forward are samskaras.
 
+Samskaras can exist to protect us in some way.
+- *For example, we may have an attribute of our identity which prevents us from looking at other parts of ourselves.*
+
 Our [[Citta]] has a storehouse of all of our samskaras. The [[Buddhi]] is constantly scanning for the appropriate samskara to use in a given environment.
 - *For example, if I have a phobia of dogs because I was bitten by a dog as a child, that samskara isn't going to be active when I'm riding on the subway. But the moment the doors open and a guy with a big dog walks onto the subway, it's activated. The [[Buddhi]] calls up negative emotional energy, in this case.*
 
@@ -28,7 +31,9 @@ It's also responsible for positive things in our mind; like a cancer survivor of
 ###### How to digest negative samskaras
 You have to be able to define & find a samskara to start working with it. This is done by paying attention to your emotional state. There may be times in your life where you respond disproportionately to a situation.
 
-**First**, notice the samskara in the present. Try to understand the features of it.
+Attacking a samskara ("that's not true, that's not true, that's not true") backfires & actually hardens the samskara. Our [[Ego|ahamkara]] is stronger than our [[Buddhi]], so no amount of logic will be able to unpack it. Instead of trying to convince yourself you can still be successful despite the samskara, you need to figure out what the samskara is protecting your from.
+
+**First**, **notice** the samskara in the present. Try to understand the features of it.
 - *Example: I'm feeling afraid, abandoned, ashamed; physically, my stomach is queasy, I feel like throwing up, I don't feel hungry. There can be mental sensations & physical sensations.*
 Remember that this is emotional energy which is carried over from the past, so there will be times in your life where you felt that same way.
 
