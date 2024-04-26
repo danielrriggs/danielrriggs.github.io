@@ -1,0 +1,1 @@
+Part of the brain that governs different kinds of negative emotions.

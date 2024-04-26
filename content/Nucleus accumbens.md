@@ -1,0 +1,1 @@
+Part of our [[Reward Circuitry|dopamine circuitry]]. Motivates behavior and allows us to feel reward.

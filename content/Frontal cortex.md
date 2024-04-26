@@ -1,0 +1,1 @@
+Governs a lot of the regulation of other parts of our brain.

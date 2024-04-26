@@ -71,3 +71,5 @@ Is it achievable? Does it inspire me to act?
 			- [[It's a waste of time, so don't bother]]
 			- [[It doesn't matter what I do]]
 		- [[Intro to Ayurveda]]
+- Clinical Track
+	- 
