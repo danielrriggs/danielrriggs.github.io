@@ -15,7 +15,7 @@ const config: QuartzConfig = {
       provider: "google", tagId: "G-R8T8R12CDY",
     },
     locale: "en-US",
-    baseUrl: "",
+    baseUrl: "danielrriggs.github.io",
     ignorePatterns: [
     ".obsidian",
     "Excluded",
