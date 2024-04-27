@@ -15,7 +15,7 @@ const config: QuartzConfig = {
       provider: "google", tagId: "G-R8T8R12CDY",
     },
     locale: "en-US",
-    baseUrl: "Meditation",
+    baseUrl: "",
     ignorePatterns: [
     ".obsidian",
     "Excluded",
