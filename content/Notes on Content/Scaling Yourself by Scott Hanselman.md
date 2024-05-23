@@ -1,3 +1,4 @@
+#Quarterly
 https://www.youtube.com/watch?v=V4NJo2Mfvrc
 	- Saying No - throughput scales infinitely
 	- Battlefield Triage

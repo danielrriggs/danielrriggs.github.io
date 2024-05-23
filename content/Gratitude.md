@@ -1,1 +1,1 @@
-Gratitude is a practice (I think).
+Gratitude is a practice.

@@ -1,50 +1,40 @@
-Related: [[personal mantra]], [[personal manifesto]], [[work mantra]], [[personal standards]], [[personal performance]], [[Productivity]]
+- Achieve optimal sex appeal
+- Become a great Yogi
+- Move out
+	- To where?
+	- Get a job
+- Find high quality relationship
+	- Open up; do new things; engage more (sobriety motivation).
+- Semen Retention
 
+7 Areas of Life:
+Business, physical, personal, Spiritual, spouse/partner, family, and community
 
-- Goal management
-	- # How to set goals in Obsidian for 2022
-	- https://www.youtube.com/watch?v=T2Aeaq4sk7M
-		- OKRS
-			- How to trace to core values?
-- JBP's self authoring program
+---
+#### Self-Reflection Exercise
+Dissect out the intent of your goal in the Desire / Value / Should / Duty chart below to determine where your motivations for this goal lie.
 
-Every OKR or task or goal should be linked to a core principle
+```mermaid
 
-Need Kanban Boards. Nested?
-Templates (& hotkeys?)
-Calendar plugin for weekly view??
+quadrantChart
+    title 4 Dimensional Intent Model
+    x-axis Worldly --> Internal
+    y-axis Costs --> Gains
+    quadrant-1 Values 'Care About'
+    quadrant-2 Desires 'Wants'
+    quadrant-3 Shoulds
+    quadrant-4 Duty 'Dharma'
+```
 
-Have a goal & then different time scopes over it.
+**How can you reframe your motivations so that it aligns with the right column?**
+*Example: For a goal of getting a job, we can shift the motivation of "wanting prestige among peers" or "should get a job be cause your parents expect it of you" to focusing on values of self-independence.*
 
-Different operating models:
-- Turn the goal on - set it as active.
-	- We need to turn some on & off
-	- This seems more natural. It seems to account for more state (a la the principle of deferred decisions) & acknolwdge the integral feedback nature of actions.
-
-What's the output of the end of week checklist?
-
-
-Do 1 thing a day - Tech Lead according to Tim Ferris
-Source:
-https://www.youtube.com/watch?v=AVkn72fv9tY
-
-
-
-It's like a target. You can measure your progress against it across time & get a sense of how it's going.
-
-
-I need to improve my mobility.
-
-
-How can I get excited about this??
-	- Spend time painting the vision
-[[Dan Demartini]] - if you aren't, it probably isn't a core value.
-[[Greg Reid]] - https://www.instagram.com/p/ClUdwT8oTAh/?hl=en
-
-
-- Classical edu
-	- Corresponding habit:
-- Bodybuilding knowledge - execution.
-	- Goals?
-		- Measure?
-- AWS
+---
+Related:
+[[Dimartini Values inventory]]
+[[personal core values]]
+[[personal vision]]
+[[Organizational System Goals]]
+[[Lessons I Need to Learn]]
+[[Planning & Goal Setting - Intent Model]]
+[[Common Pitfalls in Goal Setting]]

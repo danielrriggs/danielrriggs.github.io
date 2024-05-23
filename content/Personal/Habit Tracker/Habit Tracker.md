@@ -1,3 +1,51 @@
+```tracker
+searchType: frontmatter
+searchTarget: meditation
+folder: Personal/Daily
+datasetName: Meditation
+month:
+	color: steelBlue
+```
+```tracker
+searchType: frontmatter
+searchTarget: meditation
+folder: Personal/Daily
+summary:
+    template: "Longest Streak: {{maxStreak()}} day(s)\nLongest Breaks: {{maxBreaks()}} day(s)\nLast streak: {{currentStreak()}} day(s)"
+```
+
+```tracker
+searchType: frontmatter
+searchTarget: no pmo
+folder: Personal/Daily
+datasetName: No PMO
+month:
+	color: steelBlue
+```
+```tracker
+searchType: frontmatter
+searchTarget: no pmo
+folder: Personal/Daily
+summary:
+    template: "Longest Streak: {{maxStreak()}} day(s)\nLongest Breaks: {{maxBreaks()}} day(s)\nLast streak: {{currentStreak()}} day(s)"
+```
+```tracker
+searchType: frontmatter
+searchTarget: no THC
+folder: Personal/Daily
+datasetName: No THC
+month:
+	color: steelBlue
+```
+```tracker
+searchType: frontmatter
+searchTarget: no THC
+folder: Personal/Daily
+summary:
+    template: "Longest Streak: {{maxStreak()}} day(s)\nLongest Breaks: {{maxBreaks()}} day(s)\nLast streak: {{currentStreak()}} day(s)"
+```
+
+
 1) Re-create what I have on paper, here
 Figure out how to create a table.
 
@@ -21,7 +69,7 @@ Prioritization )principles) behind this:
 
 
 1) Sleep on time
-	1) Do [[personal End of Day Retro List]]
+	1) Do [[personal Daily Reflection]]
 		1) Prepare clothes for tomorrow
 2) Wake up
 3) Put clothes on - already laid out

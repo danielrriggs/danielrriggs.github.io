@@ -19,7 +19,6 @@ kanban-plugin: basic
 - [ ] [[Synology]] DS File - how to create file request from mobile app
 - [ ] [[Synology]] photo management
 - [ ] [[Synology]] file security & privacy
-- [ ] [[personal inventory thought process]]
 - [ ] Look into [[Plex]]
 - [ ] [[Personal/Obsidian]] - Reveal file in navigation hotkey
 - [ ] Use Pixel 4a as Webam
@@ -35,22 +34,35 @@ kanban-plugin: basic
 
 ## Backlog (medium)
 
+- [ ] Build out For Meditations Page
+- [ ] Update Billing Address (Fidelity, Amazon, ... ??)
+- [ ] Check Credit Card Statement for leaching
+- [ ] Cancel G4A
+- [ ] Cancel LA Fitness
 - [ ] Cancel Amazon Prime?
 - [ ] Cancel CoPilot (replace with local))
+- [ ] Message Jason Perry
+- [ ] Message Cameron?
+- [ ] Message Max Schmidt?
+- [ ] Research CRM tool (in Obsidian)?
 
 
 ## Backlog (short)
 
-- [ ] Update Billing Address (Fidelity, Amazon, ... ??)
-- [ ] Cancel LA Fitness
-- [ ] Cancel G4A
-- [ ] Fix Goliath rattling
-- [ ] Check Credit Card Statement for leaching
+- [ ] Clean Mom's Desk. Fix video clutter.
+- [ ] Habit Tracker - create weekly reports. Tie in to weekly review.
 
 
 ## Backlog (very short)
 
-- [ ] 2023 Taxes
+- [ ] Clean Email
+- [ ] Cash checks
+- [ ] Put dad's mobo in PC case
+- [ ] Throw Boxes in dining room away
+- [ ] Spice Prep
+- [ ] Prep Intra Workout
+- [ ] Laundry
+- [ ] [[Pick Mom's flowers]]
 
 
 ## Doing

@@ -51,11 +51,7 @@ Is it achievable? Does it inspire me to act?
 			- [[Hedonic Circuit]]
 			- [[Dopamine Reset and Detox]]
 			- [[Action Success Calculation]]
-		- Organization
-			- [[Environment Organization]]
-			- [[Permissive Influences of Motivation]]
-			- [[Top-Down vs Bottom-Up Thinking]]
-			- [[Technology Habits]]
+		- [[Organization]]
 		- Goal Setting & Motivation
 			- [[Planning & Goal Setting - Intent Model]]
 			- [[Learning Mindset vs Performance Mindset]]
@@ -72,4 +68,10 @@ Is it achievable? Does it inspire me to act?
 			- [[It doesn't matter what I do]]
 		- [[Intro to Ayurveda]]
 - Clinical Track
-	- 
+	- [[Executive Function]]
+	- [[ADHD and Depression]]
+	- [[ADHD and Social Function]]
+	- [[ADHD and Addictions]]
+	- [[ADHD and Anxiety]]
+	- [[Treatment for Children with ADHD]]
+	- [[Treatment for Adults with ADHD]]

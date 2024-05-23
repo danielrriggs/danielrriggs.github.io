@@ -1,0 +1,11 @@
+---
+tags:
+  - weeklyreviews
+---
+## What is worth remembering about this week?
+## What did I accomplish this week?
+## What could I have done better this week?
+## What am I grateful for this week, and what am I thinking of?
+## What did I set to achieve this week?
+## What do I want to achieve next week?
+## What's the theme for this week?

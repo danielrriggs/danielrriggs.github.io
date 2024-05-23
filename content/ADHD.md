@@ -52,7 +52,7 @@ There are two categories, attention and impulsivity. For each of these categorie
 - Difficulty Listening - their mind is so [[Hyperfocus]]ed on one thing, their brain drowns out other kinds of stimuli.
 - Easily Sidetracked
 - Disorganization
-- Misplace Belongings
+- Misplaced Belongings
 - Forgetfulness - they don't have memory problems; the information never sinks in.
 	- Someone might say "I forget where I put my keys a lot" - people with ADHD aren't attending to where they put their keys; they don't have recall problems; the information never gets put in their brain because they were paying attention to something else.
 - Easily Distractible - different from sidetracked in that, distractibility is related to the core attentional component
@@ -85,7 +85,7 @@ People with ADHD's [[Amygdala]] and [[Insula]] tend to be smaller in volume. Oft
 People with ADHD's [[Amygdala]] & [[Insula]] have a stronger effect on the [[Nucleus accumbens]] (where we get a sense of reward) than the average brain. This means the behaviors they engage in are more sensitive to **emotions**. This is where some of the **impulsivity** comes from.
 - What makes a behavior impulsive? You don't think about it ahead of time; you suddenly engage in it. That sudden engagement can oftentimes be due to an emotion. A neurotypical person's emotions don't immediately translate into behavior. A person with ADHD's emotions are more likely to suddenly create a behavior.
 
-[[Central Nervous System|CNS]] depressants like alcohol slow down thinking & caffeine speeds up thinking. If ADHD is rapid thinking, why does a stimulant medication slow down thoughts? Stimulant medications stimulate the [[Frontal cortex]] which strengthens our ability to control the rest of our brain. The [[Prefrontal Cortex|PFC]] are the brakes of our brain. Stimulant medications strengthen their signal.
+[[Central Nervous System|CNS]] depressants like alcohol slow down thinking & caffeine speeds up thinking. If ADHD is rapid thinking, why does a stimulant medication slow down thoughts? Stimulant medications stimulate the [[Frontal cortex]] which strengthens our ability to control the rest of our brain (such as our emotions). The [[Prefrontal Cortex|PFC]] are the brakes of our brain. Stimulant medications strengthen their signal.
 
 [[Orbitofrontal cortex]] - regulates emotions.
 
@@ -97,8 +97,16 @@ If we look at what people with ADHD struggle with, they map to different areas o
 - Disorganization - [[Frontal lobes|Frontal lobe]] problem.
 - Regulating emotions - could be a weakness of the [[Anterior cingulate cortex|ACC]], or the [[Amygdala]] & [[Insula]] being smaller.
 This is where we can get more nuanced with behavior of ADHD. Impulsivity doesn't map to one area of the brain, but we can understand impulsivity in the brain by looking at the influence of other kinds of connections.
+- Impulsivity has to do with our [[Nucleus accumbens]] being sensitive.
+	- Emotion can shape the behavior of someone with ADHD more powerfully; this is due to the connection between the [[Amygdala]] & [[Nucleus accumbens]].
 
-!todo - leaving off here (end of Neuroscience of ADHD).
+###### Intervention
+- As we age, our [[Frontal lobes]] grow & strengthen. 10 to 25 percent of people grow out of their ADHD (ex: by 30 they can organize & inhibit their emotions regularly).
+- Medication
+- [[Meditation]]
+	- Focus Meditations
+	- Impulse Control Meditations
+	- Emotional Tolerance Meditations
 
 ---
 Huberman - https://www.youtube.com/watch?v=hFL6qRIJZ_Y

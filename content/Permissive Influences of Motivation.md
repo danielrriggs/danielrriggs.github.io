@@ -1,4 +1,4 @@
-A lot of our motivation heavily influenced by our environment. The concept of [[Permissive]] influences also applies to motivation. It's one of the most underappreciated aspects of motivation. There are certain circumstances in which our motivation can shine forth, and others in which it's restricted. 
+A lot of our motivation heavily influenced by our environment. The concept of [[Permissive]] influences also applies to motivation. It's one of the most underappreciated aspects of motivation. There are certain circumstances in which our motivation can shine forth, and others in which it's restricted.
 
 Think of permissivity as something that makes it easier to do something else.
 
@@ -53,7 +53,7 @@ Environment can anchor behavior & is very influential in facilitating the right 
 
 
 Permissive influences facilitate negative cognitive things as well, like [[Procrastination]]. Like there are some people who inspire us to create, work, and act, there are some people & influences who will work to sabotage our efforts.
-	*Example: if you hang out with a group of friends who like to get high, you're going to get high, and if you get high, that will negatively impact your [[productivity]]*
+- *Example: if you hang out with a group of friends who like to get high, you're going to get high, and if you get high, that will negatively impact your [[productivity]]*.
 
 
 #### Action Plan for Permissive Influences
