@@ -1,0 +1,1 @@
+To goal of a game isn't to win, it's to be excellent and to get invited to play.

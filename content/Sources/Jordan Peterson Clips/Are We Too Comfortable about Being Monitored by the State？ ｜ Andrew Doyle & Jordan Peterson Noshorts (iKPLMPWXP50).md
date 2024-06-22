@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=iKPLMPWXP50
+
+ You can't walk anywhere in the UK without being potentially monitored. It's interesting to me because I remember back in the early 2000s when the government was trying to push through its ID card scheme and broadly speaking the left were unanimously against it. And they didn't like this idea of living in a society where there's someone on the corner saying papers please. No one really wanted that. But we've become very docile and very accepting of the idea that we need to be coddled and monitored by the state. I mean, I know there's a recent debate about vaccine passports and people seem very blasé about this idea that we might have to have our ID embedded and encoded onto a card to get anywhere or to do anything.

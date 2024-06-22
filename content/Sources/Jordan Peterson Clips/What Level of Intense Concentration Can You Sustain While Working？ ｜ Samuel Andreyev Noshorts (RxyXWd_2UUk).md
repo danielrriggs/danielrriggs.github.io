@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=RxyXWd_2UUk
+
+ Doing creative work like writing is that I could work for more than three hours a day But I couldn't do it for days or weeks on end. I'd start to tire myself out And so I eventually realized that past three hours a day. I was robbing Peter to pay Paul I could put in five productive hours, but then I'd be less productive for the next three days So everyone who wants to concentrate on a creative endeavor has to figure out what level of intense concentration They can sustain across time and then not exceed that

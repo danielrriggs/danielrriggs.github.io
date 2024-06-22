@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=GWiOCOcoG3g
+
+ Put it this way, who enjoys food more? A billionaire at a banquet Right or a monk eating a piece of bread that hasn't eaten in three days Who do you think has more pleasure? It's kind of weird, huh? It's not a not just a kind of masochism, right? It is looking for fullness, but knowing that fullness comes through sacrifice It's hard to explain it, but when I talk about Christ and I tell people like Christ is revealing The way reality works. It's not just a story you have to believe in to be saved It's actually showing us the way that the world is made Christ who gives himself completely, who's willing to die, who's willing to let go, to let go of everything The surprise behind that is that that's what makes you exist

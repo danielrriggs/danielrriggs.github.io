@@ -1,0 +1,2 @@
+(Blaise Pascal)
+The mode of being which stays in the known, the certain, the rational. “The capacity to break things down, analyze, calculate with precision, and apply principles such as those which characterize mathematics, the physical sciences, IQ.  

@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=lIP9UrHqPAY
+
+ Hitman Heart is one of the best documentaries I've ever seen. And it portrays pro wrestling as a stark religious battle between the forces of good and evil. And Bret Hart, who at one point was the most famous Canadian in the world, was overwhelmed by the archetypal force of his representation as the good guy. You know, pro wrestling is, it's not the world's most intellectual activity, to say the least, and people can easily be dismissive of it. But one of the things I loved about the documentary was that it attempted to understand from within what was compelling about what was being portrayed. And it was a religious drama. It just, it was shocking and brilliant.

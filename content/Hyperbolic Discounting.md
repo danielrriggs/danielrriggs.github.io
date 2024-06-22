@@ -1,0 +1,1 @@
+The tendency to find present stimuli much more salient than future stimuli.

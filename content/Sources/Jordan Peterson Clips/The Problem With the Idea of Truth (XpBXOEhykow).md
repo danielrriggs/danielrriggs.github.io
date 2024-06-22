@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=XpBXOEhykow
+
+ The problem with the idea of truth is, what the hell do you know? Fundamentally, you're ignorant of almost everything. And so how do you manage? And the answer is, sometimes what you know is good enough. And that's the end of inquiry. Yes. And so, are you right? And this is something the pragmatists, especially William James and his crew, C.S. Peirce, this is the only true school of American philosophy. What you know is true, if when you implement it, the object of your desire appears. And I think the pragmatists, I think they're right.

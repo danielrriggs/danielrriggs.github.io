@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=r25Pwri5Azg
+
+ If one person does wrong in North Korea, it doesn't mean just you are the one get punished. Three to eight generations get punished. So when there was one high ranking official escaped, they killed more than 30,000 people because of the one person's defection. And that's the cause that I had to bear me speaking out afterwards of my three generation family back in North Korea that punished. That's where the idea of group guilt takes societies.

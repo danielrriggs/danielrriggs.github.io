@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=ne8Zz_AsQXE
+
+ The job of a parent is to mirror the environment the child will mature into so that when they get there, they have the software that is an appropriate match for it. And a lot of mental health issues come down to a mismatch between the software that your developmental environment produced and the environment you actually live in. And that can happen. That's why you shouldn't be nicer to your children than the world is. In fact, you're doing them a disservice. That's the devouring mother from the psychoanalytic perspective.

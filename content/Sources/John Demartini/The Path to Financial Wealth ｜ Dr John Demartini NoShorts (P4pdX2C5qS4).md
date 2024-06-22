@@ -1,0 +1,1 @@
+ You will automatically have genuine wealth and fortune in the area that's highest on your values. That's where we store our inherent, you might say, hidden wisdom of wealth. But if we want financial wealth, we have to value financial wealth.

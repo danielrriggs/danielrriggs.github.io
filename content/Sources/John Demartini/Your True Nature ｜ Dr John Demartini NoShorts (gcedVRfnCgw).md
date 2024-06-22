@@ -1,0 +1,1 @@
+ I believe our real nature is the essence of our being is love. But not love in the romantic love, not love in the infatuation love, but love in the sense of the synthesis and synchronicity of opposites, the balance of opposites. So if we actually embrace our positive and negative synchronously, we feel gratitude and love.

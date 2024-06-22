@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=SnSHiHm-gII
+
+ agreeable children get better grades than their IQ would predict. And girls are more agreeable than boys. And so what that means is if you're less agreeable and more likely to be troubled then because that is associated with being less agreeable, then you're graded more harshly than your pure cognitive ability would predict. And that probably accounts for the gender difference, or at least for part of it.

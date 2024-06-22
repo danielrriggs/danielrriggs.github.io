@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=hZo9n6gYU-g
+
+ So you were in solitary, you said, for 29 months. Yes. How in the world did you get through that? And what did it do to you? And was there any utility in it? Or was it just torture? Well, emotionally and mentally, it's torturous. You know, when you look back on being in solitary 29 days, I can't differentiate one day from another. I can't differentiate one hour from another. If I think back, and you, I don't know, it was one long day. For me, at the time, I dove into my Bible. This is when my faith-based transformation took place in solitary. Drove into my Bible. I had my wife send me in several books on all faiths, and I started to study all different faiths. And it sustained me.

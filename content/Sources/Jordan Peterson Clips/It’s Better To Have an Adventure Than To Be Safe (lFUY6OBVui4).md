@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=lFUY6OBVui4
+
+ Well, part of the reason that God gave us free will, let's say, is because it's better for us to come to virtue on our own accord. And it's better to have an adventure than to be saved. And maybe it is better. I mean, what do you want for your kids? Do you want them to get out there and enter into forthright combat with the world and to overcome obstacles and succeed? Or do you want to wrap them in styrofoam and bubble wrap and store them in the basement? You know, well, nothing will hurt them down there. Well, yeah, except you. You want to prepare your children if you love them for the adventure of their life. You don't want to protect them.

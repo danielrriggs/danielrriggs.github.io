@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=7WfOtbVBkPA
+
+ We just take it for granted that, oh, we have a weekend now. We only typically work five days a week. And even there, when people go into the office now, they don't really work eight hours. They're on Twitter. They're getting coffee. You know what I'm saying? So even now, a work day is not nearly as hard as it was 50 years ago. So, yes, you might feel like, oh, this job, you know, my boss doesn't appreciate me. But you have way more free time now because productivity is higher. Your wage rate now is way higher than it would have been in the year 1850. That's because of private property rights, Mises would argue, and the incentives that entrepreneurs face in a market economy.

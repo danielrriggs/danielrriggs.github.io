@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=AvF_dPD9qHc
+
+ You don't want no responsibility. It's wrong. People find the meaning in their life by adopting responsibility. And so, provision of money... You know, they say, man does not live by bread alone. And there's wisdom in that. It's like, you don't want no responsibility. You might dream about that if you're crushed by your job. But then you have the wrong job, or you have the wrong attitude, or you have the wrong job and the wrong attitude. I don't know what it is. You want lots of responsibility. And society needs to foster that. And we need to help people find their purpose and their place.

@@ -1,0 +1,8 @@
+- 10,000 BCE - agriculture
+- For the first time people start to stay in one place for significant periods of time
+- Goes through a very long period of development - becomes the ancient world
+- Stone gives way to metal - bronze age
+- First great civilizations in Egypt Mesopotamia
+- Human beings still have rituals, complex systems, engage in altered states of consciousness
+- Epic of Gilgamesh, Egyptian mythology, Sumerian important, long lasting.
+- Next: [[The Axial Age]]

@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=14ko4kU6B0Q
+
+ Men understand that there's a relationship between how successful they are and how attractive they are to women. And part of what motivates them is the game of that competition. You might say, well, women go after wealth, but I think that's nonsense. And I think that's also belied by the relevant evolutionary biology theory, because what it shows, and tell me if I've got this wrong, is that women use wealth as a marker for attractiveness because they use wealth as a marker for competence. And what they're after is the ability to generate wealth and to share it and to be generous with it. It has to be both, productivity and generosity. And a decent marker for the capacity to generate wealth is wealth.

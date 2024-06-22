@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=UUcO4jyiIzs
+
+ Incremental improvement scales exponentially. So even if you have to start somewhere really trivially Man, once you start you can really scale up quickly And so, you know and with an exponential increase which I think the trajectory of improvement is characterized by a power law function You get 1% better a week. That's not that high a goal, right? Maybe you can get rid of 1% of your stupidity and malevolence a week or maybe every two weeks Because that compounds in three years you are a completely different person

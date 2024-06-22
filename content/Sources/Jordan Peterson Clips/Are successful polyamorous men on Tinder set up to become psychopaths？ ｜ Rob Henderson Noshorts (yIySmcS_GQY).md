@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=yIySmcS_GQY
+
+ I don't want to call every male who's successful on tinder a psychopath. I'm not saying that but I would say that it isn't obvious to me at all that if you're a successful polyamorous male on tinder and so that's going to be a very tiny subset of men that are hyper selected by women who receive almost no rejection. They're set up to learn to be psychopathic because all their interactions with other people can be devoted to short term sexual gratification with no emotional intimacy or long term commitment.

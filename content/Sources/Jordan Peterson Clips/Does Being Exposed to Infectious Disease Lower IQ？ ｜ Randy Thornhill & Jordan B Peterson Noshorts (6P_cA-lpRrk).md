@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=6P_cA-lpRrk
+
+ under high infectious disease, you got to make a good immune system or you're going to die. But that's going to cost you in terms of neural development and so forth. So we predicted that more infectious disease, lower IQ. So we went to the IQ literature and there were data for essentially all the countries of the world. And we looked at the predictions and predictions were met. Across national predictions, about 0.8 between parasite stress and IQ. For the US, it's about 0.7. Within states.

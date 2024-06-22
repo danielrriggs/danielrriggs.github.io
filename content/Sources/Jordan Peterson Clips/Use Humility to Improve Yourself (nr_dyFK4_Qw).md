@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=nr_dyFK4_Qw
+
+ That's why humility is always stressed in great religious traditions. Humility is precisely that. It's like you have to look at why you're not so good. Yeah. And, you know, that has to break down your pride to some degree and your arrogance. It's like, well, that's great because if you break down your pride and your arrogance, then you're primed to learn and you can solve your problems.

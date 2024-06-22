@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=KTAtnp2YxS4
+
+ There's yellowness in the skin of African Americans, Caucasians, or Asians. The degree of yellow is important in attractiveness. The more yellow, the more carotenoid the person has, the more excess the carotenoid the person has can put it in their skin. And what carotenoid says is that you have to have a healthy gut to absorb carotenoid. It's fat soluble. You can't absorb fat if your gut's sick. It's a sign of metabolic health. Right.

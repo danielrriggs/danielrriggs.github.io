@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=4-TQpCUMuTY
+
+ if you have an IQ of under 82, you can't be inducted into the American armed forces. And the reason for that is the armed forces have done IQ testing for a very long time, and they're hungry for people always. They found that they couldn't teach anybody with an IQ of under 82 anything that made them valuable. They were a net drain. And that's 10% of the population. So there's about as many people with an IQ of 82 or lower as there are of people who are capable of doing well in an institute of higher education. And among that population, those who work harder are going to do better. But in a cognitively complex environment, they're at a marked disadvantage.

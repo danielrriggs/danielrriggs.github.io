@@ -1,0 +1,5 @@
+Coined by Charles Taylor, this term refers to a kind of mythological view which predominated prior to the axial age. In mythologies which posit a continuous cosmos, there are no qualitative differences between humans and the divine; gods are considered to differ from human beings simply in that they are more powerful, and are not moral exemplars. Reality is considered to be cyclical rather than historical, and ritual behaviour is intended to draw on the creative power of this cycle rather than altering it, because changing the future would mean undermining the past. In cultures operating on this mythology, wisdom is simply knowledge that enables one to “live long and prosper”.
+
+Dr. Vervaeke notes that he considers the use of the term “cosmos” in this coinage a bit anachronistic, because the concept of the cosmos, in the sense of an ordered universe, emerged later during the axial age in the ideas of Pythagoras.
+
+Related terms: axial age, myth

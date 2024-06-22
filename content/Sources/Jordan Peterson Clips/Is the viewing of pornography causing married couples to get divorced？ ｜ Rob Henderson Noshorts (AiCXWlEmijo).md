@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=AiCXWlEmijo
+
+ Married men are more likely to experience divorce if they watch any amount of pornography. And it's sort of the more pornography they use, the more likely they are to get divorced. It's another indication of the emergence of polygamy, because it's virtual polygamy. You can have an unlimited number of attractive sexual partners. Now it's all virtual. But that is a transformative technology. I mean, there's even more pictures of nude women in one day than anybody in history would have ever seen in their entire life.

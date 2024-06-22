@@ -1,0 +1,1 @@
+ If you ever do have a perception of failure, you can ask yourself a very simple question. Am I really filling my day right now with the highest priority actions I can be doing that allows me to produce the most inspiring outcomes that I want in my life? And you will find that if you're thinking you're a failure, you're doing things that aren't the highest priority actions.

@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=7PMqaQqSnzk
+
+ This is the time we need a revolution because the Islamic Republic acting like ISIS, I mean, to millions of Iranian people, women, minority, Islamic Republic is an ISIS. ISIS just behead people. The Islamic Republic hang people. This is what the Islamic Republic did 40 years ago when they took American diplomats hostage. Yes, of course, they released them all, but they are still having women like hostage. We are like hostage in the hand of the Islamic Republic. If we don't cover ourselves, we won't be able to get any kind of education or job. We won't exist if we don't cover our hair.

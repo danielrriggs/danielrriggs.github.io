@@ -1,0 +1,2 @@
+#OwenBarfield 
+Thinking about thinking.

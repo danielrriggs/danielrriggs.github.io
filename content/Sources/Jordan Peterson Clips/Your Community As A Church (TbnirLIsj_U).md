@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=TbnirLIsj_U
+
+ The lectures, that's a church for me. You know, I'm trying to make things better. And I think I'm participating with people, my audience members, my viewers and listeners. They're committed to making things better. And they're committed to, at least in some sense, they're committed to the truth. It's always been awkward for me to go to church, because, for a variety of reasons. And some of that might just be the unwillingness to do it. But I find myself uncomfortable in them often, because I always got the impression that the people who were reading the words didn't believe them.

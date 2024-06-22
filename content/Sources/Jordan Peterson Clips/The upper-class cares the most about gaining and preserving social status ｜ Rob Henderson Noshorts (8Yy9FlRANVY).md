@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=8Yy9FlRANVY
+
+ Researcher named Cameron Anderson at UC Berkeley is a psychologist who found that basically the upper class cares the most about social status. They care the most about obtaining it and they care the most about preserving it, which at first I thought was a bit counterintuitive. I thought that perhaps the most downtrodden kind of people who are in the lowest rungs of society, we care the most about obtaining money and wealth and status. But that's actually not true. It's the people who are already at the top who care the most about it.

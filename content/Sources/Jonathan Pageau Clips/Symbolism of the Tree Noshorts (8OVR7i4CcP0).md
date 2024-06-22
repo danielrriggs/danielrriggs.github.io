@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=8OVR7i4CcP0
+
+ A tree is an image of order. It's an image of hierarchy. How things come together towards one. So you can imagine the trunk of a tree as a kind of axis. And then you can imagine the branches of the tree as the repeating pattern of the tree. So the branch of a tree has the same structure of a tree. And as the branch separates into smaller and smaller branches, the same structure appears on the tree as the basic tree in itself. And so it is an image of this cosmic connection of everything together. So it is an image of order. Now the tree can be order as it comes towards one, but it can also be order as it separates into the many. To understand the basic idea of the tree, we look at the story in Genesis.

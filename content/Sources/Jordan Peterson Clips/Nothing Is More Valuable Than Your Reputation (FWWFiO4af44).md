@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=FWWFiO4af44
+
+ The most valuable thing you possess by any stretch of the imagination is your reputation. And your reputation basically, I wouldn't call it a status marker exactly, it's a productive generosity and competence marker. If you have good reputation, then people can trust you and they can trust you to engage in reciprocal productive interactions with them. They can trust you to take their interests into account as well as your own and to play stable, voluntary, desirable medium to long term games. Nothing is more valuable than your reputation. And what that means is that people try to game the reputation system. And that's what narcissists do and Machiavellians and psychopaths.

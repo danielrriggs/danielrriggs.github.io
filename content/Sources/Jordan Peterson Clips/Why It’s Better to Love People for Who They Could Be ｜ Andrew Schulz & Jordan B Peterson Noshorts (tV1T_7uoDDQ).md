@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=tV1T_7uoDDQ
+
+ I think it's better to love people for who they could be. It's it's better to love people for who they could be in other words, you know You know the moral shortcomings of your friend But you are going to love him for who he can be look It's complicated right because you love people and they have their shortcomings and their vulnerabilities and you have to take that as a package But look if you're really someone's friend And they betray themselves You're you're unhappy with them for doing that because they've sacrificed their better self for their lower self And if you're a real friend, you don't that doesn't sit well with you

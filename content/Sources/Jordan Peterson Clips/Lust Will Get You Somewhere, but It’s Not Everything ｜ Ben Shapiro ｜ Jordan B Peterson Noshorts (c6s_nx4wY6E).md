@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=c6s_nx4wY6E
+
+ What is it that you want from sex? Do you want intimacy? Do you want closeness? Do you even want the experience to be of high quality? Do you want the person to pay attention to you? Well, they're going to have to care for you. I mean, lust will get you somewhere, and it's not nothing. But it's by no means everything. And everyone knows this. People are lonely. They need someone to communicate with, and they need someone to tie themselves together with. So their lives make a rope. They need someone to communicate with when times are good, and to share their triumphs. And they need someone to share their catastrophes. And they need a framework that's stable so that they can have children.

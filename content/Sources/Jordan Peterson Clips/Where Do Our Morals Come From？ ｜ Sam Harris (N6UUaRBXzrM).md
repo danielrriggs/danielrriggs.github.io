@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=N6UUaRBXzrM
+
+ People who lose their religious convictions are then left standing on apparently nothing when it comes time to say something like slavery is wrong. I mean, you literally have professors saying, well, you know, I don't like slavery. I don't happen to like it. I wouldn't want to slave. But you know, I can't, you know, I can't really say it's wrong from the point of view of the universe, right? That's not what science does. And my point is that morality, and this is perhaps something you're going to want to disagree with. Morality has to relate to the suffering and well-being of conscious creatures. I'm not even limiting it to humans, but just whatever can possibly suffer or be made happy in this universe.

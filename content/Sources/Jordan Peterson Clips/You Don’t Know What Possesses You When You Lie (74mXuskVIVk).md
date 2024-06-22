@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=74mXuskVIVk
+
+ You want to prepare your children if you love them for the adventure of their life. You don't want to protect them And you do the same with you. It's like you're not getting out of this alive You're going to die. You got nothing to lose You might as well live with no holds barred and the fastest way to do that is to stop lying Because then it's you that's living because you don't know what possesses you when you lie like you think they're your lies. Jung said People don't have ideas Ideas have people And so when you're lying you might ask yourself just exactly who's got your tongue Because you think it's you that just shows how much you know

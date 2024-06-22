@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=HVrjq06MFDc
+
+ The idea that the US is somehow systemically racist in its essence is an accusation that's really troublesome to me because I don't just think that it's merely a lie. I think it's an anti-truth. Like most lies are lies that are sort of like truth, but a little bit. They have the details are modified here and there so that people can get away with whatever they're lying about. But now and then you hear a lie so egregious that it couldn't be farther from the truth.

@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=xxp9n9D5XK8
+
+ I mean, that's part of the reason that rap artists are so popular, especially among disaffected young men, black and white alike, because they're unbelievably articulate. They have this incredible verbal prowess. It's unbelievably attractive. It's associated with genuine artistic and redemptive activity, often focusing on something that's approximately the voice of the underclass, let's say, but a powerful voice, right? And it's interesting to see how many young white guys identify with that.

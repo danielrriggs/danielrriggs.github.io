@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=i6y3bOMB7LE
+
+ instead of the God that revealed itself to Moses saying, I am what I am, it's the individual person who says, I am what I am, I get to define myself, I'm the source of all wisdom and revelation, my brain, my psyche, my subjectivity, with no humility in that regard. And I actually think that that's a devastating cultural impropriety because it elevates the subjective intellect to the status of God and that's a Luciferian crime.

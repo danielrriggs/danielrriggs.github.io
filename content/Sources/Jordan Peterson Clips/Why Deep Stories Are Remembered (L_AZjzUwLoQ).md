@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=L_AZjzUwLoQ
+
+ The deep story signifies many things. Whereas the shallow story signifies only one or two. If it's a deep story, it might fundamentally change the way you view everything. That's what the deepest stories do. Well, so then we tell stories over centuries, over millennia, and some of them we remember. Well, why? Well, because they fit the shape of our mind.

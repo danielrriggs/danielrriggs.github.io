@@ -1,0 +1,1 @@
+ It's wiser to get to know the person for who they are, because they want to be loved for who they are. So I always say that it's wise to find out what you admire about them and dislike about them, and make sure it's balanced before you marry them. Because if you're not really marrying one side, you're marrying both sides, the things you like and dislike.

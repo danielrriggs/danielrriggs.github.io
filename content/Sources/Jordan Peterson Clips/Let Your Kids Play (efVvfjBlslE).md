@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=efVvfjBlslE
+
+ we've denied people so much basic touch and so much basic rough and tumble play that we've sort of collapsed the picture of touch to sex and violence. And so you'll see kids engage in play and you'll see adults who are absolutely on the edge of their seats because they can't see the difference between healthy, productive play and violence because they don't have a refined map. Yeah, no, that's an extremely useful analogy. Everybody's map is complete of everything, but maps differ very much in resolution. And the biblical term for sexual congress is knowledge. And that's partly because, well, sex is a form of play. It's a high form of physical play.

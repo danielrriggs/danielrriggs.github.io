@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=piYOyBeyiuc
+
+ I did a talk at Harvard four years ago, and I pointed out two things to the students in the audience. One was that learning to write in particular was going to make them more powerful than they could imagine. And number of students came up to me afterwards and said, I really wish someone would have said that to us when we first came here, because what I observed in my own career, nothing can stop you if you can write. When you write, you make a case for something. Whatever it happens to be. And if you make the best case, well, then you win and you get whatever it is that you're aiming at.

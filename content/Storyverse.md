@@ -1,0 +1,1 @@
+The stories and social constructs we are all embedded within which shape our experience of the material world. A good example would be the currency of money. Considered apart from the storyverse, money is only paper. See Yuval Harari.

@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=BW8CUOfSbs0
+
+ 90 to 95% of the native inhabitants of North and South America died as a consequence of contact with Europeans because of the transmission of measles, smallpox, and mumps. Although they were also prone to many other diseases that were brought in by the Europeans, who had lived in tight-packed cities, often with animals as close companions, had exposure to a wide variety of extremely toxic diseases, developed immunity, but then brought those diseases to the New World and decimated the entire population. Right.

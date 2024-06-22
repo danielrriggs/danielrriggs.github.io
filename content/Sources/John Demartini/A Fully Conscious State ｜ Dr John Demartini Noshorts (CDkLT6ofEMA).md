@@ -1,0 +1,1 @@
+ It appears that the fully conscious state is a state of grace and love, a state of awe, a gamma synchronis in the brain, a state of simultaneous opposites being brought together in union. As Harry Clyde has said in the 6th century BC, it's the union of complementary opposites. That's a full conscious awareness and consciousness is striving for that integration.

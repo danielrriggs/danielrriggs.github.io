@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=gwdWMCFEDsM
+
+ Hello, I'm John Vervecky. I'm a professor at the University of Toronto in the psychology department, and I'm also the director of the cognitive science program. It has been my vocation to teach and research at the University of Toronto for over 28 years. I'm also the author of the YouTube series, Awakening from the Meaning Crisis. I invite you to join me in my new series, After Socrates, where we can investigate together how we can respond individually and collectively to the meaning crisis.

@@ -1,0 +1,1 @@
+ If we have a balance of support and challenge in our mind, our body goes into wellness. If we have an imbalance, we see more support and challenge, or more challenge and support in our environment, we go towards illness. Illness is a feedback mechanism to guide us back to a wellness construct.

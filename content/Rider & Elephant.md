@@ -1,0 +1,2 @@
+#JonathanHaidt
+The rider and the elephant is psychologist Jonathan Heidt’s term. The elephant is the subconscious mind, the rider is the rational mind. Haidt’s point is that the elephant has most of the control of what we do, while the rider gives post-hoc justifications for the elephant’s actions, trying to maintain the illusion that he is actually in control. 

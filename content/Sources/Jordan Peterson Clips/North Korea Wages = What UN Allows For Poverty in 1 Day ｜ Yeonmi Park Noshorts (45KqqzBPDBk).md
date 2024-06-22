@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=45KqqzBPDBk
+
+ In the 1990s, the average wage in Korea was the equivalent of $2 a month. And so a $1.90 a day is what the UN regards as the line between poverty, absolute deprivation related poverty, and enough to barely subsist on it. North Koreans were making as much in a month as the UN allows for poverty in a day. And you describe eating virtually nothing. Rice was a luxury. Other forms of food, especially protein, were virtually unheard of, including fruit. In some of the most memorable sections, you described going out into the fields with some other children. And you were about seven or eight years old, I guess, at this time, and catching dragonflies and roasting them with a lighter. And that was where you got your protein.

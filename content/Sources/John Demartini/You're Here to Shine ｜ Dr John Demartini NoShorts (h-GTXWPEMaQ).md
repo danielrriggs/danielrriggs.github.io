@@ -1,0 +1,1 @@
+ Ralph Waldo Emerson said, envy is ignorance and imitation is suicide. Trying to live in the shadows of others is not the way to shine across the world and make the biggest difference. How are you going to make a difference if you're fitting in? You're only going to make a difference if you stand out.

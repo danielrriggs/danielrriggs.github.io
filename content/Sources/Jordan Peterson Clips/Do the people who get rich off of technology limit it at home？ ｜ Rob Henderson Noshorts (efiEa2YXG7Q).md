@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=efiEa2YXG7Q
+
+ Steve Jobs famously would not let his kids use an iPad. A lot of other people in tech reportedly tell their nannies to carefully monitor how much their children use smartphones and so on. There are TV personalities who own television networks, but they don't have a TV at home. And a lot of this, I think, is sort of like, you know, don't get high on your own supply. Addictive technology is okay for the masses. All of you can sort of get sucked into these screens, but I'm going to be very careful with how me and my children and my family interact with this technology that I'm getting rich off of.

@@ -1,0 +1,3 @@
+- Man - Head - Reason - motivated by truth  - scope: long term goals, deal with abstract entities like health
+- Monster - stomach/genitals - Appetite - motivated by pleasure/pain - scope: immediate, very superficial properties (cake yummy)
+- Lion - chest - thymos -  motivated by honor and shame, scope: intermediate

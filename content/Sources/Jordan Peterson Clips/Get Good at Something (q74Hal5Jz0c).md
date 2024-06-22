@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=q74Hal5Jz0c
+
+ Are you good at anything? And if the answer to that is no, well, how about you start practicing being good at something? Pick one thing. Well, what? Well, not nothing. Pick something. Maybe it's a video game. I don't care. Get good at something. Because to get good at something requires you to simultaneously practice many skills that will make you good at many things.

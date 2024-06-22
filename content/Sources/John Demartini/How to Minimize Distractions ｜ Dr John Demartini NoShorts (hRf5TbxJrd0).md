@@ -1,0 +1,1 @@
+ that if you don't fill your day with high priority actions that inspire you, your day is going to have time to fill up with low priority distractions that don't. So you have to ask yourself, what is the highest priority action I can be doing right now that will help me fulfill myself and my mission on planet Earth?

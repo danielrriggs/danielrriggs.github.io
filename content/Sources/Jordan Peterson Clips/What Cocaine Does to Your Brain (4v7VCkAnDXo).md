@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=4v7VCkAnDXo
+
+ I mean, if you dose yourself with cocaine, you can produce a cocaine-seeking narrative that's instantiated in your brain and that's actually what constitutes the addiction in some sense. It's a cocaine-seeking personality that's a unidimensional monster that now comes to dominate your neurophysiology in conditions of deprivation. That's a very bad idea. You've generated an internal parasite that's fed on this externally applied chemical.

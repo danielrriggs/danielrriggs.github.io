@@ -1,0 +1,1 @@
+The practices embedded within cultural and social life which shape us to conform to the dominant narrative. The classic example is the shopping mall, the experience shapes us in subtle ways to become individualistic consumers.

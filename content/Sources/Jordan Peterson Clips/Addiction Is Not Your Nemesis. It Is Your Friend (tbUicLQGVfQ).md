@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=tbUicLQGVfQ
+
+ So I feel that addiction, personal experience, and I hope and suspect more broadly, is a means for sort of stasis, for preservation after trauma. The rupture occurs, is not addressed, and a means for survival emerges in the form of addiction. Addiction is not your nemesis, it is your friend. There's certainly a literature on addiction that indicates that many people use addictive substances as a form of self-medication, and they tend to find the drug that best medicates them, let's say. And for different people, that's different drugs.

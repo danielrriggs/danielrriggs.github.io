@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=Zrp93Lv0NXI
+
+ Imagine that the world could be constituted the way that you wished it could be if you could wish that most deeply and then Ask yourself if you could imagine that you would want a world constituted in any other way than that the most fundamental Meaning that properly orients you in life is to be found in the spirit of voluntary play That would be a good deal

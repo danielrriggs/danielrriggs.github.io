@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=jKSBb1PnXXU
+
+ Why lift the load if there's nothing in it for you? That's another thing that we're doing to men, that's a very bad idea. And to boys. You're pathological and oppressive. It's like, fine then, why the hell am I gonna play? If that's the situation, if I get no credit for bearing responsibility, I could bloody well be sure I'm not gonna bear any. But then, you know, your life is useless and meaningless, and you're full of self-contempt and nihilism, and and that's not good. That's what I think is going on at a deeper level with regards to men needing this direction. A man has to decide that he's going to do something. He has to decide that.

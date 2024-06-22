@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=L2G1wnlmVGM
+
+ I've known a number of adolescents who got tangled up with someone pretty damn nasty online, much to their parents chagrin. And so that's especially true on the sexual exploitation front. Yes. And that's primarily because social media is so unregulated. So there's no age verification. For example, you could be 36 and say that you're 13. You can be 9 and say that you're 16 or 13 to be able to get an account. You're supposed to be 13 to get a social media account, but it's not enforced. So there's very young children who are on it. And then adults and children can communicate with each other. And that has led, unfortunately, yeah, to a lot of sexual predation and other really unfortunate situations.

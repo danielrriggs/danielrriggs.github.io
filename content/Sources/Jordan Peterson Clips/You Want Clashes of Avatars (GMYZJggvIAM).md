@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=GMYZJggvIAM
+
+ You try things out by thinking. You have to do that with great difficulty. That you want clashes of avatars so that the best survive, right? You want that for your children. You want to put up some resistance against their foolishness so that they modify themselves at the least possible cost. You do the same thing with your wife or your husband if you have any sense at all. In your marriage, you communicate honestly, painful and terrible as that is, so that each of you can discover what's lacking about you, and that's plenty.

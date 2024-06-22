@@ -1,0 +1,2 @@
+[John Vervaeke and I ask Who's Afraid of Inevitable Religio? (youtube.com)](https://www.youtube.com/watch?v=FdZlQYtIJ0Q)
+[[Metamodern wisdom about religion now w⧸Layman Pascal - Voices with Vervaeke (bPy6W-c5_9Y)]]

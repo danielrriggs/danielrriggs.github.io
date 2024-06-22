@@ -1,0 +1,1 @@
+ Any air of our life that we don't empower, we automatically become overpowered by those who have. And so I always say to those who have more is given, to those who haven't more is taken away. And people don't honor their own magnificence and their own power. And they don't recognize their own genius because what they're doing is they're comparing themselves to other people.

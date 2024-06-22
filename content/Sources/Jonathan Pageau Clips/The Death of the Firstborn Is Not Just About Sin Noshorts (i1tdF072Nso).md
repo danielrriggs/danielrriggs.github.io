@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=i1tdF072Nso
+
+ you know, in certain strands of theology, they'll try to make this related to like sin, and you know, you deserve to die because you're sinful, but then you know, you something is substituted for that sacrifice. But that's not what seems to be going on here. There's no mention of sin. There's no mention of the law. There's a sense in which the death of the firstborn, or the giving of the first born to God, seems to be at the very source of identity, seems to be at the very source of separating Israel from Egypt, and making Israel the nation that it is, you know, worshiping God.

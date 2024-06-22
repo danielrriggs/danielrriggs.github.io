@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=uZJLVsBFfZE
+
+ It's unbelievable how little genuine encouragement many people need and how they had none. No one ever said to them and meant it. It's not okay for you to be a weak loser. It's not okay. And the reason it's not okay is because you could be way more than that. And it's a crime, an ethical crime, for you to allow all that necessary potential to go to waste. It hurts you, it hurts your family, it hurts the world. Really, really it does. And people think, oh okay, I get it. And they do get it because they know at some level.

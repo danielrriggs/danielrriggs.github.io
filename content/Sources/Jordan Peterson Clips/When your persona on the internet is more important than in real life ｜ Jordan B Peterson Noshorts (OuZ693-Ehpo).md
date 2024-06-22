@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=OuZ693-Ehpo
+
+ If you are sufficiently plugged into the internet early enough, there comes a point which your persona on the internet takes primacy. It is more important than your actual physical life. It's worse than that from personal experience. There is more of me on the internet than there is in me. My electronic avatars are far more powerful than me. I've been away for a year and a half and yet my internet presence has steadily increased during that time.

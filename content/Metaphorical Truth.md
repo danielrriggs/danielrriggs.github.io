@@ -1,0 +1,2 @@
+#BretWeinstein
+The quality of an explanation where the explanation, if acted in accordance with, allows a replicator to be better at replicating than if the explanation wasn’t acted in accordance with. Metaphorical truth is orthogonal to literal truth, meaning that literally true explanations can be either metaphorically true or metaphorically false without their literal veracity being affected.

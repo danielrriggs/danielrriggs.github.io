@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=s75UrN0Q7M4
+
+ Trans activists that were after me when I first made some public statements. I said look it isn't Obvious to me at all that your theory of identity is going to serve the function that you assume it is It's not psychologically sophisticated enough. It's not sociologically sophisticated enough You can't insist that other people play a game that they don't know how to play especially when you also don't know how to play it except to say that it exists and

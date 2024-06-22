@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=3M5AflcLA7o
+
+ Capitalism lowers prices. Governments raise prices. Whenever you look at an industry that's heavily regulated, education, prices go up all the time because the government is so involved. That's why it keeps getting more expensive. And the quality goes down. The quality of education. I mean, a high school degree, you know, 50 years ago is way more valuable than a college degree today, even a master's degree. Governments have destroyed the value. Especially a master's degree. Yeah, the governments have destroyed the value of degrees while dramatically increasing the price to get one. So government drives quality down and price up. The free market does the reverse. It drives quality up and price down.

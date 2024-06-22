@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=mBD8pk02DfE
+
+ Have you all noticed that food has become much more expensive? That shelter has become much more expensive? That energy is more expensive? That many consumer goods are simply unavailable? Can you not see that this is going to get worse if the Deloitte-style moralists have their way? How much short-term pain are you going to be required to sustain decades worth all your life and the life of your children? It's very likely for your own benefit. Remember that. And all this painful privation is not only not going to save the planet, it's going to make it far worse.

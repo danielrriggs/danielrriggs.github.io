@@ -1,0 +1,1 @@
+ There is imagination, there's memory, and then there's presence. When you're in imagination, you're not really present with your thought. When you're in memory, you're not really present with your thought. But when you're present, you have the most power with your thought. Gratitude and love allows the presence to enter into thinking, and the power of thought is maximized.

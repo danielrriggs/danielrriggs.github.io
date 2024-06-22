@@ -1,0 +1,1 @@
+Rationality means any systematically reliable internalized [[Psychotechnology]] that reliably and systematically affords you overcoming [[Self-Deception]] and affords you cultivating enhanced [[Connectiveness]] & enhanced meaning in life.

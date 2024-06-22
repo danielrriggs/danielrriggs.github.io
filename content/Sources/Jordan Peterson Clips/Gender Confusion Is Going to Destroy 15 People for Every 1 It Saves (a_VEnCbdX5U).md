@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=a_VEnCbdX5U
+
+ Kids are confused enough when they're growing up. I think to add gender confusion to that, which we're doing very very rapidly, is going to destroy 15 people for everyone it saves. It might be more than that. Because there's plenty of confused people out there. I would say like, what, 2 out of 30, something like that, are just barely clinging on to the edges of reality. And they're looking for acceptance and transmutation wherever they can find it. And confusing them further isn't going to help. And these people that were transitioning young, there's going to be one hell of a kickback from that, I can tell you, when they hit adulthood.

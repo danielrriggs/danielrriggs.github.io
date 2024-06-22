@@ -1,0 +1,1 @@
+[Contrapoints Envy as Frustration of the Imprisoned Secular Self and Resurrection as its Longing - YouTube](https://www.youtube.com/watch?v=40ao7O33MDs)

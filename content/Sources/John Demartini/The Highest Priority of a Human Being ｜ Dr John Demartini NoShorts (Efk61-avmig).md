@@ -1,0 +1,1 @@
+ I think that love is the very essence. I ask people if they had only 24 hours to live, what would they do with their life? They say, I'd thank the person and love the person for their contribution to my life. And every human being wants to be loved and appreciated for who they are. So that's the highest priority thing of a human being.

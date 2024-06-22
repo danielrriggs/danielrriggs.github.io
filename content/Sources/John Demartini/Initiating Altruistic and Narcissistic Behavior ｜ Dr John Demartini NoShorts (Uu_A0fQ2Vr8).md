@@ -1,0 +1,1 @@
+ We have a built in thermostat to try to maintain fair exchange, a state of equanimity and equity between ourselves, within ourselves, and between ourselves and others. And every time we are not in balance, in our perception, we initiate either altruistic behavior to compensate or narcissistic behavior to get them to compensate.

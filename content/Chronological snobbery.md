@@ -1,0 +1,2 @@
+#CsLewis
+The belief that the current age is better in all respects to the past: with regards to material goods, wealthier; with regard to technology, more advanced; with regard to knowledge, wiser; with regard to morality, higher, and so on, to the detriment of the past. The further in the past someone is, the more “backward” they are assumed to be in all respects, but especially whatever factor the snob believes is relevant.

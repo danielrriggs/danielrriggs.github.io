@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=h9WFcPASmX8
+
+ If I study for 30 years, it isn't exactly that I have a comparative advantage over you. It's that I comparatively have something to offer you, right? Because advantage implies that I've taken something from you in some sense, or now I can hold something over you because you say take an advantage of someone. But it isn't that. It's now that I'm bringing something to the table that you actually desire. And so that's not an advantage I have. It's something that I have to offer. And if I have any sense, I've picked something that I have to offer that I know other people want.

@@ -1,0 +1,1 @@
+ Ask yourself on a daily basis, what is the highest priority action I can be doing right now to help me fulfill what's most meaningful to me in my life. Then go get that done. Then after that, what's the highest priority action step I can do now to get that done? If you stay in the highest priority things, your energy level is going to go up.

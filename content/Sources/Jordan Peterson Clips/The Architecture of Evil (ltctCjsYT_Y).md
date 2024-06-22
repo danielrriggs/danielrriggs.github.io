@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=ltctCjsYT_Y
+
+ Dante's Inferno is a study of the layers of evil. That's a good way of thinking about it. So it's an architecture of hell. You might say, well, I don't believe in hell. It's like, well, that's just because you haven't been there. You know, you'd believe it if you'd believe in it if you'd been there. And it also means that you just don't understand because it's Dante's book in particular is the architecture of evil. He was trying to understand how you rank order what's worse and he put betrayers pretty much at the base. And I think the reason for that is if you betray yourself or if you're betrayed by someone else, it takes your faith away.

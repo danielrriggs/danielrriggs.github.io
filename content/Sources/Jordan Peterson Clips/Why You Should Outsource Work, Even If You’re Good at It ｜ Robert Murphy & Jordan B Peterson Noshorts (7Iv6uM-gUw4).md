@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=7Iv6uM-gUw4
+
+ Michael Jordan is very athletic. He could probably cut his lawn faster than the neighborhood kid. But Michael Jordan shouldn't be cutting, you know, he should hire someone else's there. He goes and practices basketball. A lawyer who's a really fast typist should still hire a secretary to deal with the paperwork so the lawyer can focus on talking to the client. So there's all kinds of examples where just because you can do a task better than someone else, it still might make sense for you to outsource that and hire that person to do it to free your time up to focus on where you're really good.

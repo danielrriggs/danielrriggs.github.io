@@ -1,0 +1,1 @@
+ When we're ungrateful, we're living. But when we have gratitude, we have life. And I believe in my research for the last 30-something years on wellness that when we actually do have gratitude for what's going on, even our illness is feedback mechanisms to help us learn to love.

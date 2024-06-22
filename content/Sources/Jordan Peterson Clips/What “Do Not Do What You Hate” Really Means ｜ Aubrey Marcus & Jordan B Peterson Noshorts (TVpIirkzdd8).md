@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=TVpIirkzdd8
+
+ Do not do what you hate and what does it mean? Well, it doesn't mean geez I hate getting up at 8 o'clock in the morning to get ready for work It's that's just means that you're not very disciplined, you know, or or maybe that it might mean something deeper But I'd start with lack of discipline before you know Rearranging your whole life because you might say well, I hate getting up at 8 o'clock in the morning No matter what I'm doing and then it's not your job. I don't mean Don't do difficult things. I mean watch yourself And if you see that you're doing things that make you hate yourself then consider the cost of continuing

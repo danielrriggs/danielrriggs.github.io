@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=XAiB1SmysHM
+
+ What is the nature of the meaning crisis in modern times? Well, remember what I said, that the very processes that make us adaptively intelligent subject us to perennial problems of self-deception, self-destruction, creating bullshit for ourselves, for other people, all of that. And that can cause anxiety, existential anxiety, it can cause despair. These are perennial problems. And across cultures and across historical periods, human beings have come up with ecologies of practices. There's no one practice, there's no panacea practice. They've come up with ecologies of practices for ameliorating that self-deception and enhancing that fittedness, that connectedness that's at the core of meaning in life.

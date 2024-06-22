@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=xuj_BOI5kiQ
+
+ What's so cool about the lobster is that when a lobster wins, he flexes and gets bigger, so he looks bigger. Because he's a winner, it's like he's advertising that, and the biological, the neurochemical system that makes him flex is serotonergic. And you think, well, who cares, what the hell does that mean? Well, tell you what it means, it's the same chemical that's affected by antidepressants in human beings. And so, like, if you're depressed, you're a defeated lobster. Like, you're like this, I'm small, you know, things are dangerous, I don't want to fight. You give somebody antidepressants, like, up they stretch, and then they're ready to, like, take on the world again.

@@ -1,0 +1,1 @@
+ Anytime we subordinate to somebody else's value systems, we think we make a mistake. But anytime we honor our own value systems, we realize we're just acting in love.

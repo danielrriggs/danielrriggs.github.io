@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=pKRAnEgkIAw
+
+ It's one of the reasons I don't like identity politics is because once you divide people into groups and pit them against one another, it's very easy to assume that all the evil in the world can be attributed to one group, the hypothetical oppressors, and all the good to the other. Well, and that's, that's, that's naive beyond comprehension because, um, it's absolutely foolish to make the presumption that you can identify someone's moral worth with their economic standing.

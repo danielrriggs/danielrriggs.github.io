@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=WPx91jcEtiI
+
+ Tinder, you're a hot Tinder item. It's like, well, if you're a male and you're attractive and you have an endless array of willing females, it's a gateway to psychopathy as far as I'm concerned. Because you have to divorce your sexuality from the humanity of the people that you're engaged with sexually. Well, all that's going to do is make you hard and bitter. And I wouldn't recommend it.

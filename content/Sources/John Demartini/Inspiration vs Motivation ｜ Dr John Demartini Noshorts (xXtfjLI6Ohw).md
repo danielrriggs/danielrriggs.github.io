@@ -1,0 +1,1 @@
+ Because we have a hierarchy of values, when we're living according to our highest value, we're spontaneously inspired from within to fulfill it. As we go down the list of values, they become more extrinsic and we need more outside motivation to get us to do it.

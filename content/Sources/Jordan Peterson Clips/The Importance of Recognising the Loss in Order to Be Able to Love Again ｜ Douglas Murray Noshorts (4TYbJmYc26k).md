@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=4TYbJmYc26k
+
+ because the most important thing in a way was not who won, but who lost and what they did when they knew they lost. Yes. And as you know, psychologically, this is one of the most important lessons. Freud writes about this, that you have to be able to recognize that the thing has been lost in order to be able to even love again. You have to bury the thing that has been lost to recognize that it has gone. And what I am horrified by in American politics is the fact that that mourning process is not allowed to occur. They cannot bury the dead. They cannot grieve for the loss because they don't think they lost.

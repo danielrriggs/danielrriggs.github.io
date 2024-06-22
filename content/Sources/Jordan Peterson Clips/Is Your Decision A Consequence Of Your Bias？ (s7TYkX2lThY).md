@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=s7TYkX2lThY
+
+ Is it bias per se that's determining which facts that you interact with? So is all your action merely a consequence of your bias? And I would say that's one of the claims that the postmodern radicals make all the time, is that your perception is nothing but your biases. It's a pretty bloody dismal way of looking at the world. It's like, there's your bias and my bias, and there's no truth, and there's no ethic. There's just your bias and my bias, and which one should win? It's like, well, I guess we'll find out, won't we?

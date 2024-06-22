@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=uNtJG4ttGxI
+
+ If you have goals, you have responsibility. The responsibility is to progress towards the goals. And you can say, well, I'll just dispense with goals. It's like, well, unless you're like the Buddha, good luck with that. And even in the Buddha's case, I mean, he had nirvana at his fingertips, but rejected it to go back to redeem the world. There was a detachment from goals and nirvana attained as a consequence. The consequence of that still was the adoption of responsibility, the rejection of nirvana as a solitary pursuit.

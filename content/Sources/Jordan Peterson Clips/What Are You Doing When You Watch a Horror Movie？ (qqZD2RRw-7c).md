@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=qqZD2RRw-7c
+
+ Well, you might ask yourself, what are you doing when you go see a horror movie? That's a really good question, because it's so preposterous that you would go see a horror movie. You'll do that voluntarily, you'll line up to do it, and you'll pay for it. Why? So you can be disgusted and terrified. It's like, what the hell's wrong with you? Well, seriously, like, what are you up to? And the answer is, you're facing what's disgusting and terrifying.

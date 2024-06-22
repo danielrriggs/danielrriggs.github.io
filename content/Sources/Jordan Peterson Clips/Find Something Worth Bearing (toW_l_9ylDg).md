@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=toW_l_9ylDg
+
+ Well, you can either lift up a cross or have one dropped on you, right? There's no non-cross option in this world. You all know perfectly well that your idiot, immature hedonism is gonna vanish in a puff of smoke at the first sign of trouble. You know that, and you know that it's thin gruel. That's why you're hedonistic and hopeless at the same time. You need something beyond that. Why? Because life in some ways is unbearable. And so you need something worth bearing to make it bearable. And life is very heavy load. And so that means you have to carry something very heavy to justify it.

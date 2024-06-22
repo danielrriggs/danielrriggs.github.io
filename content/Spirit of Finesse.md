@@ -1,0 +1,2 @@
+(Blaise Pascal)
+The mode of being which ventures into the uncertain, the ambiguous, the paradoxical. “Intuitive understanding necessary for understanding and succeeding in those areas of human endeavor which do not lend themselves to “the spirit of Geometry.”

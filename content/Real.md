@@ -1,0 +1,1 @@
+Working definition: “That which governs, that which finally endures, that which is finally revealed (apocalypse) and shown to be the thing that is not moved.”

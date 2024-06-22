@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=a9jw5S2LF1I
+
+ War is tragic and ugly, to say the least, and you're facing some of the most horrific conditions, which is one of the reasons why I don't support the draft, is because as a soldier, I don't want to be serving alongside anybody who hasn't made that choice to be there, who hasn't made that choice to be willing to make those sacrifices, not only to give up one's life in service to our country, but to face the plethora of what could be the absolute worst case scenarios.

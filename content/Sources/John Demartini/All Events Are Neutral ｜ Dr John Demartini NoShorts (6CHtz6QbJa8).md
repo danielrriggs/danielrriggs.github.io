@@ -1,0 +1,1 @@
+ I found that if you take any event over time, it will have a ripple effect of people supporting and challenging it, and people will label it good and bad. But the event is neutral until somebody with a narrowed mind labels it good and bad. The broader our mind, the more we see things as it is, and the more narrowed our mind, the more we label it as we think it is.

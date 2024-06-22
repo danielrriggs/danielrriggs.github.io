@@ -1,0 +1,1 @@
+ I believe today that the symptoms that we manifest and the imbalances in our physiology are correlated with some of the imbalances in our psychology. So anytime we can make an adjustment of the psychology while we're making adjustments of the physiology for the adjustment, we're enhancing the body further.

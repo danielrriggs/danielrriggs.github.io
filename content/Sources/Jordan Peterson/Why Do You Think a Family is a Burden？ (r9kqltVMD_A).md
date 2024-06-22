@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=r9kqltVMD_A
+
+ Why would I want the burden of a family? Why would I want the constraints of a permanent relationship when I can have all the freedom to choose? Well, first of all, why do you think that a family is a burden? And second, why do you think that all that choice, which I doubt you have anyways, is freedom? Well, many people say, well, you know, I don't wanna limit myself to one partner. It's like, no, you don't wanna limit yourself to one partner, but pretty much everyone else wants to limit you to maybe even less than one partner. It's a deep immaturity and ignorance that's gripped us.

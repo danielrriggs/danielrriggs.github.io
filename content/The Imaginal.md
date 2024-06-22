@@ -1,0 +1,1 @@
+Bound up with gnosis and related to Jung’s ‘active imagination’.

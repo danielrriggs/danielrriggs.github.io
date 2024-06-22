@@ -1,0 +1,2 @@
+(Charles Taylor):
+The substructure of a society, below even beliefs; of ideas, ways of seeing the world, ethical commitments, symbols and so on, which are taken for granted, and assumed by all. The social imaginary is the landscape upon which worldviews are then constructed.

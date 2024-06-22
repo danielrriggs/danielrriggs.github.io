@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=mn1m2Q-LYkk
+
+ The American military determined after about 100 years of general cognitive ability testing that people with an IQ of less than 83, and so that's about 12% of the population, cannot under any circumstances or with any training protocol conceivable be trained to do anything of any utility whatsoever at any level of military organization. And so it's illegal in the United States to induct someone with an IQ less than 83. And if you know that that's 12% of the population, that's an absolutely terrifying statistic.

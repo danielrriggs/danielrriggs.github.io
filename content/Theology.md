@@ -1,0 +1,1 @@
+According to Carl Jung (& Peterson), theology is a system of preferences.

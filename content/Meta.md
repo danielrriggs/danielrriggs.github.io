@@ -1,0 +1,5 @@
+The word "**meta**" is often used inappropriately. People often use "**meta**" to sound smart or avoid resolving difficult problems. "**Meta**" is overused as a placeholder for abstraction, which can hinder effective communication. Instead of using "**meta,**" it is better to use clearer terms like "abstraction" or "higher level." The frequent misuse of "**meta**" stems from a misunderstanding of the term "metaphysics."
+
+Aristotle never used the term "metaphysics," and the works attributed to him under that title were likely compiled by a publisher who simply placed them after his works on physics. The term "metaphysics" is often used to refer to topics that predate physics, such as religion, which contradicts the term's literal meaning of "after physics." People often use "**meta**" to discuss their underlying worldview, which is essentially a question of faith and belief rather than science. This usage further confuses the meaning of "**metaphysics**" and "**meta**."
+
+https://youtubetranscript.com/?v=s_BiFxGeSMo

@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=0byzTRQS-Fk
+
+ A few weeks ago the wise folks at Twitter deemed it necessary to suspend my access to that platform Despite the fact that I had several million followers despite the fact that I had used the platform in good faith Despite the fact that I had put in the years of time and effort Necessary to gain such an extensive following despite the fact as well That I was a genuine force on Twitter trending with a rather appalling and frightening degree of regularity In many ways, I'm your monster, sir

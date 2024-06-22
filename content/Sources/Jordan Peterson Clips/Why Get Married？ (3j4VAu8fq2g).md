@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=3j4VAu8fq2g
+
+ Well, why get married? People want a partner. Half the dialogue that you hear between people, especially if they're single, is related to their desire to have a partner. And of course, half the dialogue you hear from people who are in a relationship is how to deal with problems in their relationship. But it's a very rare person who doesn't need and want an intimate relationship. And then you have to ask yourself, well, what does intimate mean? And the cheap interpretation of intimate is sexual, but that's a pale reflection in some sense of true intimacy, even on the sexual front, because true intimacy means getting to know someone.

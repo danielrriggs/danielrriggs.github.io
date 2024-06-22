@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=2Trub2sfScQ
+
+ Welcome to the sitting meditation practice. Set your intentions. Begin you you you you you you you you you you you you you you you you you you you you you you you you you you you you you you you you you you you you you you you you you slowly come out of your practice, trying as best what you cultivated in your practice, to integrate it with your everyday consciousness and cognition, character and community tasks. you you you there is no enemy worse than your own mind and body, but there's no friend, no ally, no true companion on the path, better than your own mind and body. you you

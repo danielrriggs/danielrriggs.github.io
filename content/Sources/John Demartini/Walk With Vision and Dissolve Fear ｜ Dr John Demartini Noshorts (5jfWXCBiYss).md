@@ -1,0 +1,1 @@
+ I learned that we're not here to live only in fear. That if we walk with vision, that our fears dissolve before our eyes. But the fear sometimes at not being smart enough, intelligent enough, creative enough, can immobilize us and make us lie to ourselves about our real capacity. And make us shrink away from taking actions that inspire.

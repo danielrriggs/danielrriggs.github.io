@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=Kk-E4e8R6Ig
+
+ You have to organize your values hierarchically or you stay confused. And that's true if you're an individual and it's true if you're a state. If you don't know what the next thing you should do is, then there's 50 things you should do. And then how are you going to do any of them? You can't. You have to prioritize. Something has to be above something else. It has to be arranged in a hierarchy for it not to be chaotic.

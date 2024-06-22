@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=pKYVWC7pp40
+
+ It doesn't matter what you say. It matters what you do. And if I want to figure out what you believe, I don't ask you. I watch how you act. And I assume that your true beliefs are those that are directing your actions. And so truth is discovered in action. And that's a very different claim. It's not the claim of a passive observer. It's the claim of someone who's actively interacting with the world. And of course, we are always acting interactively with the world. And not only that, if we don't interactively with the world, we cease to exist.

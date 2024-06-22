@@ -1,0 +1,1 @@
+ The beauty of money is it allows us to have sustainable, fair exchange and gives us the opportunity to care about another human being in a way that we can serve them and be served in return in a fair exchange. Sustainable, fair exchange, that's what it represents.

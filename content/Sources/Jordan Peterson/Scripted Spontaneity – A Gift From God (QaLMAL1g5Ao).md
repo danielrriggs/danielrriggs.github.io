@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=QaLMAL1g5Ao
+
+ I presume that before you engaged in the Duck Dynasty series, you guys weren't actors and you didn't have a lot of experience while certainly producing like a half scripted family sitcom. So how did you manage to keep it funny and spontaneous at the same time that you managed to impose some sort of narrative structure on it? And who was responsible for that? How did you do that? It was just talent from God. Oh my, humility. Is that the right order? I mean for me it was about I'd watch shows and so what I thought was funny and like Seinfeld, you know I'd watch shows and I was like, oh it's really funny how they did that and so I tried to just do that, remain in myself.

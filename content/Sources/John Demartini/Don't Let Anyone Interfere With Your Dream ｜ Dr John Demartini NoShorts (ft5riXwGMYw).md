@@ -1,0 +1,1 @@
+ So if there's any dream you have in your life, you cannot let any human being on the outside interfere with that dream. You can't give yourself permission to do something extraordinary, which you know. Deep inside, you know you want to make a difference. Deep inside you have a desire to do something extraordinary. That's the real you.

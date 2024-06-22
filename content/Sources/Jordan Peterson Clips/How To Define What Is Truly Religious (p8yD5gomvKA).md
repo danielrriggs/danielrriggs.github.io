@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=p8yD5gomvKA
+
+ Maybe you could define what's truly religious as what is a first principle. Now, if you're thinking about it psychologically, there are phenomena, I suppose, that we regard as part of the realm of depth. What's deep? What's deep in literature and what's deep in philosophy? And I would say, technically, that the realm of the religious is the realm of what's deepest, and what's deepest is first principles. And maybe you come to those first principles, maybe in some sense, you have to abide by them as a consequence of faith.

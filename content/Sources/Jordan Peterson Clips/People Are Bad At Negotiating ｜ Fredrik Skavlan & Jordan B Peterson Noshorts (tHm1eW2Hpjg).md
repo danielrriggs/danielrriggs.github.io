@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=tHm1eW2Hpjg
+
+ People are not good at negotiating. They won't admit what they want, because then they know if they're not getting it. They make their criteria for failure clear, and that frightens them. So they keep themselves vague. Because they don't know what they want, they can't communicate it to their partners. And they don't know how to do that anyways, because they're not very good at negotiating. And then they avoid conflict. Because when you avoid conflict, all you do is store it up for the future. And I've seen lots of people in a horrible marital situation. At that point, maybe divorce is the best option. But that doesn't mean that it was the best option from the beginning.

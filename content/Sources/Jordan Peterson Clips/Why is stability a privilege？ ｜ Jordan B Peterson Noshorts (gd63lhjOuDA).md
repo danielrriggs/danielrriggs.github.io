@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=gd63lhjOuDA
+
+ People take things for granted and they celebrate chaos. Well, I want freedom. It's like, no, you don't. You want a tiny bit of freedom, meet it out in very calibrated doses on one dimension now and then. And you want everything else to be as stable as possible. And some people can tolerate more chaos than others. Just think about how difficult it is to set up a situation where you can reliably have temperature regulated silence 100% of the time at night for your whole life, unless you lose it. For some reason you develop insomnia or you're in an unfortunate situation where you don't have that peace anymore. You won't even notice that that's a privilege.

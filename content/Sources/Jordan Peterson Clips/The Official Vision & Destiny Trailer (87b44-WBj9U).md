@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=87b44-WBj9U
+
+ You should accept yourself just the way you are. What does that say about who I should become? Is that just now off the table because I'm already good enough in every way? So am I done or something? Get the hell up. Get your act together. Adopt some responsibility. Put your life together. Develop a vision. Unfold all those manifold possibilities that lurk within. Be a force for good in the world and that'll be the adventure of your life.

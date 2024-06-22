@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=4Ks2rzCKfZY
+
+ Nature's kind, it just takes the weak. It's like, no, lions like really healthy, delicious zebras, but they look like all the other healthy, delicious zebras so they can't get a bead on them. But if they're small and just born, or if they're limping, or there's something that identifies them, then the lions can pick them out. And then they do pick them out. And so the rule for human beings is, keep your damn stripes on so the lions don't get you.

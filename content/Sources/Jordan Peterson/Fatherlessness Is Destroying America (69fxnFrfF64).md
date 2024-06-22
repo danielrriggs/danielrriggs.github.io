@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=69fxnFrfF64
+
+ Girls who don't have a father will hit puberty on average at least a year earlier, which is substantially earlier. And that indicates a real biological impact of the lack of a masculine figure in the household because that's a walloping physiological difference. We know that boys who have lack of father at the age of 12 have telomeres. So this is a genetic difference that are on average something approximating 15% shorter, which means that all other things being equal, they're already doomed to a much shorter life. And so we don't know what the pervasive multi-generational consequences of the breakdown in familial structure in the final analysis are.

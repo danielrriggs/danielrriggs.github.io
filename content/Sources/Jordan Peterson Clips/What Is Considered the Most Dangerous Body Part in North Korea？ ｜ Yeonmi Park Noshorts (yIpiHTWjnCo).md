@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=yIpiHTWjnCo
+
+ For North Koreans, thinking for yourself was something so unheard of. When we are born, the first thing they teach us how to bow properly and respect, and the first thing that my mom told me as a young girl was not to even whisper because the birds and mice couldn't hear me. She told me that the most dangerous thing in my body that I had was my tongue. If you slip out a wrong word, that is the end of our entire family clan. That's how much dangerous your tongue is.

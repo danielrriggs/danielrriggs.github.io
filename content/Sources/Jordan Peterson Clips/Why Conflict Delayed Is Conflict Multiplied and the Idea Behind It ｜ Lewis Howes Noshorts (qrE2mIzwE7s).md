@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=qrE2mIzwE7s
+
+ Conflict delayed is conflict multiplied. It's worse to have lingering conflict for months years decades than The pain of direct conflict that can hopefully resolve and move on and the persons who are involved because they're avoiding demean themselves and get weaker and less confident and so it's a vicious circle Christ says if you have a problem with your brother You fix that first go pray later

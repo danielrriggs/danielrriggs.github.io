@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=6buAAx6Z-Ag
+
+ Neotenous averaged females are more attractive. Do you think that the attractiveness of that neoteny is a consequence of the ability of the more childlike face to elicit care from a male? Here's the way we think it works. So the neoteny we're talking about, we could talk about it just as degree of estrogenization of the face. That's what we measure. That is a marker of health in a different sense, hormonal health. So estrogen. Estrogen is fundamentally the fertility and reproductive capability hormone of the female mammal, estrogen. So the more estrogenized she is, the greater her fertility and reproductive capacity is. So that's what we're responding to in the physical attractiveness of a female.

@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=NLE8CCBNhY0
+
+ The irony is that the economic harm from the lockdowns, with 100% certainty, killed more people and is still killing more people than the lives saved by the lockdowns, which I think are very few. Yeah, well, we're not done with that yet. We have no idea how many people the lockdown and the associated panic killed. That'll unfold over probably... Decades. Yeah, well, especially when you factor in things like the decrement in educational attainment that emerged as a consequence of the suppression of schooling. Because that's a whole lifetime of decreased economic productivity.

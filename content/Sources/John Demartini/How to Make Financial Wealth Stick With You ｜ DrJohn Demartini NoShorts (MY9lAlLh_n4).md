@@ -1,0 +1,1 @@
+ It's very important to literally ask yourself, what are the benefits of taking the forms of wealth you have today and put it in financial wealth? Financial wealth is one of the more universal forms because with finances you can go and convert things back into other forms of wealth. But if you don't have a value on financial wealth, it's not likely to stick with you.

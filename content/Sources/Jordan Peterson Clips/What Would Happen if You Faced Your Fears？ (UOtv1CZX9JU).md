@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=UOtv1CZX9JU
+
+ If you take people and you expose them voluntarily to things they are avoiding and are afraid of, you know, that they know they need to overcome in order to meet their goals, their self-defined goals. If you can teach people to stand up in the face of the things they're afraid of, they get stronger. And you don't know what the upper limits to that are, because you might ask yourself, if for ten years, if you didn't avoid doing what you knew you needed to do, by your own definitions, right, within the value structure that you've created, to the degree that you've done that, what would you be like?

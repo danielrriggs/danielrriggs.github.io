@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=xMmuJixn4WY
+
+ John 1 begins with, in the beginning was the word, the word was with God. The word was God. God is before all time. If he is the creator of the world, he created beauty. Beauty and truth are linked together. The postmodernists will tell us that beauty doesn't exist. It only exists in whatever you can create for yourself in life. But we believe that all the evidence around us points to a world, to music, to human love that all point to beauty that point to a creator, God.

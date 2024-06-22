@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=t1MwsAD1Kj8
+
+ Women have their sets of responsibilities. They're not the same. Because they're complicated, because women, of course, have to take primary responsibility for having infants, at least, but then also for caring for them. They're structured differently than men. For biological necessity, even if it's not a psychological issue, and it's also partly a psychological issue. Women know what they have to do. Men have to figure out what they have to do. And if they have nothing worth living for, then they stay Peter Pan. And why the hell not? Because the alternative to valued responsibility is impulsive, low-class pleasure.

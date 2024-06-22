@@ -1,0 +1,1 @@
+ People ask me, what do you think, where's the world going? And I said, if a person is a leader, they don't ask that. If a person's a father, they're always asking that. I say, take ownership of your true leadership. It's always present. And you decide where you want to take the world. It's up to you. Believe you have the capacity to transform the world.

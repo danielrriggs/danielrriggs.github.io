@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=KfMUKy4RcAk
+
+ Maybe you're sitting with your wife at the breakfast table and you say, well, what should we do today? Which is, what should our vision of the day be? What game are we going to jointly play? And what outcome do we both expect and desire from that? It's more important to think about it as desire because you play a game in relationship to a desired end. And that also means that you select the game you play according to your hierarchy of desire. And that's bloody well worth thinking about. What do you really want?

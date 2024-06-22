@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=mYiKoiFkTaA
+
+ negotiate with your wife so that you to have some time for each other even during that initial period of infancy maybe less frequently but some. And then make sure that you negotiate that on an ongoing basis going forward in your marriage it's really easy. For the intimate part of your marriage the sexual part to drop the priority twelve on a list of priorities of which you only ever address the top five so it's not like it's not important but. It falls far enough down so that it gets ignored and that's that's a very bad long term strategy you have to especially once you are married and you have children you have to consciously attend to the maintenance of romantic intimacy.

@@ -1,0 +1,1 @@
+ Anytime you're in a job that you can't see how that activity or that duty is going to help you fulfill what your highest values are, it's going to drain you. And you're going to want to escape. You're going to want to go and eat. You're going to want to take alcohol or drugs or something to keep yourself going. That's a symptom of an unengaged, uninspired, unprioritized life.

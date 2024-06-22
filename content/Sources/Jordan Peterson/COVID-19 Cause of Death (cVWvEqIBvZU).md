@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=cVWvEqIBvZU
+
+ I received an email from the Department of Health with a link to the CDC, advising me as a physician that they were going to adjust the way death certificates were completed. What did adjust death certificates mean? They said in this document, if you think that COVID-19 was a contributing condition, you can put it down as a cause of death. And I said, no, there's a box two on a death certificate called contributing conditions. That's where you put contributing conditions. If it's emphysema, if it's asthma, influenza, we put it in the contributing conditions box. We were being told with this disease, we could put it as a cause of death.

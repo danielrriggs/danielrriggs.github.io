@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=uVkm-5wJ0kI
+
+ People wonder, well, what's the meaning of life? Like, what's it all about? What justifies the suffering and the misery and all of that? It's like, well, that's what justifies it. It's like you put yourself up against that. You think, okay, with all of this pushing against me, how much can I push back? Could I move the horror an inch back with all the strength that I have at my disposal? Man, and the answer to that is, yeah, you can. It makes you better with regards to yourself, but it also makes the world a better place.

@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=nda-UcuMJK4
+
+ The shame that men feel when they're rejected by women is precisely the shame that they feel at knowing deep in their heart that they have not lived up to what they are capable of being. And that harsh judgement that women lay on men, which by the way is part of our sexual evolution, because we were shaped by sexual selection, which by the way is the operation of consciousness on the structures of matter at the most basic possible level. Well, it's a terrible rejection, but it's a salutary rejection. And that process of differentiated choice has shaped us into what we are. That action of consciousness, wanting the best from a potential partner, and selecting at least in part on that basis.

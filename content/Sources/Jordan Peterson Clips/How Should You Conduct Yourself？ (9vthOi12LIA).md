@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=9vthOi12LIA
+
+ And so then the question is, well, how do you conduct yourself as an entity existing on the horizon between the present and the future, or between order and chaos? That's another way of thinking about it. That's where you exist. And the answer is by envisioning the future. And so the way human beings have evolved is that we can see what's there, but we can also see what isn't there. We have an imagination, and an imagination is a visionary capacity. We have the ability to generate possible worlds in a psychological metaspace that's dissociated from the real world.

@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=Mdtex3WQno0
+
+ The shaman die. They commune with their ancestors. They commune with their ancestral spirit. They climb the ladder or tree or rope or pole that links the domains of existence together. So they climb up this pole into heaven where they commune with the gods. That's the classic shamanic experience. It's like Jack and the Beanstalk. It's a carryover from from shamanic tales, I think. There's a death and then a rebirth that's associated with the experience. There's a communion with ancestral spirits. The spirits of the forefathers, let's say, there's the transformation of that into something resembling communion with God, and then the transformation of people's understanding of death.

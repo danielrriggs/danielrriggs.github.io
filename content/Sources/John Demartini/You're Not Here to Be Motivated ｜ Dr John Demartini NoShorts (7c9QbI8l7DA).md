@@ -1,0 +1,1 @@
+ I want you to go out there and give yourself permission to do something extraordinary on planet Earth. I don't want you to have to be motivated. I want you to be inspired from within. I want you to create a ripple effect by the very life you live, by exemplifying what's possible, by empowering all seven areas of your life.

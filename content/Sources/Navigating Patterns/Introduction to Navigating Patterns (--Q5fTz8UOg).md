@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=--Q5fTz8UOg
+
+ Hello and welcome to Navigating Patterns. My name is Mark LeFever and I shall be your host on a journey through the language, the models, and the pitfalls of sense-making. Join our community of fellow wisdom seekers who are exploring the deepest and most important aspects of our world. Please dive in. There is a lot of interesting material here that many have found helpful and that perhaps you can find value in as well. As always, I want to thank you, dear viewer, for your time and attention.

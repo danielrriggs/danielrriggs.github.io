@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=F9XUedayplg
+
+ You have to be careful when you compliment people. You generally can't compliment people who are way above you in a status hierarchy, for example, because it's presumptuous. But peers, for sure. People you love, generally. Certainly people who are lower in the authority hierarchy than you. But if you can single out something they did, if you're alert to that, and you start fostering that around you, people just start doing more and more of it. And then you're just surrounded by that all the time. And that's so, like, how would you want anything better than that?

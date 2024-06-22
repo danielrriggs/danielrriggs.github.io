@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=BKjlNMFoi54
+
+ Let me tell you what I think the future is, honestly. And I think Canada is well on its way in helping to develop this future. I think hydroelectric power is the future. I think nuclear is the future, particularly small modular nuclear reactors, which we're going to be rolling out in Ontario and New Brunswick very shortly. And then on top of that, using developing natural gas and using carbon technology to capture the emissions so that you're not putting anything into the atmosphere. Those to me are the, and perhaps even geothermal, we have to be looking at ways that you can get secure, reliable base load that doesn't have a huge external impact on the environment, across the whole range of environmental impacts.

@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=wveEmmj8nkQ
+
+ If I want to be particularly successful on Tinder, I'd put up a representation of my face, but I'd make it bilaterally symmetrical. So I could duplicate maybe the left side of my face. I'd make my skin yellower. Why is that important? And why is it a marker for attractiveness? The more symmetric demand, the more sex partners he had. It turns out that bilateral symmetry is a measure of developmental health. The degree of yellow is important in attractiveness. It's a sign of metabolic health. Right.

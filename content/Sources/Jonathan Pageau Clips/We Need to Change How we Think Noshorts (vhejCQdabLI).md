@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=vhejCQdabLI
+
+ Even the text in Genesis, I believe that those are describing events, but they're not describing them in a way which would satisfy the modern historian. They're just not, and they don't have to, and it doesn't matter because that's not the point. We don't have those events anymore. The events are gone. All we have are the stories. And so those stories, if they don't reveal to us the higher truths in a manner in which we can engage with them, then those descriptions are futile. They're pointless. And so I think that what we need is a shift in our thinking, a very deep shift in our thinking, which is difficult to do. But unless we do that, we're not going to, we're not going to get through this meaning crisis.

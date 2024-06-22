@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=y9dXwY_hjXE
+
+ Marx also thought that what would happen inevitably as a consequence of capitalism is that rich would get richer and the poor would get poorer. So there would be inequality. The first thing I'd like to say is we do not know how to set up a human system of economics without inequality. No one has ever managed it, including the communists. And the form of inequality changed. And it's not obvious by any stretch of imagination that the free market economies of the West have more inequality than the less free economies in the rest of the world. And the one thing you can say about capitalism is that although it produces inequality, which it absolutely does, it also produces wealth. And all the other systems don't.

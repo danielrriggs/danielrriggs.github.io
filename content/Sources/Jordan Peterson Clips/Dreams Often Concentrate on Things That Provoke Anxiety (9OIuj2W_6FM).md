@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=9OIuj2W_6FM
+
+ Dreams often concentrate on things that provoke anxiety. So if you wake people up when they're dreaming, the most commonly reported emotion is anxiety. And so the dream is like the first stages of the attempt to contend with the unknown. And so the dream is half unknown and half known. Which is also why it's so peculiar, you know, because you kind of understand it, but you don't really. It partakes of the unknown and of the known. And it's the bridge between the two.

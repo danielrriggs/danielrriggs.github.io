@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=yhTASyYoOFY
+
+ Do you do anything that's remotely resembling civic responsibility? Do you are a member of a political party? Do you go to church? You know, I don't go to church because, you know, their beliefs don't match mine. It's like, who the hell cares about your beliefs? You're like 16. You don't even have beliefs. And if you think it's like you're right and the Catholic Church is wrong, good luck with that attitude. And that isn't to say that the church, for example, or a political party, doesn't need repair because all institutions are always falling apart and corrupt. That's a story as old as time. That's the evil uncle. But good, you have something to do. Go fix it up.

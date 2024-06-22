@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=Q7LRUajvKls
+
+ Well, what do people go watch when they go see a movie? They watch a romantic adventure. Well, why? Because that's what they want in their life. They don't want peace and tranquility and guaranteed basic income and the pleasures of infantile, ratified infantile dependence. They want a bloody adventure. And if they don't get a real adventure, they'll take a false one and wreak havoc. And we have no shortage of false adventures in our culture.

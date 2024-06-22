@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=WUr8G1byUjo
+
+ The things that transcend pain and suffering are more real than pain and suffering. Well what transcends suffering? The eternal verities transcend suffering and the higher order nature of man is the antidote to catastrophic suffering. It's the antithesis of hell. Well what is that? Is that real? Well if pain and suffering are real and if you can transcend them through allegiance with a higher order self, well then the higher order self is obviously not only real but more real. Well what is that? Well this is why Jung said Christ was a symbol of the self. How do you transcend the eternal realm of suffering? How do you escape from hell? It's the same question. How about voluntary self-sacrifice? How about that?

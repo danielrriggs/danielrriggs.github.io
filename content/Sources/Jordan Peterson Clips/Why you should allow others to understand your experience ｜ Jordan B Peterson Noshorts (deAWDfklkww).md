@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=deAWDfklkww
+
+ if you happen to be black, is if people say, you can never understand my experience. I think, but if a person who is not black can never understand the person who is, then we're in a hell of a lot of trouble. Like step back from that. We have to work hard at trying to understand each other, including each other's historic pain, including each other's current situations. But we have to keep open the possibility that we can and will try to understand each other.

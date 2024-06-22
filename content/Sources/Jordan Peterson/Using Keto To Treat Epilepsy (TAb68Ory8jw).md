@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=TAb68Ory8jw
+
+ So I initially set out on a journey to understand what on earth is the ketogenic diet doing. And that was quickly led to its use in neurology. So although a lot of people know the ketogenic diet as a fad diet or a weight loss diet, it's actually a 100-year-old evidence-based treatment for epilepsy. And it can stop seizures even when medications fail to stop seizures.

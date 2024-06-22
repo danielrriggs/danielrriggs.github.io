@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=z8dfLaocYIc
+
+ I either submit myself to this media retraining program with their experts. Yeah, well that's not happening. There's just not a chance that that will ever happen. I can't imagine a circumstance under which I would be willing to do that. I mean, I can't imagine how I would possibly sit through such a thing. You know, someone said I should just record it and put it online. No way. You wouldn't be able to stand yourself. You'd last like 30 seconds in there. I don't know if I'd like to put any educator through the horrible process of having to come and try to re-educate me either, because I can't see how that would go particularly well for them. I'm not sure who would end up re-educated in a situation like that.

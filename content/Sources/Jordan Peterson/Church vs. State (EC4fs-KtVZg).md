@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=EC4fs-KtVZg
+
+ They don't trust like a large government. They think there's too much, you know, prone to tyranny or something like that. But also be supportive of an institution like the Catholic Church, which is literally, you know, one guy who is a direct line to God. Right, but they can't tax. Well, I mean, there's... And they don't have a military. That is... And they can't conscript you. True, yeah. And they can't throw you in jail.

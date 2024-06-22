@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=aaEx6WBp1YU
+
+ My clients used to wonder, for example, if they should ever fight in front of their children. And my response to that always was, it's not whether or not you fight, it's whether or not you reconcile. And so what you wanna do is model for your children the fact that there's gonna be conflict about very important and difficult issues, some of those interpersonal, but some of them just practical, that that conflict is actually going to produce a fair bit of emotion, some of which might be negative and even rather intense, but that those things can be negotiated through and the relationship can come back together.

@@ -1,0 +1,2 @@
+[Fiction Writer on Jordan Peterson, Love and Wisdom (youtube.com)](https://www.youtube.com/watch?v=jugwCxdncp8)
+[Hard Lines and Grime Lines: Why we Trust Grimy Stories (youtube.com)](https://www.youtube.com/watch?v=oiyTfN3gRjg)

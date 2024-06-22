@@ -1,0 +1,1 @@
+ I want you to go out and do something amazing and not give up on your dream and take advantage of the tools I can give you. And let's go out and do something together and do something amazing on planet earth. I'm going to eventually pass on in this world. And it's going to be in your hands. I want you to go and do the same thing so you get the same rewards I've had.

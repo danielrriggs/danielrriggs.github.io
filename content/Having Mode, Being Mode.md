@@ -1,0 +1,2 @@
+[[Ep. 7 - Awakening from the Meaning Crisis - Aristotle's World View and Erich Fromm (yy47YzvGniQ)]]
+[Vervaeke and Peterson on Christianity, Agency, Love, Transformations and Language (youtube.com)](https://www.youtube.com/watch?v=0jArHxAnXoQ)

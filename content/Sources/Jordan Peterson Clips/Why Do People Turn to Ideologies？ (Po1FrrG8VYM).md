@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=Po1FrrG8VYM
+
+ What we know is established on a form of knowledge that we don't really understand and that if those two things are out of sync, so you might say if our articulated knowledge is out of sync with our dream, then we become dissociated internally. We think things we don't act out and we act out things we don't dream. That produces a kind of sickness of the spirit and its cure is something like an integrated system of belief and representation. And then people turn to things like ideologies, which I regard as parasites on an underlying religious substructure, to try to organize their thinking and then that's a catastrophe.

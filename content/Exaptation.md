@@ -1,0 +1,3 @@
+- Exaptation is a biology term for when a trait is repurposed during evolution rather than developed a new
+- [Michael Anderson](https://www.neuroscience.cam.ac.uk/directory/profile.php?mcanders=) and others argue this is also done by the brain
+- **Examples:** Human tongues (for taste, poison detection, and chewing, but exapted for speech); bird feathers (for temperature regulation, but exapted for flight).

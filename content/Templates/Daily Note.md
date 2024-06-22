@@ -15,16 +15,28 @@ cold exposure: "0"
 no alcohol: "1"
 no sleep aid: "1"
 ---
-<% await tp.file.rename(tp.date.now("YYYY-MM-DD"))%>
 # Log
-
+<% await tp.file.rename(tp.date.now("YYYY-MM-DD"))%>
 
 ---
 ## Reflection
+What's one thing that could have been done better, today? What can we do tomorrow so that this will improve?
+
 What's one thing that wasted your time?
-Why are you excited about achieving your long term goal? What's that going to feel like?
+
 What are you grateful for?
+
 What did you accomplish?
-What could have been done better?
-What do I want (the result)?
-### Meditation
+
+Why are you excited about achieving your long term goal? What's that going to feel like?
+
+### Meditation / Journal
+One thing from Meditations by Marcus Aurelius to reflect on - 
+
+### Reminders (shoulds)
+- Clean Room
+- Limit YouTube
+- Build Yoga shares.
+	- Yoga Music
+	- Meditation Music
+- Look @ your Screen Time - Did you get value from it?

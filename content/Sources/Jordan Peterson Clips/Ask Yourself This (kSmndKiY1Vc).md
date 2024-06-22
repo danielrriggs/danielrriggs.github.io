@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=kSmndKiY1Vc
+
+ That's a great question to ask yourself. If I didn't shy away, what might happen in my life? If I didn't shrink, if I didn't avoid, if I didn't stifle my voice, if I didn't turn a blind eye to opportunity, instead if I allowed all that to make itself manifest in my life, what would life be like? Well, the promise of the resurrection in some real sense is that the degree to which you will be revivified is precisely proportionate to the degree to which you have enough faith and courage to confront the catastrophe of existence.

@@ -1,0 +1,1 @@
+ Anything that you can't say thank you for in life is baggage. And anything you can say thank you for is fuel. It's not what happens to us. It's what we decide to perceive, what we decide to do with it, and how we act on it.

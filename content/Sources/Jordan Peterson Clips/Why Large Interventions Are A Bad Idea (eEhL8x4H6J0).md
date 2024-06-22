@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=eEhL8x4H6J0
+
+ Turns out that it's a really bad idea to group antisocial prone kids together in camps in the summer because they learn to compete with each other in terms of the manifestation of antisocial behaviour and they get better at it. It's like criminal camp. And so that single consequence of one part of the intervention was so negative that it overwhelmed the entire study and produced negative results.

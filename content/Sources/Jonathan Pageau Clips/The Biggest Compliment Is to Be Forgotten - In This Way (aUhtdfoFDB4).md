@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=aUhtdfoFDB4
+
+ To me, the most flattering thing has always been when I see someone saying something I said and not crediting me for it. The reason it's important that they don't credit me for it is that they're saying it just from their own heart and mind. Right? Meaning it's sunk in and they've sort of made it their own. With Lord of Spirits, the thing again that makes me most happy is not when people sort of fawn over Lord of Spirits. When I see people talking about Orthodox Christianity, religion, and you can tell that it's been shaped by the topics we've been talking about, you pick up phrases, but they've internalized it. They don't need to give me a footnote. It's kind of becoming their own worldview and that's what you're hoping.

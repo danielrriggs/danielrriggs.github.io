@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=iXI6B4gfxLg
+
+ I use the word monster in a very technical sense. I always use the word monster to talk about something which doesn't fit, something which is linked to kind of this dark potentiality that is a mixture that is too big, too small, you know, that is a kind of breakdown of normal categorization. That's kind of how I treat the word monster. And so the monster, in my understanding, although ends up being in a way related to evil and the way that darkness is often related to evil, it's not evil as such. And the monster also has a function and a purpose.

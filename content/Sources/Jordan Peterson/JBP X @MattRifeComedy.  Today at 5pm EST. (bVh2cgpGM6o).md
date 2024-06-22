@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=bVh2cgpGM6o
+
+ You're a comedian and you got canceled for a domestic assault joke. And then in response to that, instead of apologizing like a good boy, you put up a joke ad site about special needs helmets to protect the people who are offended by you. And now, to get yourself out of trouble, you're going to come on my podcast. I never said that. I was hoping it would make things way worse.

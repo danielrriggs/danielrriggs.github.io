@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=ZR2y8bQ2SEw
+
+ Buddha taught ultimate reality as silence, not logos, not word. So what these priests were doing were rotating the bookcases and meditating on the sound of rotation. The sound of these sacred books rotating would empty their mind, bring silence, get rid of thought. They looked upon it as mantra. Mantra is sound without sense. Right, and that was an attempt to silence the semantic brain. And I mean there's some psychological utility in that, but to sacrifice the semantic completely to the non-semantic seems like a terrible loss.

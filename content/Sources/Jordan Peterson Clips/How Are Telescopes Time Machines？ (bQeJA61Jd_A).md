@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=bQeJA61Jd_A
+
+ Why is it that when you build a technologically sophisticated telescope that can peer out into the vast depths of space that you're also looking back in time? So all telescopes are time machines of a sort, and that's by virtue of the fact that light, as fast as it travels, and it is the fastest propagating entity that we know about in all of science, it travels about this far, about one foot every nanosecond. So if you convert a feet to miles in nanoseconds to seconds, it travels about 186,000 miles per second, which is pretty darn fast, but it's not infinite. So therefore, whenever you're looking at something, you're not seeing it as it is right now. You're seeing it as it was sometime in the past.

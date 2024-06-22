@@ -1,0 +1,1 @@
+ Learn to say, no, thank you, but no thank you, to things that aren't truly, truly. If you're in integrity, you're helping them be more masterful and you're helping yourself be more masterful in life. So don't be afraid to say no. Now you can make, there's many ways of saying it. You could basically do it really tactfully or in some cases bluntly.

@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=2xhHxpn2mfk
+
+ The more you could embrace the worst enemy, the more radically you could transform for the better. Right? Because the worst enemy is going to bring everything that could possibly take you out against you. Worst enemy in an idea way or as a person? Either way. Either way. Whatever knocks you off your feet. Yeah. Okay. Now you think, well, something's coming to knock me off my feet. You might think, well, maybe I could use what knocks me off my feet to shed what's most useless about me.

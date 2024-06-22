@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=NZMq6rR0ziQ
+
+ Nietzsche announces the death of God. He's concerned that nihilism will arise and the drive towards something like communism and the drive towards the enhancement of victimization. And his cure for that is something like we need to formulate our own values. Yeah, but God answers, I'll break the pride of your power. Right, exactly. And I'll turn the world. And now look at where we are today. The world, if any world has been upside down, it's the world in which we live today. So that's the ultimate curse is that it doesn't just fall apart. It isn't just that. It literally turns upside down. And the heaven that's now iron, that's the heaven that will fall on you, right?

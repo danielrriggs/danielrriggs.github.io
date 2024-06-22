@@ -1,0 +1,1 @@
+ The reason why you want to have financial independence, where your money passively is earning you more than what you could be doing actively, is because that way you can do what you love because you love to do it, not because you have to do it. Doing something because you love to do it is way more inspiring than doing it because you have to do it.

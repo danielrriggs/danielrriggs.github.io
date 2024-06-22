@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=2SAexSgwVGI
+
+ We have to figure out how to value what single mothers do, or single parents, let's say, without simultaneously devaluing the necessity of having a father in the house. Because it's necessary. We have to be able to say to young men, it's like, take care of your damn kids, you weasel. You know? What are you doing walking away from them? What are you doing? That's the adventure of your life you're missing. And you know, if we were more forthright about this in some sense, we could advertise children to young men, because if you think that they're just a responsibility, that just means that you don't know what the hell is going on, because they're unbelievably fun.

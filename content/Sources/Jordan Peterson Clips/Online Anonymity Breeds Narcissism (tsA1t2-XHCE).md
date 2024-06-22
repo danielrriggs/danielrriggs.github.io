@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=tsA1t2-XHCE
+
+ But online, you know, there is this social distancing phenomenon that's well known to social psychologists and personality psychologists, that if you're in your car and thereby sheltered, let's say, from immediate interpersonal feedback, you're much more likely to act in a self-centered and self-aggrandizing manner because you miss that immediate feedback. And there's absolutely no consequence whatsoever to behaving in a narcissistic and self-centered manner online, as far as I can tell. Then that tends to promote, especially for people who are rather disinhibited to begin with, that promotes a kind of self-aggrandizing narcissism that would be absolutely unthinkable in real life.

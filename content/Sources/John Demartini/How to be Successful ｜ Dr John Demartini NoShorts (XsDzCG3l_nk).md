@@ -1,0 +1,1 @@
+ Your hierarchy of your values is dictating your destiny and it's dictating how you make decisions and see things and act upon things. So if you expect to live outside your values, you're going to beat yourself up and then measure yourself and level yourself as something wrong with you. So you are destined for success in your values, not somebody else's.

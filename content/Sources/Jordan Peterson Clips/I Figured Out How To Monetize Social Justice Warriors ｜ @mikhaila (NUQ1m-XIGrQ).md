@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=NUQ1m-XIGrQ
+
+ The first time I went on Joe Rogan, I made this horrible joke that I'd figured out how to monetize social justice warriors and you know, all the people who think that I'm an evil capitalist, which I am, thought, well, there's just evidence that he's an evil capitalist but it was also a joke, but it was also true. It's like, okay, like you guys, you hate capitalists and so you're gonna use your woke nonsense to go after people's reputations. Like, what's the funniest thing that can be done with that? Clearly, the funniest thing to do with that is to monetize it.

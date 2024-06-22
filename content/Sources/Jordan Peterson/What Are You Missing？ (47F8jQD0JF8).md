@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=47F8jQD0JF8
+
+ The emptiness in your life isn't because you don't have enough rights. You have all the rights there are. You have more than you should. And it isn't because you lack consumerist options. You have Amazon and pornography, man. You can get whatever you want whenever you want it. And if that's still not working, well, what are you missing? Well, maybe you're missing the opposite of that. A little bit of restraint, a little bit of sacrifice, some responsibility.

@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=vihS0d6DbqU
+
+ What is it that you should value and people say well being happy they don't even mean that by the way if you decompose what people mean when they say they want to be happy what it turns out they actually mean is they don't want to be miserable. They're way more concerned with avoiding suffering than they are with pursuing you know enthusiastic positive emotion. So even the statement i want to be happy is actually not an accurate reflection of what it is that you want.

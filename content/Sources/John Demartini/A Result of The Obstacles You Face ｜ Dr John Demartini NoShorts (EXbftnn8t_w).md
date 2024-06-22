@@ -1,0 +1,1 @@
+ Challenges what strengthen you and refine you and make you come up with creativities. In fact, original ideas, creativity, genius, all that is a result of the obstacles.

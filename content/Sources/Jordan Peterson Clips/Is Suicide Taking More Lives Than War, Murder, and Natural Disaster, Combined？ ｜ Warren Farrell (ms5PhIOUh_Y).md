@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=ms5PhIOUh_Y
+
+ More men in the UK have died by suicide in the past year than all British soldiers in all wars since 1945. Suicide now takes more lives than war, murder and natural disasters around the world combined. That might not include COVID, I presume that statistic. Stealing more than 36 million years of healthy life and the rate of suicide is growing much faster for men than for women.

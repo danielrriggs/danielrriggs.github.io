@@ -21,6 +21,6 @@ The second place thoughts come from are the inside; they come from our memories 
 - *Example: If you have memory of mathematics, when you see '2+2', prior to thinking about '2+2', you weren't think about math in your conscious mind. Your [[Mind]] calls up the appropriate information when it thinks about the question.*
 [[Samskara]]s don't only include things we've learned. Children who have been told that they suck can carry with them low self-esteem; or, children that have been told that nothing they ever do is wrong can grow up to be entitled brats.
 
-**What we think ultimately determines what we do & shapes our life.**
+**What we think ultimately determines what we do & shapes our life.** 
 By practicing [[Pratyahara]], we can block out the bad stuff and let in the good stuff.
 We can also plant good [[Samskara]]s in the mind, & learn to metabolize / digest the bad [[Samskara]]s.

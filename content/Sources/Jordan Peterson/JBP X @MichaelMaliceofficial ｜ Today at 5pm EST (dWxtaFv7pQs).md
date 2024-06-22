@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=dWxtaFv7pQs
+
+ Why do you think it's so difficult for people to learn that the dream of a workers paradise that's predicated on something like radical equality almost inevitably degenerates into, perhaps inevitably degenerates into something so murderous that you can't even comprehend it? Because I think it speaks to the inherent narcissism of intellectuals. We're the ones who are going to do it right. They didn't have me to run. They had dumb people. If only I'm sure you see this every single day with any faculty, any kind of administration, any college. We're the one. Everyone else is stupid, but me. If I was in charge of the ship, we'd land it to shore safely and happily.

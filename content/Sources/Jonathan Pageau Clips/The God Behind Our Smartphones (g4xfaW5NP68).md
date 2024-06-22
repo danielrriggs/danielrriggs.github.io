@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=g4xfaW5NP68
+
+ Mythically, we are caught in the myth of Narcissus, when I see all the granular angels and demons that live on my smartphone. I see the conversations I'm having with the diabolical, the Luciferic and the angelic, all the time on this little machine. And what's happening is I am gazing at my own reflection most of the time. The Greek myth is just getting absolutely hypnotized by the God that is yourself. And that God often neglects to tell you anything you don't like. Yeah. You know, I've repeated this a million times, but Joseph Campbell used to say, we all gag on true doctrine. Hmm. We all gag on true doctrine. So there's just a few thoughts.

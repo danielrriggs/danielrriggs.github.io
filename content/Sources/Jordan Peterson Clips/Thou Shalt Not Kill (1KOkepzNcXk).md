@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=1KOkepzNcXk
+
+ Got anything to say about, thou shalt not kill? It'll be brief. It's an incorrect translation, but I don't blame the King James people. I do blame any modern translator who translates it as do not kill. It's do not murder. Hebrew has two words for homicide or for killing, just as English does, kill and murder. In Hebrew, harag and racach. This is racach. It's clear it's do not murder. Murder is illegal killing. There is legal killing. You can kill an animal to eat it. You can kill a human in self-defense. So if it said do not kill, we would have to be pacifists and vegetarians.

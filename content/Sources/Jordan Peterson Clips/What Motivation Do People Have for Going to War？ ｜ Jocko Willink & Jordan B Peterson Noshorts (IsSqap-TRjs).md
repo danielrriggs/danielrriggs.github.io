@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=IsSqap-TRjs
+
+ What were the typical motivations of the people that you were pursuing? What were they fighting for? Guess what? If you're a 15 year old kid with no money, guess what's a good motivator? Money. And these insurgents say, A place to be. Yep. The insurgents say, Hey, we'll give you a hundred bucks to go launch an RPG at the American base. So that's their motivation. End of story.

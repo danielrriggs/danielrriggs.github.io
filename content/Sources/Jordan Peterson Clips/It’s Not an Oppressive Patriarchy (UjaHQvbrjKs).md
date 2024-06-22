@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=UjaHQvbrjKs
+
+ It's not an oppressive patriarchy, our culture. That's wrong. It's based on competence, fundamentally. Imperfect as that is. It's not like we don't make hiring mistakes. It's not like there aren't people who are foolish and blind and hire and fire based on attributes that have nothing to do with competence. But that's a sign of the deterioration of the system and the corruption of the system, and not an indication of its fundamental function.

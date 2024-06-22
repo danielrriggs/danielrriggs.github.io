@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=tm2BnaGuJdE
+
+ when you're balanced properly between order and novelty, that manifests itself to you as deep engagement. And that's a signal. And it's not merely cognitive. It's way deeper than that. That you're in the right place doing the right thing at the right time. And everyone wants that all the time. Like images of paradise are representations of that state of being. So it's there for you. But there are preconditions that you strive to aim at the best. And that has to be your fundamental ethos. And it's a decision that despite all of the calamities of being, that your primary ethical obligation is to work for the betterment of yourself and others.

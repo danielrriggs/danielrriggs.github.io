@@ -1,6 +1,6 @@
 ---
 
-kanban-plugin: basic
+kanban-plugin: board
 
 ---
 
@@ -9,12 +9,17 @@ kanban-plugin: basic
 - [ ] Mirror documents to some other cloud provider? (Public folder vs private ??)
 - [ ] Replace Copilot with local LLM
 - [ ] [(1) The Mathematical Problem with Music, and How to Solve It - YouTube](https://www.youtube.com/watch?v=nK2jYk37Rlg)
-- [ ] Update Credit Card stuff<br>- Pandora<br>- Toll tag
+- [ ] Update Credit Card stuff
+	- Pandora
+	- Toll tag
 - [ ] [[JBP's Self Authoring Program]]
-- [ ] Set [[personal goals]]<br>	- Find ways to paint the vision. Find ways to get excited about things.
+- [ ] Set [[personal goals]]
+	- Find ways to paint the vision. Find ways to get excited about things.
 - [ ] Dan Demartini core values inventory
 - [ ] Research: android file management practices
-- [ ] How to define Finance Check In process?<br>	- What to do with Discord?<br>	- Programmer KT event
+- [ ] How to define Finance Check In process?
+	- What to do with Discord?
+	- Programmer KT event
 - [ ] Get a new desk ??
 - [ ] [[Synology]] DS File - how to create file request from mobile app
 - [ ] [[Synology]] photo management
@@ -35,6 +40,7 @@ kanban-plugin: basic
 ## Backlog (medium)
 
 - [ ] Build out For Meditations Page
+- [ ] Habit Tracker - create weekly reports. Tie in to weekly review.
 - [ ] Update Billing Address (Fidelity, Amazon, ... ??)
 - [ ] Check Credit Card Statement for leaching
 - [ ] Cancel G4A
@@ -45,23 +51,26 @@ kanban-plugin: basic
 - [ ] Message Cameron?
 - [ ] Message Max Schmidt?
 - [ ] Research CRM tool (in Obsidian)?
+- [ ] Clean the Closet.
+	- Organize Tools
+- [ ] Thank Tom & Gma for birthday card
+- [ ] Re-paste CPU
+- [ ] Fix Synology Drive (AeroForce vs Sonic Boom)
 
 
 ## Backlog (short)
 
 - [ ] Clean Mom's Desk. Fix video clutter.
-- [ ] Habit Tracker - create weekly reports. Tie in to weekly review.
 
 
 ## Backlog (very short)
 
-- [ ] Clean Email
-- [ ] Cash checks
+- [ ] Laundry
+- [ ] Format Windows on Mom's new PC
 - [ ] Put dad's mobo in PC case
-- [ ] Throw Boxes in dining room away
+- [ ] Clean Email
 - [ ] Spice Prep
 - [ ] Prep Intra Workout
-- [ ] Laundry
 - [ ] [[Pick Mom's flowers]]
 
 
@@ -73,6 +82,6 @@ kanban-plugin: basic
 
 %% kanban:settings
 ```
-{"kanban-plugin":"basic"}
+{"kanban-plugin":"board","list-collapse":[false]}
 ```
 %%

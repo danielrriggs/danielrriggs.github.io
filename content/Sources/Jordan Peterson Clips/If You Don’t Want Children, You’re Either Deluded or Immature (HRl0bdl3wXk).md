@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=HRl0bdl3wXk
+
+ You want to have a relationship with someone, you want someone around you can trust, you want someone around you can tie your life to in this way that weaves a rope, you want someone you can grow old with, you want someone to be a mother for your children, assuming you want children and if you don't want children, well, you probably will and if you don't, you're either deluded or immature and you might say, well, no, the planet has too many people on it's like, yeah, whatever. Good luck with that. Every single one of your ancestors reproduced in an unending procession lasting three and a half billion years and they're all wrong and you're right. I don't think so.

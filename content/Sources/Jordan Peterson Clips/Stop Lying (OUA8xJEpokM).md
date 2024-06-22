@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=OUA8xJEpokM
+
+ If you have the adventure of your life, then everything that could possibly be granted to you will be granted to you. And then you might ask, well, how do you have the adventure of your life? And the answer is... You tell the truth. And then you might say, well, why is that an adventure? Well, first I could say, try it! But I could say, let's explain it. Why is it an adventure? And also, why is it your adventure? Well, if you're lying, whatever happens to you, that's not your adventure. If you're lying and something happens to you, that's the adventure of the spirit of the lie. The lie that you think you told, but that actually possesses you. And the adventure of the spirit of the lie is hell.

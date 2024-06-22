@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=eqmW-tVY2G8
+
+ It's important for lost young people, male and female alike, to develop a vision and take on some responsibility and understand that they have a vital role to play in the world. That the lack of their best hurts everything. And I think that's true. And the sad thing is that there's very many people who have not heard an encouraging word in their life. And it takes so little to encourage them that it's rather tragic.

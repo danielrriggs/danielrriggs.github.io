@@ -1,0 +1,1 @@
+Purely subjective experience of generating inner mental imagery (we know is not real) — what we typically mean by imagination.

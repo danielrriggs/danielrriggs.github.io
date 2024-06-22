@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=RqyFrzbZdNg
+
+ On average, men are more interested in things and women are more interested in people. And that's actually the biggest difference we know of psychologically between men and women. And even though men and women are quite similar, all things considered, the extremes make a difference. So you imagine that in order to become an engineer, you have to be extraordinarily interested in things rather than people. Well, most of those people are men. And if you want to become a nurse, well then you have to be much more interested in people than you are in things. And most of those people are women.

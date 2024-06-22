@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=tNn2DMGh24E
+
+ You think about your own life and the life of your parents. Well, where do you find your meaning in your intimate relationship? Is the responsibility there? Well, there is if you're if it's a relationship That's based on trust and love and fidelity your children your parents people who depend on you You're not going to have that. Well, that's a responsibility and and is wouldn't it be something if that's where the meaning was Well, it is

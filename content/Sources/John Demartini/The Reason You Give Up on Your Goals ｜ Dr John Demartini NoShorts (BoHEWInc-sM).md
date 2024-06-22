@@ -1,0 +1,1 @@
+ If an obstacle comes up and you interpret it as not missed a beat, it must not be important to you. If it's not more important than the obstacle, then it's not really the most important thing in your life.

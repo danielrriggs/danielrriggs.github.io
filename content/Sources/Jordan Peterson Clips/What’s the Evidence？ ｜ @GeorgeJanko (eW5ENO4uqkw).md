@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=eW5ENO4uqkw
+
+ What you do is a much more precise and accurate marker of what you believe than what you say. If you were fully integrated, what you say and what you believed would be the same thing. But that's pretty damn rare. And people will say, well, I believe in Christ. And I think you do do. Yeah, really. Look, what's the evidence for that? You are moving mountains with your faith.

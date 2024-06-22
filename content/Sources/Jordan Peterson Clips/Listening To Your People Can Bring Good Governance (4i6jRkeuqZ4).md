@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=4i6jRkeuqZ4
+
+ I talked at length to a Canadian politician, Preston Manning, and he told me that what he really liked was going out to make a speech, but that wasn't the part he really liked. He really liked the question period, because people would just tell him what they were concerned about, and then he derived the policies for his party as a consequence of addressing those concerns. So it was really a bottom-up enterprise. I would hope that had I been in that position, I would do what I'm doing when I'm on my tour, which is watching people and listening to them.

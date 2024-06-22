@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=udJ1C6lvpTI
+
+ If you saw a renewed America and by implication a renewed West, what would that renewal look like? I want us talking more and acting more on ordering a country, a nation, a society grounded in the value of each individual who is a member of a family, who is a family that is embedded in a nation with commitments to that nation. And yes, I think a revival of a belief that we are one nation under God. That doesn't mean a single religion or a single religious orthodoxy pushed from on high. In fact, I think it shouldn't be so, but broadly individual, family, nation, God as an affirmative alternative to race, gender, sexuality, and climate.

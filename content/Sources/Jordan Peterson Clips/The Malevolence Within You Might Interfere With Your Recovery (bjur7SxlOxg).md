@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=bjur7SxlOxg
+
+ The template for a recovery from obvious forms of addiction could be applicable to less evident forms of addiction, i.e. just patterns and habits. And because- Yeah. Well, so far, the things you've laid out would be in keeping with that idea. Would they? Well, you admit to the problem. Yeah. I really also, I think the idea of laying out your resentments is unbelievably useful because that's also a way of dealing with the malevolence within you that might interfere with your own recovery. Yes. If you're angry at yourself, if you're angry at your parents, if you're angry at the world, the probability that you're gonna be in the mental state that's going to allow you to chart a positive course for yourself is very, very low.
