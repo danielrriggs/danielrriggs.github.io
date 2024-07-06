@@ -1,6 +1,7 @@
 ---
 aliases:
   - Organizational
+  - Organize
 ---
 - [[Environment Organization]]
 - [[Permissive Influences of Motivation]]

@@ -1,0 +1,2 @@
+(in Hinduism)
+Ascetic. Renunciate.

@@ -153,7 +153,7 @@ Drive - valuations. Goal oriented. Interpretive processes. Give meaning.
 Nietzsche gave credit to the Cartesian Dualism view of the body for giving unity to our mental experience, but he didn't think that our mind was unified because in his view it was composed of many disparate drives. There either is no unified character, or it's an illusion.
 Nietzsche thought it wasn't only wrong, but dangerous, because it leads to a devaluing of the body & the physical world it belongs to.
 
-Earthly credibility was also probably an influential. I started ignoring what people said and I just looked at how they behaved. How they walk, stand, whether there's tension in their face or body. What kind of emotional state they walk around in. I got tired of thinking & arguing. I look around universities, and I don't see much vitality. I don't see people who are turned on. Presenly engaged & aware.
+Earthly credibility was also probably an influential. I started ignoring what people said and I just looked at how they behaved. How they walk, stand, whether there's tension in their face or body. What kind of emotional state they walk around in. I got tired of thinking & arguing. I look around universities, and I don't see much vitality. I don't see people who are turned on. Presently engaged & aware.
 
 In the gym I can:
 - Be present

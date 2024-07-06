@@ -1,0 +1,1 @@
+Laziness, or inertia. The animal quality in human beings.

@@ -1,0 +1,3 @@
+A negative emotion. Greed. When you are attached ([[Moha]]) to something, you become greedy.
+
+Desire fulfilled > "I now have it, and others don't have it, and I am proud of it! This is mine because I have it. It is not yours." It separates you from others. The fire of greed is horrible and is never fulfilled. It can make you physically sick. It can be very destructive. Such an emotion can make you obsessed with something. When you become greedy, you also become jealous of others and feel insecure.

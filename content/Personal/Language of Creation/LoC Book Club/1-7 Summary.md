@@ -1,0 +1,56 @@
+- Not sure about this oppositional framing stuff
+- He's intentionally not defining stuff
+- Viewing world as self similar fractal - integrated world view - mythological grammar; you can have dualities that are unified.
+- Form of the book is different; he wants you to work out implications from axioms.
+- Telescopes, microscopes; change level of detail when looking at the world. TV like microscopes. Filters your attention & relationship. Can warp your perception
+- The Language of Creation isn't a written language? Speaking isn't necessarily propositional (ex: speaking in story). There are multiple ways of stacking up meaning.
+- Alive - in relation to its environment (regarding speaking). The same words spoken in a different context can have different meaning. This can't be done with a book. Extra meaning in a book can be brought by the reader. (argument against Sola Scriptura). Problem of projection. The book becomes a mirror.
+- Multiple words put together aren't propositional. Ex: Fantasy / science fiction book.
+- The Logos - the word made flesh. The Creator is identified with the Word.
+- LLMs & AI
+- On words ... Heaven & Earth; trees; breath > Axiomatic forms. Basic experience.
+- Heavenly principle of trees ... 
+- Poetry isn't propositional
+- The Logos - isn't just the words. It's that which can speak the words. That's creation. A slight upgrade.
+- Heaven Vs Earth ... Looking Up (from our experience) vs looking down (from our experience) ... correspond to heliocentric & geocentric worldview.
+- Heaven & Earth are asymmetrical. Manuel - objected to Pageau's framing ... should have started with God & how God informs heaven. Heaven grants matter form. ... that which births; Aristotle calls it potential.
+- World - an ism; Materialism - corresponds to geocentric worldview. A place where there's no place for Spirit. Spiritual world - corresponds to idealism in philosophy (idea that there's no material world, or, that it doesn't matter).
+	- Social construct - "I identify as" - saying I can control the material world by my spirit. I am a teapot because I said so. Material reality doesn't have any actual impact on the world. That's the conflict he's setting up. What he's criticizing is Descartes' dualism who splits the world in two. Iin the early part of the enlightenment Francis Bacon had an integrated worldview ... "nature, to be commanded, must be obeyed".
+	- Pageau's trying to heal that split ... The symbolic world ... the unified, integrated world.
+- The abstractions disappear when you participate with it; as it gets expressed in time (as its lived). That's the process that we're in. We participate in the communion between heaven & earth. The thing that makes you look up is your telos (the purpose you're pursuing). The thing that make you look down are the tools available for you to use to act.
+	- Connecting propositions & time (> re: abstractions).
+- He's talking about symbols; is shining a light on it; without using them. He isn't writing symbolically.
+- Language of Creation is explicitly middle out thinking.
+- Netizche used symbolic language to convey meaning.
+- Fact - a spirit that has manifest
+	- Ex: I was hungry and I ate. I created a fact. That isn't actually what happened, but it's a way to talk about 
+- Ex Tai Chi / Yoga ... fire / water ... rising, falling movements; ball of foot, heel of foot; masculine; feminine.
+- A lot of it is imagining it; you have to place yourself in that relationship. This is related to gaining eyes to see. Ex: I didn't even conceive of some potential way of relating to something.
+	- Non-logical identity (hate this word) - identity that isn't derivable by logic (going up). Logic would be going down (down the pat of things already discovered). There's things that can be potentially revealed to you (which are above you, which hold things together) that seem paradoxical. Also why I don't like the traditionalist vs materialist worldview; they seem to be in opposition until you can get to the principle that is joining them together... now we go back to the spirit; time; living. Not by holding on to them as absolute (in some sense). Realizing that you're blow something & looking up to it opens up new ways to participate in reality.
+- Mark: People don't like drawing lines because they want the world to be accurate and precise; scientific worldview.
+- Manuel - making a shelf - greek called it an Art. You have to make it. The way you do that is by having a purpose. Nobody could understand Jesus until he died. You can't understand what he did until you have the whole story.
+	- The shelves (making some decision about it) are representative of a ?? w/ reality. What do I base my action on? I can't base my actions on things I know. I need to have hope. And then live it. I need to have a relationship with the shelf. Update it. Find a new purpose for it. If I do that properly, then it will be a proper shelf. If I don't it'll die & won't do it's purpose. Drilling a hole is drawing a line (making a judgment).
+- John - mascule & feminine; you decode the categories through your intimate experience (subjective experience) with life.
+- In the bible, the process of participating = sewing seeds. No communing naked, no birth. Seed = masculine; sewn in the earth (feminine). Can produce offspring.
+- There's the Spirit - you can participate with it & it can reveal things if you go with it. You might see things in the world that you didn't see before; that's a way the spirit can educate you. The other thing is sewing the seeds - go back. Ex: "I'm going to read this book; I don't understand it. What makes me not understand it? Not why don't I understand it?" Now you start seeing things about yourself. I'm not naked. I'm closed off; buffered; between this information & what's resonating with inside of me.
+- - ?? ... incomplete information; not entirely coherent
+- I see the bible as a bunch of mental movements. A participation in these movements.
+- There are patterns that are like moving. Biblical language has been promised to you (there's hope). What is your job? To find that participation. How can I make that heavenly thing that's promised to me give birth inside of me? And have that spirit go through that (in its expression). It's a dance. You don't get to propositionally know what you're doing. I don't need to know the other parts. There's a responsibility to give over the parts that aren't relevant... relevance realization.
+- Ex: Peterson's connecting things for you in new ways ("I'm not telling you anything you don't already know"). Not informing you of anything new; is conveying new knowledge. Conveying pieces of facts in a new way.
+	- The goal is connecting information to experience. That's how you live with proper orientation in the world. Ex - elemental categories = categories of principles of motion. You can replace fire / water with whatever. What matters is that you can mimic (mirror) (Girard) that action in the world. That's what connects you to those things. Making meaning. That's how you relate to the things around you. Having a quality relationship with the things around you is to be participating with it in the right way. Whatever that means. You have to draw lines to do that & they won't be precise.
+- What's Pageau trying to do with the book? Reenchantment.
+- Embodiment ... it's not about personal embodiment. The enchantment is already out there and it informs you. it isn't about you. It's about being informed. You shouldn't be drawing it into you, you should conform to it so you can connect with everybody else.
+- Enchantment ... disenchantment ... re-enchantment ... 
+	- Enchantment isn;t in the world as an objective preexistent thing (OMR fallacy)
+- Crisis of Faith - disenchantment
+- Meaning Crisis - non-enchantment
+- The heavens were established by God; they weren't pre-existent. 
+- Oppositional frames kill hope. That's why you need the 3rd thing.
+- Truth as truing up a table - neither Truth nor 'my truth'; it's a participatory type of an understanding of the context. It's more of a lens than an understanding in a contextual sense.
+- Revisit dis vs non-enchantment
+- Zarathustra isn't pointing to a death of God at a specific point in time; what about an as-yet resurrection?
+	- Function of Adam - to name and to tend; Naming function (utility of words) vs pruning function; left-right brain dichotomy.
+		- Naming function - cutting away that which it isn't.
+- Utility of language;
+- Not bringing the world into integration with you, but integrating into the world.
+	- Integration vs extragration

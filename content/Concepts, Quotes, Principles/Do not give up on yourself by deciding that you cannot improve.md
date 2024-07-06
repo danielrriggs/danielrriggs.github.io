@@ -1,0 +1,1 @@
+History tells us that you have the power, capacity, and ability to change yourself - provided you decide to do it. When you have learned how to decide, how to make a resolution, when you work to increase your determination, then you can change your personality.

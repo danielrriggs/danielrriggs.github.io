@@ -1,0 +1,3 @@
+The prime desire. The mother of all other desires. From it arise all the others. Kama gives rise to the desire to satisfy or gratify the senses. It also gives rise to the desire to help others selflessly. Kama motivates you to do anything and everything. But it is blind desire: it has no sense of discrimination, no judgment, no understanding. It motivates you to something just to fulfil that desire - simply because it exists.
+
+When kama is not fulfilled, you get angry and frustrated. That is [[Krodha]].

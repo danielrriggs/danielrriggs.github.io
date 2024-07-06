@@ -1,0 +1,1 @@
+If you become emotionally disturbed, then you cannot do anything worthwhile.

@@ -58,3 +58,8 @@ The thing that can disprove our fears is the thing that the ahamkara prevents us
 The [[confirmation bias]] of ahamkara can shape our information. People will misinterpret information based on their sense of identity to confirm what they already believe.
 
 See [[Ego work]].
+
+###### Notes from The Art of Joyful Living
+Since childhood, your concept of "I" has become so strong that it has forgotten its proprietor, its real owner, the place from which the knowledge comes. It is the [[Atman]] that appointed this sense of "I" to its position, but the ego has forgotten its role. The ego says "This body is mine, this home is mine, this wife is mine, these children are mine."
+
+The ego is that which separates you from the whole. It builds a boundary around you and makes you petty and selfish, and you don't want to share with anyone. The more egotistical and the more egocentric you are, the more you do not communicate with or related well to others. Observe how much you feed your ego.

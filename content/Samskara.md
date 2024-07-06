@@ -3,7 +3,7 @@ aliases: []
 ---
 A collection of experiences and undigested emotional energy that gets stored in your mind.
 
-A memory impression. Thought generating machines that live in our [[Citta]] which generates thoughts at the right time.
+A memory impression. Thought generating machines that live in our [[Chitta]] which generates thoughts at the right time.
 
 In the east, they understand the western term "[[Personality]]" as a collection of samskaras.
 
@@ -12,7 +12,7 @@ A lot of what hold us back and propel us forward are samskaras.
 Samskaras can exist to protect us in some way.
 - *For example, we may have an attribute of our identity which prevents us from looking at other parts of ourselves.*
 
-Our [[Citta]] has a storehouse of all of our samskaras. The [[Buddhi]] is constantly scanning for the appropriate samskara to use in a given environment.
+Our [[Chitta]] has a storehouse of all of our samskaras. The [[Buddhi]] is constantly scanning for the appropriate samskara to use in a given environment.
 - *For example, if I have a phobia of dogs because I was bitten by a dog as a child, that samskara isn't going to be active when I'm riding on the subway. But the moment the doors open and a guy with a big dog walks onto the subway, it's activated. The [[Buddhi]] calls up negative emotional energy, in this case.*
 
 A samskara is like a memory folder in your [[Mind]] with lots of files which are your prior experiences that share a common thread. If you have some negative experiences with dogs and some positive experiences with dogs, you can feel both negative and positive emotional energy. Like, wanting to pet it, but also some fear.

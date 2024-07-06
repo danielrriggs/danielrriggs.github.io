@@ -1,0 +1,1 @@
+Persian word meaning "happiness" or "marriage".

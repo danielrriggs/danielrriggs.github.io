@@ -8,6 +8,6 @@ The Vedic system has 5 parts of the mind:
 - [[Buddhi]]
 - [[Ego|Ahamkara]]
 - [[Samskara]]
-- [[Citta]]
+- [[Chitta]]
 
 See [[Vedic Psychology]] for more.

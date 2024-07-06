@@ -1,2 +1,1 @@
-A principle in neuroscience in which the brain adjusts to repeated signals.
-- *Ex: the first time you drink coffee or alcohol, it's really powerful; when you drink it regularly, it's effect is reduced.*
+In engineering, how far you can deviate from perfection.

@@ -41,6 +41,6 @@ See [[There is a war between the ahamkara and our buddhi]].
 
 The [[Ego|ahamkara]] is fundamentally comparative. Any time you're putting someone else down, that's the [[Ego|ahamkara]].
 
-For people will very well developed [[Buddhi]]s, or more importantly, [[Buddhi]]s that are stronger than their [[Ego|ahamkara]], we see different responses in these situations. The humbler a person is, the more responsive they are to feedback. The people who are more responsive to feedback ultimately tend to do better.
+For people with very well developed [[Buddhi]]s, or more importantly, [[Buddhi]]s that are stronger than their [[Ego|ahamkara]], we see different responses in these situations. The humbler a person is, the more responsive they are to feedback. The people who are more responsive to feedback ultimately tend to do better.
 
 The western concept of [[Personality]] is essentially a combination of all of the [[Samskara]]s you have.

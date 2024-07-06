@@ -15,7 +15,7 @@ We're going to train our attention by staring at the center of the Yantra for aw
 #### Yantra Meditation
 This is phase 2 of [[Trataka]] practice, which is [[Trataka]] on a Yantra.
 
-When we close our eyes, we can notice the screen of our mind, or [[Akash]] (which is in our [[Citta]]). It is almost like a monitor in our brain, where we can visualize things, imagine things, or see after images.
+When we close our eyes, we can notice the screen of our mind, or [[Akash]] (which is in our [[Chitta]]). It is almost like a monitor in our brain, where we can visualize things, imagine things, or see after images.
 - From a biological perspective, our eyes have pigments called rhodopsins that become exhausted when we stare at something too long. As a result of rhodopsin exhaustion, we see “after images” that include the negative or opposite color of what we were gazing at. Internal trataka leverages these principles to create a visual object for us to focus on in the mind. This practice also teaches us [[Vairagya]].
 
 #### Example Yantra Meditation (#WIP - guided meditation?)

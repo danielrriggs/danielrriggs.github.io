@@ -1,7 +1,7 @@
 When trying to [[Studying|study]], on some days you can read a page once and everything sinks in. On other days, you can read it 10 times and little sinks in.
 
 Assertion 1 - the more calm the active [[Mind]] is, the easier it is to learn.
-- Studying in a burning building isn't effective because your [[Mind]] is thinking of a lot of different things. The more the [[Mind]] is distracted, the more activity there is in the conscious mind, the hard it is for things to sink into the [[Citta|unconscious]] .
+- Studying in a burning building isn't effective because your [[Mind]] is thinking of a lot of different things. The more the [[Mind]] is distracted, the more activity there is in the conscious mind, the hard it is for things to sink into the [[Chitta|unconscious]] .
 
 Assertion 2 - the yogis believed that all knowledge comes from within.
 - This posits that it isn't the information in the page or the # of repetitions (of reading) that's important; it's actually the calmness of my [[Mind]] that determines how many times I need to read the page. If the knowledge was just on the page, then we should only have to read the page once. However, our experience of studying is that a "light bulb goes off", which is our discovery of that knowledge inside of us. Knowledge is a thing that is inside our mind, which is then recalled.
@@ -10,7 +10,7 @@ The yogis looked at things like creativity & being able to invent stuff. Does th
 Use the hour of [[Brahmamuhurtha]] to [[Studying|study]] if it works for you.
 
 Take aways:
-The more we can calm down conscious thoughts, the more knowledge actually sinks in. Learning is actually recalling knowledge from our [[Citta|unconscious]] [[Mind]] to our conscious mind.
+The more we can calm down conscious thoughts, the more knowledge actually sinks in. Learning is actually recalling knowledge from our [[Chitta|unconscious]] [[Mind]] to our conscious mind.
 
 See [[Studying]] for tips on how to study well.
 

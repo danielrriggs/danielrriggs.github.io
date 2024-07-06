@@ -4,7 +4,7 @@ aliases:
 ---
 The more calm your [[Sakshi Bhava|conscious mind]] is, the easier it will be to learn.
 
-If you're calm, the thing you're reading will "sink in" through the [[Sakshi Bhava|conscious mind]] & you'll learn (meaning it will be implanted in your [[Citta|unconscious mind]], to be recalled later).
+If you're calm, the thing you're reading will "sink in" through the [[Sakshi Bhava|conscious mind]] & you'll learn (meaning it will be implanted in your [[Chitta|unconscious mind]], to be recalled later).
 
 #### How to study efficiently
 ###### Adapt your [[Circadian rhythm]] to your biology

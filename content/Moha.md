@@ -1,0 +1,1 @@
+A negative emotion. The sense of attachment ("this is mine!") which results from fulfilling a desire.

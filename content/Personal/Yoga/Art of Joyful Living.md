@@ -33,5 +33,5 @@ To develop the memory, learn to consciously relax for a few minutes each day. Sl
 
 Exercise: sit in a comfortable & steady posture. Can use a chair if you're untrained & can't sit on the floor.
 Steady posture - head, neck, & trunk are in a straight line.
-Breathe diaphramatically (on exhale: ab muscles will come in & expel the spent gas. ab muscles assist the diaphram in expanding).
+Breathe diaphragmatically (on exhale: ab muscles will come in & expel the spent gas. ab muscles assist the diaphram in expanding).
 Count from 1 to 100. Count from 100 to 1. Note the mental distractions. Eventually you can extend this exercise up to 1000.

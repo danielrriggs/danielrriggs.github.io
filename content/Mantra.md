@@ -15,22 +15,22 @@ A lot of times, people will choose a mantra (in English) that cultivates some id
 
 #### Different ways mantra effects the [[Mind]] (& even works beyond mind)
 Related: [[Nature of Mind]]
-We have a [[Consciousness|conscious]] [[Mind]] & an [[Citta|unconscious]] mind.
+We have a [[Consciousness|conscious]] [[Mind]] & an [[Chitta|unconscious]] mind.
 
 [[Positive thinking]] generally doesn't produce transformation (it doesn't change us much).
 Mantra practice isn't about the power of [[Positive thinking]].
-The problem with mere positive thinking is that it's [[Consciousness|conscious]]; nothing sinks into the [[Citta|unconscious]].
+The problem with mere positive thinking is that it's [[Consciousness|conscious]]; nothing sinks into the [[Chitta|unconscious]].
 
 ###### Stage 1 of Mantra Practice: [[Japa]], calming the mind
 A mantra can act as a [[Dharana]] to calm ([[Japa]]) the conscious mind.
 
-Related application - You [[Studying|study]] better when you're calm because information more easily gets past the [[Consciousness|conscious]] [[Mind]] & into the [[Citta|unconscious]], better.
+Related application - You [[Studying|study]] better when you're calm because information more easily gets past the [[Consciousness|conscious]] [[Mind]] & into the [[Chitta|unconscious]], better.
 - When you're distracted, you re-read the same thing over & over again & it doesn't "stick".
 
 ###### Stage 2 of mantra practice: the mantra facilitates a [[Dhyana]] which implants into the unconscious, & then generates thoughts for you
-Once the mantra is implanted in the unconscious, it will start to "generate up" from the [[Citta|unconscious]] to the conscious, & it will start to populate your thoughts.
+Once the mantra is implanted in the unconscious, it will start to "generate up" from the [[Chitta|unconscious]] to the conscious, & it will start to populate your thoughts.
 - *Example: clinical addiction psychiatrists often see patients suddenly snap out of addictions when they realize that enough is enough. When asked, "how did you come to realize that 'enough is enough'"? The always have a very emotionally focusing experience.
-	- Anecdotal Example: The first time a particular patient held their newly born child for the first time, all thoughts suddenly fled their [[Mind]] & their [[Mind]] was dominated with the thought 'enough is enough'. The next day when they woke up & they looked at their liquor cabinet, that [[Indriya]] gave them the thought, 'let's have a drink' like they had done every day before for the last 10 years. But suddenly, out of their [[Citta|unconscious]] [[Mind]] the thought 'enough is enough' arouse.*
+	- Anecdotal Example: The first time a particular patient held their newly born child for the first time, all thoughts suddenly fled their [[Mind]] & their [[Mind]] was dominated with the thought 'enough is enough'. The next day when they woke up & they looked at their liquor cabinet, that [[Indriya]] gave them the thought, 'let's have a drink' like they had done every day before for the last 10 years. But suddenly, out of their [[Chitta|unconscious]] [[Mind]] the thought 'enough is enough' arouse.*
 - *During these transformational experiences, the [[Mind]] is always very calm*
 
 ###### Stage 3: Achieving [[Samadhi]]. The spiritual level of mantra practice. Cultivating cosmic forces to create manifestation in life.

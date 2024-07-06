@@ -1,0 +1,1 @@
+A momentary joy (bliss) lasting a short time.

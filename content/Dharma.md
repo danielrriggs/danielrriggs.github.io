@@ -2,6 +2,7 @@
 aliases:
   - dharma
   - duty
+  - duties
 ---
 (Dhar-muh)
 

@@ -1,0 +1,1 @@
+There is no such thing as an action that does not give a fruit. No one can overturn this law. When you make a sincere effort, you sometimes feel that you are not improving, but that is not possible. If you do not see progress, then it may be that you are not making an effort  truthfully, with full determination, and with all your might.

@@ -1,0 +1,1 @@
+The more you isolate yourself, the more you contract your personality. The more you expand selflessly, and with an interest in others' welfare, the more you enjoy life.

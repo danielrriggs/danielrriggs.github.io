@@ -1,0 +1,1 @@
+Then, you can coordinate all your resources to completing that mission, and no fear will come to you. But if you do not have any aim in life, then you are constantly afraid of losing things that are actually already lost, and you begin to lose your self-confidence. The moment you lose your self-confidence, your mind cannot decide about anything on time.

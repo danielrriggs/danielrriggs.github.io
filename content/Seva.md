@@ -1,0 +1,1 @@
+Sanskrit for "service" which also means "to enjoy".

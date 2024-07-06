@@ -17,9 +17,9 @@ The rate of diagnosis is increasing. People feel like they're struggling with th
 - *It seems that something about our [[Mind]], ability to focus, and ability to stay motivated is changing.*
 
 ###### Nonclinical Interventions
-- how to organize,
+- how to [[Organization|Organize]],
 - how to prioritize,
-- how to deal with procrastination,
+- how to deal with [[Procrastination]]
 - how to manage your emotions better,
 - how to find motivation,
 - how to meditate

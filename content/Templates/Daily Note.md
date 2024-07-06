@@ -2,7 +2,6 @@
 yoga: 
 weights: 
 no pmo: 
-no THC: 
 sunlight: 
 meditation: 
 stop caffeine: 
@@ -40,3 +39,4 @@ One thing from Meditations by Marcus Aurelius to reflect on -
 	- Yoga Music
 	- Meditation Music
 - Look @ your Screen Time - Did you get value from it?
+- Yoga Book Club
