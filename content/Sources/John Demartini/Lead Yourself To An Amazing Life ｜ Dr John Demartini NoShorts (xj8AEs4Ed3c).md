@@ -1,1 +1,0 @@
- It's all about your perceptions, decisions and actions and the questions you ask yourself in your life. And if you ask amazing questions, you can lead yourself to an amazing life.

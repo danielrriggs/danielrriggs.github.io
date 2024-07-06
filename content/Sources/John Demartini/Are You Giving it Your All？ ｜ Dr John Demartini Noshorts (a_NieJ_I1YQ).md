@@ -1,1 +1,0 @@
- The last day of your life you're going to be asked a question innately within you. Did I do everything I could with everything I was given? And you want to be able to say yes. You want to be able to say I gave it my all. I gave it my all.

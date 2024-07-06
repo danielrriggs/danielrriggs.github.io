@@ -1,1 +1,0 @@
- They said that the universe is nothing but love, and it's all light. And when the human mind awakens to the love and light that's ever present, it sees and is graced by the magnificence of the universe.

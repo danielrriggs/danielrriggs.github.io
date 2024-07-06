@@ -1,1 +1,0 @@
- If you try to stay only positive thinking, you'll end up frustrating yourself because you need foresight to think of what are the downsides and then prepare for those and handle those things.

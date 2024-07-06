@@ -1,1 +1,0 @@
- I want you to know that there are seven areas of life that you can store potential wealth, that all of which can be converted into eventually financial wealth if you wanted. You may never, may never desire to, but they're all forms of wealth. Genuine wealth is anything that fulfills your life.
