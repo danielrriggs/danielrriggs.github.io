@@ -1,0 +1,1 @@
+A spiritual teacher or instructor. Literally, one whose character and behavior should be followed by others.

@@ -1,0 +1,1 @@
+The act of begging or asking for alms.

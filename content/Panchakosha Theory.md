@@ -4,7 +4,7 @@ aliases:
 ---
 ###### A hierarchical theory of [[Personality]]. Our [[Personality|personhood]] is composed of different elements.
 
-Pancha means "five". Kosha means "sheath" (as in, a sword sheath).
+Pancha means "five". [[Kosha]] means "sheath" (as in, a sword sheath).
 
 The yogis discovered that people are made up of 5 layers, or, sheaths:
 1) [[Annamaya Kosha]]

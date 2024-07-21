@@ -1,6 +1,6 @@
 Personal observances; the second step in the [[Eight Limbs of Raja Yoga|eightfold path of Raja Yoga]].
 
-The Niyamas are focused within.
+The Niyamas are focused within. They're intended to harmonize one's inner feelings.
 
 5 Personal Observances:
 - Purity. Cleanliness. ([[Shuddha]])

@@ -4,7 +4,7 @@ aliases:
 ---
 The practice of sensory withdrawal, or, sensory control. The fourth step in the [[Eight Limbs of Raja Yoga|eightfold path of Raja Yoga]].
 
-Pratyahara is a set of techniques that teaches us to restrain our sense organs, or [[Indriya|Indriya]]s.
+Pratyahara is a set of techniques that teaches us to restrain our sense organs, or [[Indriya|Indriya]]s. The practice is concerned with checking and curbing outgoing tendencies of the [[Mind]] so that awareness can be directed inwards. It also includes cutting the inner psychic and mental sensations.
 
 To meditate, one-pointedness of the [[Mind]] involves restraining our sense & being able to put our attention where we want it to go, instead of chasing after sensory stimuli.
 - Example: fidgeting, hunger, moving, physical discomfort, etc.
@@ -37,7 +37,7 @@ As we retreat away from boredom, this creates a real problem. Rather than contro
 
 To overcome some of the [[Addiction]]s of the sensory world & to direct our thoughts in positive ways, it starts with control over the sensory organs, which can be achieved through the practice of pratyahara.
 
-Pratyahara practices will trim / reduce each sense, one by one, until we're ready for [[Dharma|dharma]].
+Pratyahara practices will trim / reduce each sense, one by one, until we're ready for [[Dharana]].
 After that comes [[Dhyana]]. It's the opposite of boredom. [[Mind]] is looking for a sensory outlet.
 
 As we trim all 5 senses away & are left with unadulterated attention, we have an absence of [[Mind]] & boredom. All of the things that come with mind, also go - [[Dukkha|suffering]], like fear, and [[Ego]] melt away, which has a liberating effect. As we enter the state of pure attention & our troubles go away, our ability to act becomes much more potent. Much of our what prevents us from acting are things like [[Ego]], attachment, and emotions - anxiety from consequences. If we want our mind to obey us, we need to get rid of all of that stuff, which starts with [[Pratyahara]].
@@ -47,3 +47,9 @@ In the [[Bhagavad Gita|Gita]], [[Krishna]] tells [[Arjuna]] his attention is lik
 Pratyahara Practices:
 [[Kaya Shtiram]]
 [[Sound with Eyes Open and Closed]]
+[[Antar Mouna]]
+[[Ajapa Japa]]
+[[Trataka]]
+
+---
+In pratyahara, what you are doing is just focusing. In order to say 'yes' to one thing, you have to say 'no' to a lot of other things. Pratyahara is the ability to say yes to one thing. When you do that, you get [[Dharana]].

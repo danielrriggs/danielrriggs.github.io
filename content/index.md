@@ -10,8 +10,6 @@ Start with one of these:
 - [[Yoga]]
 - [[ADHD & Motivation Overview]]
 
-Concepts:
-- [[Concepts]]
+Concepts, Quotes, Principles:
+- [[Concepts, Quotes, Principles]]
 
-Related Site:
-- [index (petersonsphere.github.io)](https://petersonsphere.github.io/Petersonsphere/)

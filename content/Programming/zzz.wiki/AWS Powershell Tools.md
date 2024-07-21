@@ -1,1 +1,0 @@
-https://docs.aws.amazon.com/powershell/latest/userguide/pstools-getting-set-up-windows.html

@@ -1,6 +1,8 @@
 (bʊd-dhi)
 
-The counselor within you.
+From the root बुध् / budh (to awaken).
+
+The counselor within you. The rational and intuitive intelligence.
 
 The faculty that **knows**, **decides**, and **judges**.
 

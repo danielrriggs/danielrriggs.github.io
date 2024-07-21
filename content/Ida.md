@@ -1,0 +1,1 @@
+Inner world. Left [[Nadi]]

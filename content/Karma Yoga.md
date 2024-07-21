@@ -1,1 +1,3 @@
 A system of Yoga that focuses on becoming enlightened by doing good deeds, performing selfless action, and making the world a better place. See [[Karma]].
+
+Karma Yoga isn't explicitly mentioned in the [[Yoga Sutra]]s, but it is implicit in many verses. For example, the [[Yama]]s and [[Niyama]]s imply the practice of Karma Yoga in daily actions and duties. Karma Yoga is also implicit in the verses on [[Bhakti Yoga]].

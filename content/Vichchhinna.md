@@ -1,0 +1,1 @@
+Tensions that bring neuroses, phobias, depression and so on in life. [[Yoga]] will eventually resolve these tensions by allowing you to accept yourself and harmonize your drives.

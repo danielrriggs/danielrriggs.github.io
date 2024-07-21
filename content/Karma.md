@@ -25,7 +25,6 @@ The exercise can't be done in your head. You have to actually do it. In clinical
 An exercise to explore your karma - think about little things in your life that you know you should do, that you could do, that you would do. Think about tiny things, not big things. You probably aren't ready for where your karma is leading or your big dharmas, yet. You need to do the tiny dharmas of your life to get you moving in the right direction so that your karmas will present to you the larger dharmas when you're ready.
 
 ###### Standard Rubric for what your dharma is at different stages of life
-
 The Eastern perspective on this is the [[ashrams]], but there's a western perspective on this too.
 
 In Western psychology, [[Erik Erikson]] said life is divided into different stages & people have different psychological growth points at different stages of their life

@@ -1,0 +1,1 @@
+Gross dimension. That which is fixed and manifest.

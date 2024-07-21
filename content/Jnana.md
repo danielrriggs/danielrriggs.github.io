@@ -7,7 +7,7 @@ aliases:
 ---
 (Gyaan/Nyaan)
 
-Subjective knowledge, or, understanding. Must be experienced. Wisdom.
+Subjective knowledge, or, understanding. Must be experienced. Wisdom. Transcendental knowledge.
 
 Understanding isn't **transmissible**. My understanding of how to make good food could be different than yours.
 

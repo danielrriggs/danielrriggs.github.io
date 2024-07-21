@@ -1,1 +1,0 @@
-Cognitive complexity corresponds with how readable code is.

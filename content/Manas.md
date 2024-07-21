@@ -1,5 +1,7 @@
 (Muh-nas)
 
+The active mind.
+
 The **emotional** part of the mind. The sensory / motor mind and the thinking function.
 
 The faculty that produces data for you from the external world. The faculty that **doubts** ([[Sankalpa Vikalpa]]) and **questions**.

@@ -1,0 +1,1 @@
+Means "no color".

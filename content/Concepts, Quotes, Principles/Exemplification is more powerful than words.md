@@ -1,0 +1,1 @@
+You inspire most through example. It's much more powerful than words. Words are very powerful if they're also accompanied by example.

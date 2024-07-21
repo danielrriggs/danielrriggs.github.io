@@ -1,0 +1,1 @@
+The state of constant awareness of one's mantra without effort.

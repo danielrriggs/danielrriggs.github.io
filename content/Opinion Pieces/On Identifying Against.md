@@ -1,0 +1,1 @@
+If you identify against, you can't cultivate, protect, or lead (because it's negation). [[Poetic Skills]] are required to understand [[Vertical Causality]].

@@ -1,2 +1,0 @@
-- Thermus
-- Instant pot - prep in Ziplocs / containers.

@@ -1,0 +1,1 @@
+Unstruck sound. Inner sounds which are heard in deep meditation by the sages and lead the meditator toward the center of silence within.

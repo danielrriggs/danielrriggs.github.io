@@ -1,0 +1,2 @@
+- Put water in the sun for 5 - 10 minutes to ... add electrons to it?
+- 

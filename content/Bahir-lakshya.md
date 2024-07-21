@@ -1,0 +1,3 @@
+"outer [[Lakshya]]".
+
+A sphere or objects for meditation or concentration located outside the human body or on its surface. Bahir-lakshya includes, for example, candle flame, various images of the Deities, [[Yantra]]s, symbols, etc. Many [Natha](https://nathas.org/en/dictionary/nath/ "the name of Shiva, the lord; a title added to the name of a person belonging to the Natha-sampradaya")-yogis also referred 16 [adharas](https://nathas.org/en/dictionary/adhara/ "special areas (points) on the human body, which are considered by Naths as areas of transformation of prana and support for attention") as bahir-lakshya, because they are located almost on the surface of the body.

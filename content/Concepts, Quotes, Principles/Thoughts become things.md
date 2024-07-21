@@ -4,4 +4,3 @@
 
 >Be your own friend to be the friend of the world. As your face is an index of your heart, the heart is an index of your soul. The way you feel and the way you think is the way that you act.
 The Art of Joyful Living, pg 12 (paraphrase).
-

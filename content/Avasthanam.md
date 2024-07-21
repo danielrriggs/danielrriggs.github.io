@@ -1,0 +1,1 @@
+Restoration to its original state.

@@ -1,1 +1,0 @@
-https://appv2.zzzpro.com/phpmyadmin/index.php?route=/&route=%2F&db=zzz&table=ratings

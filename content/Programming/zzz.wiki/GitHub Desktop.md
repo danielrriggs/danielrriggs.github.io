@@ -1,1 +1,0 @@
-It may be necessary to add to Path: `C:\Users\<userName>\AppData\Local\GitHubDesktop\bin`

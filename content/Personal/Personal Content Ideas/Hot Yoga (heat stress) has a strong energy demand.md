@@ -1,1 +1,0 @@
-Satya Speaks talks about energy leakages.

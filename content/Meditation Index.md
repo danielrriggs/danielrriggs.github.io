@@ -41,3 +41,7 @@
 
 [[Ego meditations]] - !TODO
 
+[[Ajapa Japa]] - todo
+[[Antar Mouna]] - todo
+[[Khechari Mudra]] - todo
+[[Ajna Chakra Sadhana]] - todo

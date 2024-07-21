@@ -1,0 +1,3 @@
+Sheath
+
+See [[Panchakosha Theory]].

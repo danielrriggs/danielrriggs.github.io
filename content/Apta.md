@@ -1,1 +1,3 @@
-"That man who has established perfect control and equilibrium within himself." His actions are consistent with his speech; his thinking process is always coordinated.!
+"That man who has established perfect control and equilibrium within himself." His actions are consistent with his speech; his thinking process is always coordinated.
+
+A credible or authoritative person.

@@ -1,0 +1,1 @@
+Right knowledge because there is a real object on which our knowledge is based.

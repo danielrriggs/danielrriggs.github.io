@@ -1,0 +1,1 @@
+Tensions rooted deep in the subconscious mind, which you are not yet aware of. They will be confronted as perception becomes deeper through [[Yoga]] practice.

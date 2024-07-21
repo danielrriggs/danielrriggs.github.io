@@ -1,0 +1,1 @@
+The happiness in us that comes from seeing others happy.

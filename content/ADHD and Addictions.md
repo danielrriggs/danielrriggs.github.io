@@ -12,7 +12,7 @@ How's a neurotypical person resist [[Addiction]]s?
 - We know that addictions are a method of self-medication
 All of the features that the neurotypical brain uses to protect itself against [[Addiction]] are busted with the [[ADHD]] brain (for example, if you can't rely on your [[Frontal lobes]] to calm down, you're more likely to reach for substances).
 
-The [[ADHD]] brain is [[Dopamine]] deficient in some areas, like the [[Nucleus accumbens]] (where our [[Dopamine]] [[Reward Circuitry]] is). Substances of abuse (alcohol, THC, technology, stimulants) raise dopamine. Over time with drugs, you develop [[Tolerance]], which will tank [[Dopamine]].
+The [[ADHD]] brain is [[Dopamine]] deficient in some areas, like the [[Nucleus accumbens]] (where our [[Dopamine]] [[Reward Circuitry]] is). Substances of abuse (alcohol, THC, technology, stimulants) raise dopamine. Over time with drugs, you develop [[Tolerance (engineering)]], which will tank [[Dopamine]].
 
 When you grow up with [[ADHD]], you're prone to a lot of shame (& social problems). This is a risk factor for [[Depression]] in adulthood. What does that have to do with [[Addiction]]? Well what do we use substances for? We use substances to drown the shame. As we heal the shame, we fix the self-medication problem.
 

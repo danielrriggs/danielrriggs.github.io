@@ -1,0 +1,1 @@
+Meaning ruler, governor, commander, and which is commonly used for God.

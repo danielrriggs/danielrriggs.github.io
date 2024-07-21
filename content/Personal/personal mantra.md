@@ -1,1 +1,0 @@
-Related: [[personal core values]], [[mission statement]], or [[personal vision]]

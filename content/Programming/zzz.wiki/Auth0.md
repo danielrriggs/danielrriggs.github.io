@@ -1,1 +1,0 @@
-Related: [[CORS]], [[CSP]]

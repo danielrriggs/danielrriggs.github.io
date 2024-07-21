@@ -1,0 +1,1 @@
+Pleasant, or, unpainful. As opposed to [[Klishta]].

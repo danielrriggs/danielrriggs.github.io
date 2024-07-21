@@ -1,0 +1,1 @@
+Exoteric, or external practices of yoga. Associated with the first 5 limbs of [[Eight Limbs of Raja Yoga]].

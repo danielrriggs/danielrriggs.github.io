@@ -18,4 +18,3 @@ And [[Jnana Padha]]
 Time, space, and causation are the [[Three Prime Conditionings]] or filters that affect the mind.
 
 There are [[Six Main Streams of Emotion]]. Two are primary: [[Kama]] and [[Ego|ahamkara]].
-

@@ -1,1 +1,0 @@
-[ngrok blog: Expanding ngrok's free plan with security in one line](https://ngrok.com/blog-post/free-security)

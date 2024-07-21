@@ -1,0 +1,1 @@
+Translates to "fire" or "illumination." Filled with fire and light. It can be classified as a type of energy, vitality or charisma.

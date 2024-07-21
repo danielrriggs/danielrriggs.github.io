@@ -1,0 +1,1 @@
+An internal object in itself, is used to direct attention, concentration. Among Naths, the common objects of antar-lakshya are usually [[Chakras]], [[Sushumna]], [[Kundalini Energy|Kundalini]] manifested in the body, the sound of [[Nada]], various points and spaces in the head (gagana-mandala, bhramara-gufa).

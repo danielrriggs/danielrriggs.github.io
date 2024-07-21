@@ -1,6 +1,7 @@
 ---
 aliases:
   - meditative practice
+  - Meditative
 ---
 # See [[Meditation Index]] for Meditations
 
@@ -51,7 +52,7 @@ See [[Metaphysics of Meditation]]
 - [[Jnana Padha]]
 	- [[Knowledge and Mind]]
 - [[Atman Padha]]
-	- [[The Nature of Self]]
+	- [[Nature of Self]]
 	- [[Panchakosha Theory]]
 	- [[Confidence vs Ego]]
 - [[Siddhi Padha]]

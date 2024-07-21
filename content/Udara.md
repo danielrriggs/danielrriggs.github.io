@@ -1,0 +1,1 @@
+Conscious tensions that can be clearly recognized in daily interactions.

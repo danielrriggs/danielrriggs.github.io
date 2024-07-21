@@ -4,7 +4,7 @@ aliases:
 ---
 Meditation technique of alternate nostril breathing.
 
-Stimulating. This practice cleanses the [[Nadis]]
+Stimulating. This practice cleanses the [[Nadi]]s.
 
 Place your index and middle finger on your forehead & keep them there the whole time.
 Use your thumb to block the left nostril. Inhale through the right nostril; while holding the breath, block the right nostril with the pinky finger & exhale out the left nostril. Then just reverse this:
@@ -15,4 +15,4 @@ Repeat infinitely.
 
 *Just remember to always switch nostrils before exhaling.*
 
-Fun fact: the nerves from the left nostril activate the [[Parasympathetic Nervous System|PNS]], and the nerves from the right nostril activate the [[Sympathetic Nervous System|SNS]].
+The nerves from the left nostril activate the [[Parasympathetic Nervous System|PNS]], and the nerves from the right nostril activate the [[Sympathetic Nervous System|SNS]].

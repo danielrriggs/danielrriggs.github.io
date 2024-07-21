@@ -1,0 +1,1 @@
+Imagination or fantasy. Without the basis of an object. For example, a fairytale. A creation of our mind. It is, however, not completely devoid of experiential material. We take ideas from our experiences and combine them to form new ideas of things that actually do not exist.

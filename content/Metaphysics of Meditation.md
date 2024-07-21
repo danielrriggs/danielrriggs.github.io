@@ -14,7 +14,7 @@ The yogis believe that all of this energy / consciousness is situated at the top
 
 ###### [[Karma]]
 
-The yogis also discovered the principle of [[Karma]]. The yogis also applied Karma outside of the physical realm. To things like, the place & time of your birth have causal effects. Everything that happens in this life is an effect from a past cause. And furthermore, the seeds you sew (the actions you take) in this life not only bear fruit in this life, but effect things outside of this life.
+The yogis also discovered the principle of [[Karma]]. They also applied Karma outside of the physical realm. To things like, the place & time of your birth have causal effects. Everything that happens in this life is an effect from a past cause. And furthermore, the seeds you sew (the actions you take) in this life not only bear fruit in this life, but effect things outside of this life.
 
 The theory of Karma suggested lots of stuff in science / physics (genetics, electricity, down syndrome, etc). They basically believe that [[Newton’s Third Law]] is a universal principle. All causes yield effects & must have antecedent causes.
 

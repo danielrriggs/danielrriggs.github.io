@@ -1,0 +1,1 @@
+Love plus reverence. To have both reverence and love for the other person.

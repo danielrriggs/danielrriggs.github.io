@@ -1,1 +1,1 @@
-If you want to enlighten yourself, withdrawing from the world is not life's purpose. Your life's purpose is to live in the world and yet remain above it - and that is possible.
+Withdrawing from the world is not lifes' purpose. Your life's purpose is to live in the world and yet remain above it - and that is possible.

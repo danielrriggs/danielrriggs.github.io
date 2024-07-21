@@ -1,0 +1,1 @@
+Attention and memory come from interest. If you forget something, you never paid attention to it. If you forget something, why did you not pay attention to the things you should?
