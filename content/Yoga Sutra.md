@@ -107,12 +107,100 @@ The second type of [[Chitta Vritti]]which we have to block. [[Viparyaya]] - is n
 
 Viparyaya is also called [[Avidya]], for all our knowledge is based on a misunderstanding of the real nature of [[Purusha]] and [[Prakriti]]. Wrong knowledge is ultimately replaced by [[Viveka]], which involves the correct understanding of the true nature of [[Purusha]] and [[Prakriti]].
 
-###### Sutra 9: (iii) Vikalpa - unfounded belief
+###### Sutra 1:9: (iii) Vikalpa - unfounded belief
 Sabdajnananupati vastu-sunyo vikalpah
 Sabda: word, sound; jnana: cognition; anupati. following upon; vastu: object; sunyah: empty; vikalpah'. fancy, imagination
 >Following upon knowledge through words but empty of an object is fancy.
 
-[[Vikalpa]]
+The mind of spiritual aspirants sometimes becomes full of fancy and idealism; seeking to attain an imaginary goal, this is living in a world of ideas which is nothing but [[Vikalpa]].
+
+In [[Meditation]], [[Dhyana]], there is sometimes a flight of imagination. This form of vikalpa is also to be set aside.
+
+There is a [[Sadhana]] of conscious day-dreaming which is a dull state of mind and must be overcome through right knowledge. This sadhana is very helpful for a beginner in as much as it can make an aspirant capable of going deeper and deeper in the state of concentration. However, it should not be forgotten that this sadhana, although helpful for a beginner, has to be discarded afterwards.
+
+In the states of [[Dharana]], [[Antar Mouna]], [[Dhyana]], the aspirant imagines certain objects and qualities. They may be unreal and fanciful notions in the ultimate analysis, but they are very helpful in the beginning and a student of [[Yoga]] must use their assistance until he goes forward to master the deeper states. It is declared by many great thinkers that up to nirvikalpa samadhi, the different experiences an aspirant goes through are nothing but the planes of one’s mental consciousness.
+
+Right knowledge, wrong knowledge and imagination are equally processes of consciousness, but they differ insofar as right knowledge has a true object, wrong knowledge has a false object, whereas imagination or [[Vikalpa]] has no object at all.
+
+###### Sutra 1:10: (iv) Nidra - state of sleep
+Abhava-pratyayalambana vrttirnidra
+Abhava: absence; pratyaya: content of mind; alambana: support; vrttih: modification; nidra: sleep
+>Sleep is the vritti of absence of mental contents for its support.
+
+Sleep is a condition of mind (unconscious) which hides or conceals the knowledge of the external world. Sleep is a [[Vritti]] in which the content of mind is absent. There are thoughts, but they aren't present before the mind.
+
+When we see a rose inside our mind either in the form of a vision, a dream, or an ideal, the content of mind in all these states is called [[Pratyaya]].
+
+[[Sleep]] is like [[Samadhi]] except in [[Sleep]], there is no awareness of the 'I' notion. The awareness we have in the waking state is like [[Samadhi]] except in [[Samadhi]] the objects are absent, but the awareness is there. [[Samadhi]] is not unconscious; it's highly [[Consciousness|conscious]].
+
+###### Sutra 1:11: (v) Smriti - memory
+Anubhutavisayasampramosah smrtih
+Anubhuta: experienced; visaya: objects of sense perception; asampramosah: not letting escape; smrtih: memory
+>Not letting the experienced objects escape from the mind is memory.
+
+[[Memory]] is the fifth [[Vritti]] of the [[Mind]].
+
+###### Sutra 1:12: Necessity of abhyasa and vairagya
+Abhyasavairagyabhyam tannirodhah
+Abhyasa'. repeated practice; vairagyabhyam: by vairagya; tat: that; nirodhah: stopping, blocking
+>The stopping of that (five vrittis) by repeated practice and vairagya.
+
+There are two methods for stopping the flow of the [[Chitta Vritti]]s:
+- [[Abhyasa]]
+- [[Vairagya]] is freedom from [[Raga]] and [[Dvesha|Dwesha]].
+Many spiritual aspirants try to concentrate their mind without first practicing [[Abhyasa]] and vairagya, without first conquering [[Raga]] and [[Dvesha|Dwesha]]. It is futile to make the mind silent without first removing the disturbing factors, namely [[Raga]] and [[Dvesha|Dwesha]], which make the mind unsteady.
+
+###### Sutra 1:13: Abhyasa means constant practice
+Tatra sthitau yatno’bhyasah
+Tatra\ there, out of the two; sthitau: being fixed, established; yatnah: effort; abhyasah: practice
+>Of the two (mentioned in the previous sutra) ‘to be established in the endeavour’ is abhyasa.
+
+[[Abhyasa]] means to be perfectly fixed in the spiritual effort ([[Sadhana]]). The effort here involves the practice of chitta vritti nirodhah ([[Yoga Sutra#Sutra 1 2 What is yoga?]]).
+
+It may include [[Meditation]] or [[Karma Yoga]] or [[Bhakti]] or self [[Introspection]] and other practices. It should be remembered that just practicing something for some time is not [[Abhyasa]]. [[Abhyasa]] means continued practice; you cannot leave it at all. It becomes a part of your [[Personality]], a part of your individual nature. To emphasize this, the rishi has used the word [[Sthitau]], which means being firmly fixed or firmly established.
+
+[[Yatna]] indicates effort.
+
+When [[Abhyasa]] becomes natural, firmly rooted and complete, it leads to [[Samadhi]]. Paying utmost attention to regular and continued practice, when perfected, leads to the complete blocking of the [[Vritti]]s.
+
+###### Sutra 1:14: Foundation of abhyasa
+Sa tu dirghakala nairantaryasatkarasevito drdhabhOmih
+Sah: that (abhyasa); tu: but; dirgha: long; kata: time; nairantarya: without interruption; satkara: reverence; asevitah: practised; drdha: firm; bhumih: ground
+>It becomes firmly grounded by being continued for a long time with reverence, without interruption
+
+There are three conditions for the practice of [[Abhyasa]]:
+- It should be practiced with complete [[Faith]].
+- ([[Nairantarya]]) It should continue uninterrupted.
+- It should go on for quite a long time.
+[[Faith]] is the most important factor, for it is only through faith that we have the patience and energy to continue the practice against the odds of life.
+
+[[Satkara]] - The next important point is that one should like [[Sadhana]] to the highest extent. There should be no feeling of compulsion. One should love & be attracted toward their practices. Attachment to the practices can be developed through constant self-analysis and [[Satsang]].
+
+Patanjali declares that if we practice [[Abhyasa]] with [[Faith]] and conviction continuously for a long time, it will definitely bring about a blockage of the fivefold [[Vritti]]s of the [[Mind]].
+
+###### Sutra 1:15: Lower form of vairagya
+Drstanusravika-visayavitrsnasya vasikara-sanjna vairagyam
+Dfsta: seen; anusravika: heard; visaya: object; vitrsnasya: of the one who is free of desire (trsna: craving, desire); vasikara: control; sanjna: awareness; vairagyam. absence of craving
+
+>When an individual becomes free of craving for the sense objects which he has experienced as well as those of which he has heard, that state of consciousness is vairagya.
+
+Vairagya is without craving for all the objects of pleasure ([[Drishta]]).
+[[Anushmvika]] - those of which he has heard.
+
+[[Vairagya]] is completely a process of [[Buddhi]]. It isn't necessary to become a [[Sannyasis|Renunciate]], but rather to completely give up [[Raga]] and [[Dvesha|Dwesha]], which cause the subconscious agony.
+
+The [[Bhagavad Gita]] explains this. It is the inner life that plays a decisive role in [[Meditation]]m not the outer life. One must detach from the good or bad effects of his actions. What really matters is what kind of attitude you have towards the various things, persons and events you come across in life. [[Vairagya]] makes for a balanced attitude and integrated approach, a feeling of love and compassion for all, yet a sort of detachment which works in everything that one does. Vairagya is thus a [[Manifestation]] of the purity and peace of one’s [[Mind]]. It bestows upon the [[Sadhaka]] an undisturbed happiness and silence which remains unchanged, whether the [[Sadhaka]] is confronted with events that please him or events that would be unpleasant.
+
+The techniques of [[Yoga]] such as pranayama, meditation, etc, are insufficient to purify the mind and make it silent in the state of [[Samadhi]] without the practice of [[Vairagya]]. If you observe your mind impartially, you will be aware of the fact that at the deeper level of consciousness and of the subconscious, every one of us has certain desires, cravings, ambitions and wishes we want to fulfil. These unfulfilled desires give rise to conflicts and tensions. In our daily life we may not be aware of these conflicts and tensions, but a person who wants to [[Meditation|Meditate]] finds it impossible to make his mind steady unless the underlying urges and tensions are resolved.
+
+There are five types of these basic urges, which may be described as subconscious agonies or afflictions, which must be gotten rid of in order to steady the [[Mind]] in [[Samadhi]]; [[Vairagya]] is the only way through which the subconscious agonies can be done away with.
+
+###### Sutra 1:16: Higher form of vairagya
+Tatpararn purusakhyatergunavaitfsnyam
+7af: that; param: highest; purusakhyateh: true knowledge of purusha; gunavaitrsnyam: freedom from the desire for gunas
+>That is highest in which there is freedom from the desire for gunas on account of the knowledge of purusha.
+
+In the lower state of [[Vairagya]], the aspirant transcends the attachments for sense objects, but these still remain in a subtle form. This involves a process of suppression in the sense that there is discrimination and control through the development of religious consciousness and [[satsang]].
 
 ###### Sutra 1:27: Pranava is verily Ishwara
 Tasya vachakah pranavah
