@@ -1,1 +1,0 @@
-Faith is what you bet your life on.

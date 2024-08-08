@@ -7,6 +7,6 @@ The effort here involves the practice of chitta vritti nirodhah ([[Yoga Sutra#Su
 When [[Abhyasa]] becomes natural, firmly rooted and complete ([[Sthitau]]), it leads to [[Samadhi]]. Paying utmost attention to regular and continued practice, when perfected, leads to the complete blocking of the [[Vritti]]s.
 
 There are three conditions for the practice of [[Abhyasa]]:
-- It should be practiced with complete [[Faith]].
+- It should be practiced with complete [[Sraddha|Faith]].
 - It should continue uninterrupted. Nothing can interfere.
 - It should go on for quite a long time.

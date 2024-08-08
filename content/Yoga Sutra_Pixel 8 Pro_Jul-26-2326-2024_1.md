@@ -169,14 +169,14 @@ Sah: that (abhyasa); tu: but; dirgha: long; kata: time; nairantarya: without int
 >It becomes firmly grounded by being continued for a long time with reverence, without interruption
 
 There are three conditions for the practice of [[Abhyasa]]:
-- It should be practiced with complete [[Faith]].
+- It should be practiced with complete [[Sraddha|Faith]].
 - ([[Nairantarya]]) It should continue uninterrupted.
 - It should go on for quite a long time.
-[[Faith]] is the most important factor, for it is only through faith that we have the patience and energy to continue the practice against the odds of life.
+[[Sraddha|Faith]] is the most important factor, for it is only through faith that we have the patience and energy to continue the practice against the odds of life.
 
 [[Satkara]] - The next important point is that one should like [[Sadhana]] to the highest extent. There should be no feeling of compulsion. One should love & be attracted toward their practices. Attachment to the practices can be developed through constant self-analysis and [[Satsang]].
 
-Patanjali declares that if we practice [[Abhyasa]] with [[Faith]] and conviction continuously for a long time, it will definitely bring about a blockage of the fivefold [[Vritti]]s of the [[Mind]].
+Patanjali declares that if we practice [[Abhyasa]] with [[Sraddha|Faith]] and conviction continuously for a long time, it will definitely bring about a blockage of the fivefold [[Vritti]]s of the [[Mind]].
 
 ###### Sutra 1:15: Lower form of vairagya
 Drstanusravika-visayavitrsnasya vasikara-sanjna vairagyam

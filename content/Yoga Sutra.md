@@ -196,14 +196,14 @@ Sah: that ([[Abhyasa]]); tu: but; dirgha: long; kata: time; [[Nairantarya]]: wit
 >It becomes firmly grounded by being continued for a long time with reverence, without interruption
 
 There are three conditions for the practice of [[Abhyasa]]:
-- It should be practiced with complete [[Faith]].
+- It should be practiced with complete [[Sraddha|Faith]].
 - ([[Nairantarya]]) It should continue uninterrupted.
 - It should go on for quite a long time.
-[[Faith]] is the most important factor, for it is only through faith that we have the patience and energy to continue the practice against the odds of life.
+[[Sraddha|Faith]] is the most important factor, for it is only through faith that we have the patience and energy to continue the practice against the odds of life.
 
 [[Satkara]] - The next important point is that one should like [[Sadhana]] to the highest extent. There should be no feeling of compulsion. One should love & be attracted toward their practices. Attachment to the practices can be developed through constant self-analysis and [[Satsang]].
 
-Patanjali declares that if we practice [[Abhyasa]] with [[Faith]] and conviction continuously for a long time, it will definitely bring about a blockage of the fivefold [[Vritti]]s of the [[Mind]].
+Patanjali declares that if we practice [[Abhyasa]] with [[Sraddha|Faith]] and conviction continuously for a long time, it will definitely bring about a blockage of the fivefold [[Vritti]]s of the [[Mind]].
 
 ###### Sutra 1:15: Lower form of vairagya
 Drstanusravika-visayavitrsnasya vasikara-sanjna vairagyam
@@ -265,7 +265,7 @@ Bhavapratyayah: birth is the cause; videha: disembodied yogis; prakrtilayanam: t
 
 >The videha and prakritilaya yogis have birth as the cause of asamprajnata samadhi. (This is bhavapratyaya asamprajnata samadhi.)
 
-Usually [[Samadhi]] is attainable through [[Faith]], by courage, [[Memory]] and a higher form of intelligence. It is through these different methods, according to the intensity of application and urge, that the student can attain samadhi sooner or later. However, we find many people who have practiced nothing reaching the state of samadhi very easily. This is because at the time of birth they got all the traces of their past [[Karma]]. Thus there are examples of persons going beyond the barriers of the lower [[Consciousness]] at a very young age; for example, the great saint Jnaneshwar and, similarly, Ramana Maharshi of Arunachala, who attained [[Samadhi]] when he was in his teens. In this sutra, Patanjali says that the two types of yogis, namely, those who are disembodied and those who are merged into [[Prakriti]], can attain [[Asamprajnata]] [[Samadhi]] right from birth. They do not have to practice any preliminary stages like [[Dharana]], [[Dhyana]] or [[Vitarka]], [[Vichara]], etc.
+Usually [[Samadhi]] is attainable through [[Sraddha|Faith]], by courage, [[Memory]] and a higher form of intelligence. It is through these different methods, according to the intensity of application and urge, that the student can attain samadhi sooner or later. However, we find many people who have practiced nothing reaching the state of samadhi very easily. This is because at the time of birth they got all the traces of their past [[Karma]]. Thus there are examples of persons going beyond the barriers of the lower [[Consciousness]] at a very young age; for example, the great saint Jnaneshwar and, similarly, Ramana Maharshi of Arunachala, who attained [[Samadhi]] when he was in his teens. In this sutra, Patanjali says that the two types of yogis, namely, those who are disembodied and those who are merged into [[Prakriti]], can attain [[Asamprajnata]] [[Samadhi]] right from birth. They do not have to practice any preliminary stages like [[Dharana]], [[Dhyana]] or [[Vitarka]], [[Vichara]], etc.
 
 ###### Sutra 1:20: Otherwise, merits needed for asamprajnata samadhi
 Sraddhavlryasmrtisamadhiprajnapurvaka itaresam
