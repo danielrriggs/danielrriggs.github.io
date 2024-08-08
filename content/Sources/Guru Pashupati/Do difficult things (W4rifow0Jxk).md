@@ -1,1 +1,0 @@
- No, you didn't come on earth to do easy things. You came here to do difficult things. You would be bored to death if your life was easy. Stop avoiding difficult things. Don't do easy. Do difficult.

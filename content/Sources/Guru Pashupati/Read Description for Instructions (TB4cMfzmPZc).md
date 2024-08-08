@@ -1,1 +1,0 @@
- O O O O O O O O O O O O O O O O O O O O O O O O Jada bhi ghalagjala pramaha bhavita sthali Galewalam yalambithambu junga tungamalika Tabaddha maddha maddha manni nadamaddha marvayam Chakalachandatandavam panutunashivashivam Chathagathahasambramapramanilimpanirjali Filolavichivalari virajamadamurdani Dagaddagaddagajwalalaladapaddapavani Kishorachandasekharera dhipadishana Aba

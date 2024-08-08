@@ -1,1 +1,0 @@
- Teksting av Nicolai Winther Teksting av Nicolai Winther Teksting av Nicolai Winther

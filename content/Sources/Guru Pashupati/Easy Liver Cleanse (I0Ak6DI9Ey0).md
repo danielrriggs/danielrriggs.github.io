@@ -1,1 +1,0 @@
- Right hand goes to left knee, left hand goes to right knee, breathe in and out, in and out, in and out, in and out. So you have to count and do this 54 times on each side. This will cleanse your liver from the inside over a period of a few months you will be completely cleaned up.

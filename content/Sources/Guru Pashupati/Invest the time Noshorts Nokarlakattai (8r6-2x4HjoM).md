@@ -1,1 +1,0 @@
- Hi, Karla Kathe. Today somebody said I did one class of Karla Kathe and I can't observe any changes in my body. Tell them that is exactly what their mother must have said when she got pregnant with them.

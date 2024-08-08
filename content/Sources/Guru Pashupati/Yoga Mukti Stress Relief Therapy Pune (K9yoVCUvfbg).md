@@ -1,1 +1,0 @@
- Music my back has opened up a lot and i'm able to think more clearly my neck feels very relaxed right now and i was feeling a bit anxious before but my heartbeat has come back to normal and it's completely calm right now

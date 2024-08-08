@@ -1,1 +1,0 @@
- If you can move on without justice being served, then you're truly free.

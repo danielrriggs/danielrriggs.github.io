@@ -1,1 +1,0 @@
- But the more you live congruently with the highest values, the more you are in command.

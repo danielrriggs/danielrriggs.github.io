@@ -1,1 +1,0 @@
- When our intelligence becomes aware of itself, that's when we have access to divine intelligence. And this is known as Jnana Shakti or Jnana Shakti in Sanskrit, where Jnana is knowledge or awareness and Shakti is the universal formless energy that everything is made up of. And with this intelligence, there is nothing that you cannot achieve.

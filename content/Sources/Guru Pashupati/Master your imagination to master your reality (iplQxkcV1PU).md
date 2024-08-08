@@ -1,1 +1,0 @@
- If you can't do it in your mind, you can't do it with your body. Things happen twice, first in our imagination and then in reality. The hardest part is getting them to happen in your imagination. Reality is easy when you can imagine. The hard part is getting them to happen in your imagination.

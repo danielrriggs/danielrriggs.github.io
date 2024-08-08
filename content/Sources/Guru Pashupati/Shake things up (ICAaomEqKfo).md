@@ -1,1 +1,0 @@
- The start is always shaky. But guess what? It turns to stability. Don't be afraid to shake things up.

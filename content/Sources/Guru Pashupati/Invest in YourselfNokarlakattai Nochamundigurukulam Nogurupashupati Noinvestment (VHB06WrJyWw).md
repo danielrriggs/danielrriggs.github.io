@@ -1,1 +1,0 @@
- Hi Hi, Karla Katta today somebody said I can't train Karla Katta because it's way too expensive. Tell them that hospitals are way more expensive.

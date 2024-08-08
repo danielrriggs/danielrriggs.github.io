@@ -1,1 +1,0 @@
- We blunt half the problems that we get into is because we're trying to fix things from our past in our present

@@ -1,1 +1,0 @@
- 12.5% of aspect of yoga we are projecting it as a 100% so each limb is as important as another limb Yoga is a stepping stone to enter the portals of Vedanta then people have a larger goal through the physical body I am reaching the non-physical realm if this grand mission can be articulated because asana becomes then a 10 to 12% aspect of the entire scheme of things

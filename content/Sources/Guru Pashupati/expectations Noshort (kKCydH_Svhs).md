@@ -1,1 +1,0 @@
- Those who work have results and those who don't have expectations.

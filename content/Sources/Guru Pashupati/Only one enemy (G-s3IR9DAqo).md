@@ -1,1 +1,0 @@
- There is only one enemy and they live inside us. It's the attitude of expecting results that you haven't trained for. If you want to get rid of the only enemy, then train hard.

@@ -1,1 +1,0 @@
- The magnificence of who you are is far greater than any fantasies that you'll compare yourself to or try to be.

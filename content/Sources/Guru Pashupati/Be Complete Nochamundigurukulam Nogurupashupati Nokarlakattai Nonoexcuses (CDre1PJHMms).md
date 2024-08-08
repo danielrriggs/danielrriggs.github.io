@@ -1,1 +1,0 @@
- Hi, hi, Karla Kadey. Today somebody said, I never complete the things that I start. And therefore, I can't start Karla Kadey. Tell them that's not true because they just completed that stupid sentence.

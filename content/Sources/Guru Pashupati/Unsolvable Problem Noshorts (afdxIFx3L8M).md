@@ -1,1 +1,0 @@
- Being an unsolvable problem feels great, but the only trouble is nobody can solve your problem.

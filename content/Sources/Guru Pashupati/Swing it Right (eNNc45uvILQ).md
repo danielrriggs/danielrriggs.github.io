@@ -1,1 +1,0 @@
- Hi, Hi, Karla Katta, today somebody asked me why do you wear dhotis while swinging Karla Katta Tell them, it's so that you swing only the Karla Katta

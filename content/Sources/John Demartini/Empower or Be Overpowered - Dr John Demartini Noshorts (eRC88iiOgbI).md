@@ -1,1 +1,0 @@
- I learned that any area of our life that we don't empower is an area of life that other people will overpower. We're not a victim of the world around us if we're overpowered. We're simply not empowered from within.

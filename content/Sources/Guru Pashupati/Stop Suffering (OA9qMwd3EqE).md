@@ -1,1 +1,0 @@
- If you have an accurate idea of who you are, who you're with, and also where you are, then you will stop suffering.

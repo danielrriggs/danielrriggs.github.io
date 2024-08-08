@@ -1,1 +1,0 @@
- Everyone loves to succeed. They love this destination called success. But they don't realize that the journey there is called failure. If you don't like traveling and failure, you'll never arrive at success. There's nothing complicated to this. You get successful when you've run out of ways to fail. You get successful when you've run out of ways to fail.

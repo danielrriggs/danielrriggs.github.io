@@ -1,1 +1,0 @@
- Fill your heart with loving kindness, your time with noble actions, your mind with good thoughts and suffering will disappear from your life like sadness from a content heart. You will realize your soul, your self. And snakes you ask, what about the snakes of attachment? Well, those a yogi wraps around his or her neck and yet remains unharmed. This is the path of lasting peace.

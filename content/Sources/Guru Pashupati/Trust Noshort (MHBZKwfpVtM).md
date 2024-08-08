@@ -1,1 +1,0 @@
- It is truly impossible to trust other people until you can trust yourself.

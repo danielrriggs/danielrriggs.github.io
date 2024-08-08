@@ -1,1 +1,0 @@
- There's no doubt that you have synchronicities in life, but I think that preparation meeting opportunity is what luck is.

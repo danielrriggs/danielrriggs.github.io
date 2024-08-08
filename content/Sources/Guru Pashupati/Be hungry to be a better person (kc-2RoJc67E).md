@@ -1,1 +1,0 @@
- No, exercise doesn't make you happy. It's hard, it's painful, it's punishing, and the results are really slow. Don't exercise for happiness. Throw out your happiness and become hungry to become a better person. And that hunger will make you exercise. Be hungry. Be hungry.

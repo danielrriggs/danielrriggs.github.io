@@ -1,1 +1,0 @@
- Thinking uses one part of the brain, doing uses another part. Don't do while thinking and don't think while doing.

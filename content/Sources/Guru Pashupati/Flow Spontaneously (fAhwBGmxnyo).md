@@ -1,1 +1,0 @@
- Your body already knows the way out of everything that you are faced with. There's a subconscious intelligence that tells you how to deal with any problem, no matter how big it is. All you have to do is trust your body. Don't overthink solutions. Let it flow spontaneously. Let it flow.

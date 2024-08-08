@@ -1,1 +1,0 @@
- If you want to accomplish something beyond yourself, then you must let others do the work.

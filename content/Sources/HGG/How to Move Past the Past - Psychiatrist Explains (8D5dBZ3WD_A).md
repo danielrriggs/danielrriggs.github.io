@@ -1,1 +1,0 @@
- People will say, don't hold on to the past, but then everyone's like, how do I do that? What it means is to recognize that the past is gone, recognize that your situation has changed and try to like literally adjust your current situation based on your circumstances.
