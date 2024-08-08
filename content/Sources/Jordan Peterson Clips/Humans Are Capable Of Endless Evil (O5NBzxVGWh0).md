@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=O5NBzxVGWh0
+
+ The problem is is that the line between good and evil runs down every human heart And I'd read was reading Ewing at the same time you know and he believed that the human soul was a tree whose roots grew all the way to hell and Believed also that in the full investigation of the shadow which was the dark side of the human psyche Was that it was bottomless essentially that that it was like an experience of hell and that also struck me as true and that the way to stop those sorts of things from happening was to stop yourself from being the sort of person who would do it and

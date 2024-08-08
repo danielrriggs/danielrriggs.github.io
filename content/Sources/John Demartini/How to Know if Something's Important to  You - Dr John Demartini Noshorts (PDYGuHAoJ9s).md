@@ -1,0 +1,1 @@
+ You know that it's really important to you when you don't give up. You just stay focused on it and you keep showing evidence of progress daily.

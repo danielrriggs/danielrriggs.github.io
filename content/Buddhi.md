@@ -2,7 +2,7 @@
 
 From the root बुध् / budh (to awaken).
 
-The counselor within you. The rational and intuitive intelligence.
+The counselor within you. **Intellect** - The rational and intuitive [[Vijnana|Intelligence]].
 
 The faculty that **knows**, **decides**, and **judges**.
 

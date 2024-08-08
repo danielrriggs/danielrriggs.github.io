@@ -3,6 +3,7 @@ aliases:
   - identity
   - ahamkara
   - egotistical
+  - Ahamkara
 ---
 (Uh-hum-kah-ruh)
 

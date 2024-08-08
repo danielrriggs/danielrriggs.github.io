@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=MZk6milSa3Y
+
+ When I talk, I practice this since consciously since 1985, I try to feel and see if the words are stepping stones or foundation stones, right? It's like, is this solid? Is this word solid? Is this phrase solid? Is this sentence solid? Like it's a real sense of fundamental foundation under each word. And I suppose people ask me if I pray and I would say I pray before every word.

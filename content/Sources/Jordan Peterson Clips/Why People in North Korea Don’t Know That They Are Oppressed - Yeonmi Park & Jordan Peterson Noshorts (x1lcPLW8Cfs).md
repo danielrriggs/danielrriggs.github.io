@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=x1lcPLW8Cfs
+
+ people were saying like you know why there's no revolution in North Korea and first of all we don't even know the vocabulary revolution in North Korea. It's a country where they don't teach us about the word love. There's no romantic love in North Korea. I never heard my mom telling me that she loved me. The only word that we know love is that written form of the word where we describe our feelings towards the leader, not about another human. So there's no word for love, no word for human rights, dignity, freedom, and that's why you know people in North Korea they don't know they are oppressed, they don't know they are slaves.

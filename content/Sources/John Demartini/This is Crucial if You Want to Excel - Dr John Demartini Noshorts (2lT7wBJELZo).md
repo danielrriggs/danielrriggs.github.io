@@ -1,0 +1,1 @@
+ I see every single week people banging their head against the wall, attempting to excel at something that they really don't value, and finding out what truly is important to you is crucial if you want to excel and have great self-worth and achievement.

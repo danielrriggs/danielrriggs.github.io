@@ -12,7 +12,7 @@ The yogis didn't look on the outside at all. They didn't try to use any objectiv
 The yogis used a subjective methodology. The theory that they came up with is so much simpler than the Western theories, and arguably, much more encapsulating (if you buy it) of how the [[Mind]] works.
 Example - a clinical psychiatrist trying to explain to someone they have an [[Oedipal complex]] is super complicated. On the other hand, the Vedic model can be taught to kids. When it's taught to people, they can understand how their [[Mind]] works, not in 5 years of study, but in one hour.
 
-See the Vedic system's 5 [[Parts of the mind]].
+See the Vedic system's 5 [[Mind#The 5 parts of the mind]].
 
 Note that the quality of the ([[Ego|ahamkara]]) (my identity as a programmer, for example) is a completely different quality of stuff than an emotion ([[manas]]) or analytical reasoning ([[Buddhi]]).
 

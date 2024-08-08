@@ -1,0 +1,1 @@
+ What exactly is the thing that you spontaneously are inspired to do? That you just do. That you're disciplined, reliable, and focused on. That you never have to be reminded to do. Because the moment you identify that, you liberate yourself from a hell of a lot of outside baggage and burden trying to be somebody or not.

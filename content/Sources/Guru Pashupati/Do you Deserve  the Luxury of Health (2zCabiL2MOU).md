@@ -1,0 +1,1 @@
+ To enjoy luxury, you must have the luxury of health. I mean, it's obvious. No other luxury is useful if you lose the luxury of health. It's not for everyone. It's a luxury. It's a luxury.

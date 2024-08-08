@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=Y82GozfcpV4
+
+ Once you start to succeed at something, the probability that you will continue to succeed ever more rapidly increases. So there's an exponential function with regards to success. But there's also an exponential function with regards to failure. Failure and success aren't like this. They're like this. Fail, fail, die. Succeed, succeed, succeed ridiculously. Like it's this weird curve. And it's funny because it doesn't just characterize economics. It's a really funded, looks like a really fundamental economic law. I was actually quite shocked when I first learned about this, which was only about 15 years ago, because I thought most things were normally distributed. It turns out that that's not true.

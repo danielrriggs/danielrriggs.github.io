@@ -1,0 +1,1 @@
+"Without seed". (Meditation) without support.

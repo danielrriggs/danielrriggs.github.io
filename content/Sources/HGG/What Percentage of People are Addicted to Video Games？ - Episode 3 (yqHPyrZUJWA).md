@@ -1,0 +1,1 @@
+ So if you look at people between under the age of 18 in the United States, it's 8.4%. The highest prevalence of video game addiction is actually in Iran, and it's 22.8%. In South Korea, video game addiction was declared like a public health crisis a few years ago. Yeah, it's stacked.

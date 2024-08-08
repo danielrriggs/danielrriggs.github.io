@@ -1,0 +1,1 @@
+ We never judge ourselves negatively in our own value system. We only do it when we think we're supposed to be living somebody else's. Self-depreciation is a byproduct of attempting to live outside our own highest values and in somebody else's.

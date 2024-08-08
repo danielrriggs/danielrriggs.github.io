@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=FwHoTWhiXbM
+
+ I think if you could see God clearly, you wouldn't need faith. Right? So it's a precursor in a lot of ways to freedom. If you could see God, it would be so undeniable. Like first you die, but then additionally, everything that he would say would have to be absolute. And that's a kind of authoritarianism. And so it's like the faith of the belief is what allows the freedom to keep falling and drinking wine and picnicking and making golden calves. And every time he's out of sight, there's a fall and then there's a movement back again. So you're suggesting if there wasn't a veil, there'd be, everything would be so understandable to us that we could just follow it like automatons. Right, then you're back to the pharaoh in a way.

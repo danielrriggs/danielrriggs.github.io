@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=rt8I2eiT548
+
+ When you have a newspaper, every front page has to be Kim's. But when you turn in the back of the newspaper, you don't see the photo of Kim's. By mistake, if you rip that newspaper, your family goes through generation-less concentration camp. So every household in North Korea have the portraits of Kim's. If your house caught on fire, the first thing is not you holding your child in one arm. You have to hold the portraits until your death. Otherwise, it's going to kill the descendants of your family again.

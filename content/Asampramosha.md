@@ -1,0 +1,1 @@
+Not letting the experience escape from the mind. The meaning of the word is as follows: a - no; sam - completely; pra - high or great; mosha - releasing, escape. Thus, literally, the word means **not allowing to escape**.

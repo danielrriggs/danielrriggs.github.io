@@ -1,0 +1,1 @@
+ We can get luckier and luckier and luckier the more we practice and the more clear and the more focused and the more prioritized we are. If we fill our day with high priority actions that inspire us, our day doesn't fill up with low priority distractions that don't.

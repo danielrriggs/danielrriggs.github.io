@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=cbxL_JraiSc
+
+ This is a monument in Montreal. The Museum of Fine Art bought a church across from itself. Beautiful old church, you know, and then they commissioned a monument. The transformation is full, right? The broken, empty angel whose wings are falling off, that has an empty chest, that has no face, you know, that is half mechanical, half flesh. You don't know what it is. And these types of statements, they're not arbitrary, right? It's like, if I take a picture of your mother and I rip it, like, you know what that means. You know, if I show a disfigured version of someone you love, you know what that means.

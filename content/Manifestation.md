@@ -1,0 +1,5 @@
+---
+aliases:
+  - Manifested
+---
+Alias: Manifested

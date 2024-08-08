@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=2yjM7GWe7p8
+
+ If you could be a Marvel hero. If I could be a Marvel hero. Oh a Marvel hero. Yeah. Oh, yes, who Would you be and? Which superpower would you choose and mostly? What would you do with your superpower? Oh god? They asked this question well, obviously dr. Strange Superpower yeah faith and what would I do with it? Yeah move mountains. Oh Very good. Thank you, dear

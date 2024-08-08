@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=UThD_SNriME
+
+ If I can force someone to do what I want them to do and they can't resist, then why shouldn't I just be contemptuous of them? And I think the answer to that is, well, backfires. You can enforce your will on people for a while, but even among chimpanzees, the probability that the moment you turn your back or show any weakness that you're going to get corn into pieces is extremely high.

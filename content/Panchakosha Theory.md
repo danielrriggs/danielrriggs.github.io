@@ -2,11 +2,11 @@
 aliases:
   - Panchakosha
 ---
-###### A hierarchical theory of [[Personality]]. Our [[Personality|personhood]] is composed of different elements.
+Pancha means "five". [[Kosha]] means 'Sheath'.
 
-Pancha means "five". [[Kosha]] means "sheath" (as in, a sword sheath).
+Panchakosha Theory, described in the [[Taittiriya Upanishad]], is a hierarchical theory of [[Personality]]. Our [[Personality|personhood]] is composed of different elements. People are made up of 5 [[Kosha]]s.
 
-The yogis discovered that people are made up of 5 layers, or, sheaths:
+###### The Five Koshas
 1) [[Annamaya Kosha]]
 2) [[Pranamaya Kosha]]
 - *It's common for people to go to doctors & say there's something wrong with them, but doctors find nothing wrong with their physical body (x-rays, lung function, hormones, blood sugar, etc.). The problems could be in the energetic body.*
@@ -16,7 +16,7 @@ The yogis discovered that people are made up of 5 layers, or, sheaths:
 5) [[Anandamaya Kosha]]
 
 ###### On accomplishment
-The yogis have given us panchakosha theory as a practical guide for understanding what we're made; this helps us clean out the various bodies we are composed of & optimize their function.
+The yogis have given us panchakosha theory as a practical guide for understanding what we're made of; this helps us clean out the various bodies we are composed of & optimize their function.
 
 We all want to accomplish things (get a job, find love, move somewhere, etc).
 

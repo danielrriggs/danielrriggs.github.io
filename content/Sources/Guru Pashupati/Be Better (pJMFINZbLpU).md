@@ -1,0 +1,1 @@
+ The biggest failure is avoiding failure. Because it's failing to learn. You only learn when you ask yourself, why did I fail? And that's when you can correct yourself. And that's when you become better. Be better.

@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=QZZ01M-iB8c
+
+ I'm working at a job I can't stand because I need to support my wife and children and that's okay. I'm sacrificing myself for my husband's career and that's okay. I mean, sometimes that is okay, but it has to be out, clear, in the open, talked about, negotiated, discussed. You can be a slave or a tyrant or you can negotiate. Those are your options. And we default to slavery and tyranny because that doesn't require any cognitive effort. And then we pretend that everything's all right. And then it blows up in our faces and we end up divorced.

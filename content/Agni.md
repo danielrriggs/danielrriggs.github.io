@@ -1,3 +1,10 @@
+---
+aliases:
+  - Fire
+  - Fire Element
+---
+Alias: Fire, Fire Element.
+
 Digestive flow.
 
 The Yogis discovered that there are certain things that are not us that become us. They called this fact of metabolism, Agni, or, the digestifier.

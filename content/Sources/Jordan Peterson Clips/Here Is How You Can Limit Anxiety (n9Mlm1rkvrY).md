@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=n9Mlm1rkvrY
+
+ One way of limiting anxiety is to limit choice. Zero choice, generally speaking, zero anxiety because there's no conflict. Another way of dealing with anxiety is to presume that if the situation shifts on you, you can manage it. That's why people like to watch jugglers, for example, or acrobats because they're in a situation that's dynamically unstable and yet they can continue their complex operations and everyone loves that. It's because it's a reflection of that spirit that's able to juggle.

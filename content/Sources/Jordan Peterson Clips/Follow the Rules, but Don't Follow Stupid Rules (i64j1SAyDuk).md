@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=i64j1SAyDuk
+
+ Don't say things you don't mean, and don't go along with things you don't agree with. I told my kids when they went to school, look, kids, follow the rules, but don't follow stupid rules. Who decides if they're stupid? Well, that's a hard question because most of the time you should follow the rules. But now and then the rules get pathological and you have to stand up. I said, if you're going to stand up and break a rule, think about it and you have to be willing to take the consequences. But there's consequences to not standing up to stupid rules too. And if you think that those consequences are lesser, then you suffer from the delusion that there's an easy path through life.

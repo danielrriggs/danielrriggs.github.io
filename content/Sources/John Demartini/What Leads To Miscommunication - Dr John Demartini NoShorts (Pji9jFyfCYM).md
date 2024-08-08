@@ -1,0 +1,1 @@
+ If you can see how they're helping you and you're helping them, you have more equity. But if you see how what you have is more important than what they have, and you don't see how what they're doing is helping you get what you want, you're going to want to fix them. And I see this undermining it. And that's what leads to the alternating monologues and the miscommunication.

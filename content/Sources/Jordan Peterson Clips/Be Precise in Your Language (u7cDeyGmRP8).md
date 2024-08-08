@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=u7cDeyGmRP8
+
+ How should you arm yourself? Well, that's kind of what a humanities education teaches you to some degree. Arm yourself with words. Be precise in your language. Say what you mean. Read. Read great men and great women. Make yourself literate. Get your tongue in order. Get it under your own control. Get rid of the ums and the likes and the you knows and the pauses and

@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=O3FF7yS5TxI
+
+ If you are trapped in pathological relationships and you see no way out of them, if you... If someone who is sinking has their hands around your neck and is pulling you down, you're not obligated to drown with them. You know, there's a rule too, if you're a lifeguard, you know, some of you have had lifeguard training. How do you approach someone who's drowning and panicking in the water? Feed out, right, like this. It's like, I'll save you, but that doesn't mean you get to drown me while I'm doing it. And if it's you drown or both of us drown, it's you drown. And that's wisdom, that's not cruelty.

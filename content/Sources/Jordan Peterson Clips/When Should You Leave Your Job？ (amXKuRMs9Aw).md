@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=amXKuRMs9Aw
+
+ I worked with clinical clients a lot in career counseling. And one of the things we'd analyzed right away was, well, can you actually do your job well and be recognized for it and have a pathway to something approximating success? Or are you around truly toxic people who will punish you for your virtues? In which case, let's get your CV together. Let's get you prepared to get the hell out of there and find a place where you can actually thrive.

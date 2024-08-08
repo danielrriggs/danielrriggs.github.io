@@ -1,3 +1,9 @@
+---
+aliases:
+  - Nirodhah
+---
+Alias: Nirodhah.
+
 Blocking.
 
 Control, not in the sense of suppression, but channeling or regulating.

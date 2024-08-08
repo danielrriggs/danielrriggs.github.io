@@ -4,13 +4,32 @@ aliases:
 ---
 (In-dree-yuh)
 
-The five sense organs.
+#### Ten Senses
+
+###### The five Jnana Indriyas
+Also called the subtle receptive senses or cognitive senses. The organs of perception.
 - Sight
 - Hearing
 - Smell
 - Taste
 - Touch
+These are the [[Jnanendriyas]].
 
+###### The five Karma Indriyas
+Also called the gross / active senses. The organs of action.
+- The hands
+- Feet
+- Speech
+- The organs of elimination (anus)
+- The organs of generation (sex organ)
+These are the [[Karmendriyas]]
+
+###### These ten senses are employed by your [[Mind]].
+All of its input is filtered by these ten senses.
+
+![[indriyas.gif]]
+
+#### Introduction
 If we want to act rightly in life, we need to manage thought, because actions come from thought. Shaping our thoughts in the right way involves 2 things -
 1) How do we manage / manipulate them?
 - Hold them

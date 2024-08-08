@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=fuRT5ityuyw
+
+ And I just remember even when I was super young, like 17, I went to this conference about the flood. And I'm standing in front of this like, you know, it's like post-grad whatever student giving us a lecture on the flood. And she said there's a version of the flood in every single culture. And then she said, that's the proof that it didn't happen. And I was like, what? How does that jive together? Like, how is it that this is a universal story, but you're using it to tell me that the Bible story isn't true? And I'm like, there's something missing here. And so then I came to really understand symbolism just basically as the patterning of reality.

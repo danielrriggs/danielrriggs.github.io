@@ -2,8 +2,22 @@
 aliases:
   - the mind
 ---
-[[Vedic Psychology]] has five [[Parts of the mind]].
+[[Vedic Psychology]] has five parts of the mind:
 
+###### The 5 parts of the mind:
+- [[Manas]]
+- [[Buddhi]]
+- [[Ego|Ahamkara]]
+- [[Samskara]]
+- [[Chitta]]
+
+###### The 4 functions of the mind:
+- [[Manas]] (Memory)
+- [[Buddhi]] (Intellect)
+- [[Chitta]] ([[Mind]] / unconscious)
+- [[Ego|ahamkara]] (Ego)
+
+###### Meditation Paths
 See these two Meditation paths for more:
 - [[Manas Padha]]
 	- [[Nature of Mind]]

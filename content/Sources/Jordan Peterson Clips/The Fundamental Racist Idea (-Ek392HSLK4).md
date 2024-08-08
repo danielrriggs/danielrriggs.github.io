@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=-Ek392HSLK4
+
+ The idea that there is more differences between groups than there is between individuals is actually the fundamental racist idea It's the fundamental racist idea, which is well, let's say you're Asian Oriental to use the old word to discriminate the one type of Asian say from the other You're so different from me that there's no overlap between our groups and you're also so different and there's so little Difference within your group that now that I know that you're not me. You're not one of mine I actually know what you're like. That isn't how you get diversity

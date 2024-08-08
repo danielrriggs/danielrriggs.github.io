@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=E1Uev34EZmU
+
+ you can be racist without intending to be racist and I really do dispute that because I think in order to be racist intention has to be at the heart of that otherwise it's incoherent to me but this is really a degraded view of humanity I feel where we are effectively like marionettes and that we're just being played and that we don't have any agency anymore and therefore we can't be responsible for our own words not not just our actions we can't be responsible for our own words and their and the ramifications so we have to be controlled

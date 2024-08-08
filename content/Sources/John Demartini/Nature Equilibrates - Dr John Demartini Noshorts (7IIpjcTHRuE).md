@@ -1,0 +1,1 @@
+ Nature equilibrates. The will of God says St. Augustine is the equilibrium of the heart and mind. So I say don't exaggerate or minimize who you are, but embrace the fullness of who you are. Have full reflections of everything and everyone around you, as Aristotle said. And share your love and receive love.

@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=3mgEC-o8jpI
+
+ What are you going to have a life without stress? I don't think so. And if you're not worrying about something big that's real, you're going to worry about something that's small and delusional. You can forget the whole stress-free thing. You wouldn't even want that if you could have it. You know, people are way too ordinary and unreasonable to want a stress-free existence.

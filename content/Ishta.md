@@ -1,0 +1,1 @@
+"That which resonates with the individual spirit".

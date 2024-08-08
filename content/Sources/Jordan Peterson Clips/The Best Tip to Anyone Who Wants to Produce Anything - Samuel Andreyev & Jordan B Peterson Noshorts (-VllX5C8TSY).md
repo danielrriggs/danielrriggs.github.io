@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=-VllX5C8TSY
+
+ Good hint for anybody who wants to produce anything. Overproduce. Let yourself go. Assume you're going to get rid of 95% of what you produce and you think that's a pain because I got to throw that away but it's not because it frees you up to make mistakes. And so you can produce a tremendous amount and then you can make it good by editing and then you learn the production end of it and you learn the editing end of it which is throw away everything that isn't good. That'll be a lot but it won't be everything. If you do that over and over you start to have to throw away less.

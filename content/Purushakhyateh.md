@@ -1,0 +1,9 @@
+The word [[Purusha]] is formed out of two words: [[Puri]], which means ‘town’ and [[Sha]] which means ‘sleep’.
+
+In philosophical language, our [[Sthula Sarira|Physical Body]] is considered to be a town having nine gates.
+
+The [[Sukshma Sarira|Mental Body]] is considered to be a town having four gates. There is also a third body called the pranic body. The awareness of the world is supposed to be a function of the subtle body. [[Purusha]] is nothing but [[Consciousness]] which is dormant, unmanifest in the bodies. When [[Purusha]] comes into relationship with [[Prakriti]], there is a beginning of the universe.
+
+[[Prakriti]] consists of the five primary elements ([[Panchabhuta]]), five [[Karmendriyas]], five [[Jnanendriyas]], the fourfold functions of the mind, five pranas, three bodies and five objects of sense pleasure. All these put together form the basic [[Tattwa]]s in Samkhya philosophy. They are the components of [[Prakriti]]. According to [[Samkhya]], the universe came into being with the relation of [[Purusha]] with [[Prakriti]]. According to [[Yoga]], [[Purusha]] is the awareness which is devoid of the contents of the mind. It is free from any content of mind. It is a manifestation of [[Consciousness]] without any of the five kinds of Vrittis ([[Vritti#Five Vritis]]).
+
+In yoga, purusha is looked upon as the highest mani¬ festation of consciousness, which is free of the vrittis as well as free from any entanglement with prakriti. Usually our consciousness functions through the senses, mind and buddhi. In meditation it functions at a deeper level, but there is a pratyaya or content of mind present in that state. However, there is only one entanglement, namely the ‘I’ notion, the feeling that T am. Ultimately, beyond meditation, that feeling of T also vanishes; what remains is the consciousness called purusha. This supreme awareness of the purusha gives rise to freedom from the three [[Gunas]].

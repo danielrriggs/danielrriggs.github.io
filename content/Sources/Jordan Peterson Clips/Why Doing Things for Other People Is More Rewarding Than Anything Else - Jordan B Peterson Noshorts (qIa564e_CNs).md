@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=qIa564e_CNs
+
+ doing things for other people is actually more rewarding than virtually anything else you can do. Well, if you actually watch yourself, you pay attention to yourself and you do something that helps someone else and it genuinely helps them. I defy you to find another experience that is that satisfying. It's actually quite stunning how satisfying that is.

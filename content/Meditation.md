@@ -2,6 +2,7 @@
 aliases:
   - meditative practice
   - Meditative
+  - Meditate
 ---
 # See [[Meditation Index]] for Meditations
 
@@ -22,7 +23,15 @@ Actually, the more that your [[Mind]] wonders, the better you are going to get a
 
 The goal of meditation is to attain states of [[Enlightenment|moksha]]. Sometimes, to attain [[Enlightenment|moksha]], we will enter into states of [[Samadhi]], which is a sub-state of [[Dhyana]].
 
-See [[The Meditation Process]].
+###### The Meditation Process
+The steps involved in meditation, over time.
+
+Attention >> [[Dharana]] >> [[Dhyana]] >> [[Samadhi]]
+
+```mermaid
+graph TD;
+    Attention --> Dharana--> Dhyana --> Samadhi;
+```
 
 The [[Samadhi]] state grows out of [[Dhyana]] like dreams grow out of the sleep state.
 
@@ -31,6 +40,12 @@ When you get good at [[Dharana]], you get better at focusing & [[Studying]]. Stu
 Sometimes, after meditating for a long time, sometimes years, people will become different people. Examples of cosmic changes: being happier, being less attached, enjoying life more, being more focused (cosmically). These come out of the state of [[Samadhi]].
 
 Successful entry into [[Dhyana]] involves finding the right [[Dharana]].
+
+###### Stages of Meditation
+1) [[gross|Gross]] ([[Savitarka]])
+2) [[subtle|Subtle]] ([[Savichara]])
+3) [[Ananda|Bliss]] ([[Sananda]])
+4) I-ness ([[Sasmita]])
 
 ## Different Meditative Styles
 See [[Meditation Styles]]
@@ -56,7 +71,7 @@ See [[Metaphysics of Meditation]]
 	- [[Panchakosha Theory]]
 	- [[Confidence vs Ego]]
 - [[Siddhi Padha]]
-	- [[Karma  Fal]]
+	- [[Karma Fal]]
 		- [[Reframing Goals to Actions]]
 		- [[Origin of Motivation]]
 		- [[Sangha]]

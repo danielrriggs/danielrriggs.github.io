@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=W6-9XxaNcrs
+
+ The only correct posture between us and God is humility. The only correct posture between us and our own lives is a sense of responsibility for our actions on the one hand and a sense of humility before God and the other. Somewhere in that, I've been able to live a happy life in times of success and in times of failure. I'm not displeased to currently be in a phase of success. Success can be much harder, by the way, than failure. Success comes with enormous challenges. But there's a reason we call it success, too. It comes with a lot of amazing benefits.

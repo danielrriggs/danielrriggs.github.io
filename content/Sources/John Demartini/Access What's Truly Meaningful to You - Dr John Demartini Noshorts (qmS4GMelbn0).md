@@ -1,0 +1,1 @@
+ Accessing what's truly meaningful to you, this is the key. And most people are clouded by the influence of other people instead of accessing the clarity of their highest value, what's really meaningful to them.

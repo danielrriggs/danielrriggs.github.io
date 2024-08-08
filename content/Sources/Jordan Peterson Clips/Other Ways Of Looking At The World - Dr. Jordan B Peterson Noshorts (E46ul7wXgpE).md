@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=E46ul7wXgpE
+
+ We've only been thinking about the world as an objective place for 500 years, something like that. I mean, maybe you could chase it back to the ancient Greeks and go back 2,000 years. From a historical perspective, 500 years or 200 years is the same amount of time, and it's a tiny fraction of the amount of time that living creatures that were approximately like us have been around. So, we got along fine without thinking about the world as an objective place for a very, very long time. We survived, and here we are. It doesn't mean it's a bad idea, but it does imply that there are other ways of looking at the world that are highly functional and that have been conserved for, well, for let's say, for evolutionary reasons.

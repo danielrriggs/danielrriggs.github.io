@@ -1,0 +1,1 @@
+Subtle object, such as a [[Mantra]].

@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=N27qw7XiykU
+
+ You know, you cannot get rats addicted to cocaine if they live in their natural environments. You can only get rats addicted to cocaine if they're isolated rats in a cage. Yeah, they won't bar press for cocaine in a natural environment. And it's because they have alternative sources of dopamine energy gratification. Very interesting. So, yeah, it's very interesting. Yeah, the children of very wealthy people who are overindulged, I've seen that many times, many, many times, and it is a very sad sight. Yeah, well, they're not optimally deprived, eh? And that issue of optimal deprivation, that's a killer issue for an affluent society.

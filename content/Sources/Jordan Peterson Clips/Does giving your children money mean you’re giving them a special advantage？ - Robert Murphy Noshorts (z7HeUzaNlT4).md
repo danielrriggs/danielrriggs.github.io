@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=z7HeUzaNlT4
+
+ If I go out and create a fortune, most people are okay with me being able to go and spend it at the casino or smoke it away or buy yachts or whatever. But I'm not allowed to give it to my kid. That seems weird. So it's yeah, well, I guess the rejoinder would be well, why should your child have a special advantage? But my objection to that objection is, okay, aren't you trying to give your children all the special advantages that you can? And isn't that what you're supposed to do? Now, special doesn't necessarily mean at the expense of someone else.

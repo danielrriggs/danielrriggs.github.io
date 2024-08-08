@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=5Q9-13ewGyM
+
+ Thoughts that pertain to yourself, self-conscious thoughts, are very tightly associated with the experience of negative emotion. So it's literally the case that when you're thinking about yourself, you're unhappy. So what's the antidote to that? You might say, well, stop thinking about yourself, but you can't just stop thinking about yourself. If you try, you just think about yourself more. We should be thinking about others almost all the time. And so, for example, imagine that you would like to be happy, and you're married. Try making your wife happy, and that'll make you happy. Or at least it'll stop you from being miserable. That's a good start. Pay a lot of attention to your kids.

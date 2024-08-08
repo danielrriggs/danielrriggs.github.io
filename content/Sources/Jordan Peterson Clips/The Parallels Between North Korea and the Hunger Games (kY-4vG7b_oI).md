@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=kY-4vG7b_oI
+
+ The model example that I found was actually the Hunger Games. There is a capital and they divide 13 different districts. They make everybody else outside the capital on verge of surviving. So people do not think about what is the meaning of life, what is freedom. All they have to think about is next meal, like can I find food to feed my child? And in Pyongyang, they are really very fat and they have every intention to maintain the system and the regime. So that's where I was born. In 1993, seeing the dead bodies on the streets was literally everyday thing.

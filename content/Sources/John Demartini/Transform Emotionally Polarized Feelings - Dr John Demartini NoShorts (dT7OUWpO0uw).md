@@ -1,0 +1,1 @@
+ You can transform emotionally polarized feelings, which are joy and sorrow, into synthesized, inspired, and loving feelings. Once you see both sides, you want to be loved for both sides. You want to love life for both sides. If you do, you get to have those things as confirmations. You're seeing things as they truly are, not as you just assume they were.

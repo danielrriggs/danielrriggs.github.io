@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=dZJoOgO-55I
+
+ Why Men Earn More, I think that is a great book. Their jobs are more dangerous, they take you away from home more often, and those are disproportionately male jobs. Dads have adopted in their traditional role, sort of a father's cash 22, they learn to love their family by being away from the love of their family. They end up earning more money because they want their children to do better than they had a chance to do in their life.

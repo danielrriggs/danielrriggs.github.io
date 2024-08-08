@@ -1,0 +1,1 @@
+ You're in a long-term relationship and someone tries to help you and you don't want to accept that help, acknowledge them and say, hey, I really appreciate you wanting to help, but I really feel like I can handle this on my own and like it makes me feel kind of weird if you help me with this. If you want to, you can even say it makes me feel a little bit ashamed of myself.

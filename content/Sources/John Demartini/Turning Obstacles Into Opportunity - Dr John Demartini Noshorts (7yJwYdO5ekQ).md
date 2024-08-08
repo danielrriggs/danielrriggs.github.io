@@ -1,0 +1,1 @@
+ Don't see things as obstacles or challenges. See them as opportunities and fuel. And ask the question, how is this serving my ultimate objective? And you can take something you think is negative, and you will turn it into something you'll be thankful for.

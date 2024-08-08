@@ -1,0 +1,1 @@
+ Whenever we're doing things that are lower on our values, we tend to procrastinate, hesitate and frustrate. We tend to give up easy. We tend to have immediate gratification. And because we're not getting the same fulfillment out of lower value things, we look for immediate gratification and want a quick fix. And if it's easy, we'll do it. If it's difficult, we want to give up.

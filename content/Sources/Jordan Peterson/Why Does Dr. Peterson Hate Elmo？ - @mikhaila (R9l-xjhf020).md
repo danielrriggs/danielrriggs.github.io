@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=R9l-xjhf020
+
+ Why do you hate Elmo so much? He's a cringing little milk-sop of a puppet. I like the Jim Henson puppets. They all had an edge. They were funny. Jim Henson was funny. He was a terrible stoner. And you could tell that in Sesame Street. Yeah, you could. We used to sit around when I was a teenager and get stoned and watch Sesame Street. I mean, oh, nobody could invent the count who hadn't smoked like eight pounds of weed.

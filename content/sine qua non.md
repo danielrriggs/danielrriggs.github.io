@@ -1,0 +1,1 @@
+an essential condition; a thing that is absolutely necessary.

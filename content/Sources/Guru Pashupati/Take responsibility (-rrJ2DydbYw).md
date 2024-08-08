@@ -1,0 +1,1 @@
+ All change begins when you take responsibility. Taking responsibility means saying, I will fix this. Instead of saying, I'm wrong or somebody else is wrong. You just focus on fixing it. Take responsibility.

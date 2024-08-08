@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=4ygalMCEAWQ
+
+ Think about how crazy it is to think that we might be living on earth right now, at a time with the most number of humans that are ever going to exist at one time ever. Yeah, that's highly probable. And you know, in the population, the population collapse in developed countries is precipitous, right? It's like it fall, we fall off a cliff because it's the same as the, everyone knows this from the pandemic, the R naught number. If fewer people are reproducing next generation, you have fewer people to reproduce as fewer people are reproducing and it Yeah. Yeah. Yeah.

@@ -1,0 +1,1 @@
+The knowledge which you get in theater. It's a system of knowledge.

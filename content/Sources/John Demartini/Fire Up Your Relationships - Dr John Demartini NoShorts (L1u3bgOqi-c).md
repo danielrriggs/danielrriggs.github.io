@@ -1,0 +1,1 @@
+ It's wiser to go and fire the relationship instead of firing it out by taking the time to care enough about the individual to find out what their values are and communicate what you feel is meaningful and important in terms of what they do. That way they feel loved and you will get response back.

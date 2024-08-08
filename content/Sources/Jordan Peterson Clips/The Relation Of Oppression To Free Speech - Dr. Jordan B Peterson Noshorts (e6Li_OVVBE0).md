@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=e6Li_OVVBE0
+
+ Free speech is not just another freedom or right among many. It's certainly not viewpoint diversity or anything like that. It's the mechanism by which we generate the conceptions that allow us to organize our experience in the world. It's that mechanism. And more than that, it's the mechanism that allows us to reformulate and criticize those conceptions when they become outdated and sterile to dissolve them into a chaos that we have to contend with while it's occurring and then to reanimate them in a new form so that we can move into the future. And so if you're concerned with the oppressed, let's say, why in the world would you oppose free speech? It's the only thing the oppressed have.

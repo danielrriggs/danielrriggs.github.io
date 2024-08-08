@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=otkafqxnYdk
+
+ Calculating everything beforehand for maximum impact on your political future, that is also not a way to run a country. And that's how you get pulled into politics by handler, by PR, by opinion poll, by image. You know, you see politicians, we have to protect our image. It's like, really? Do you? You have to protect your image, do you? What's your image exactly? Well, it's what we want people to think we are. Well, how about you be that, instead of being the image of that?

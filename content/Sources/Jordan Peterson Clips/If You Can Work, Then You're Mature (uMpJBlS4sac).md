@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=uMpJBlS4sac
+
+ Can you delay gratification? Well, if the answer is no, it's well, then you're two, because two year olds can't delay gratification, which makes it very difficult for other people to play with them. If you can delay gratification, then you can work. If you can work, then you're mature. It's the definition of maturity and responsibility. It's so interesting to see that it pervades the act of attention itself.

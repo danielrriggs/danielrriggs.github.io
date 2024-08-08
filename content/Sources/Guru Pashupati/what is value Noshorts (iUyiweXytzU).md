@@ -1,0 +1,1 @@
+ Things become valuable when they solve a problem in our life, and it's the same with people.

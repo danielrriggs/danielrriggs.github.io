@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=E_IL1yDh13E
+
+ If you could have a family, you could have children, and you have your dog in a... your puppy, especially if it's a pug. And you have it... You have it in the baby carriage, it's like... Mmm... No, I don't think so. It's a parody. It starts to become a parody of parenthood, and that's... that's a slippery slope, especially like I said, if it's a pug. So...

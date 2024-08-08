@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=IP0bovFnAfI
+
+ This has been a rule that Tammy and I have used in our whole relationship. It's like, do not agree to something you don't agree to. Because the worst thing is, is you negotiate out a settlement and the person decides they're going to implement it, but really they're resentful about it because they didn't want to have any conflict. And then they're crabby about it every time they do it and they do a terrible job and they're irritated about it. And that lasts forever. If you're agreeable, you'll say yes. And then you'll get resentful. And that's the bitter and horrible underside of empathy.

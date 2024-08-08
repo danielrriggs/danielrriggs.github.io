@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=ezGTO-pO1ds
+
+ I also trained myself, especially in graduate school, to really work. I spent like five years pushing the limits of my ability to work. And then I figured out how to pull back a little bit from that because I was exhausted. I think when you're young, it's really useful for about two years or three years to work yourself to the point of exhaustion, to find out where that limit is and then dial back. And when you're young, you can kind of stand it because you're healthy as long as you don't drink too much, et cetera. But it's really useful to test that out. These career obsessed people, they tend to be extremely high in industriousness and it's a precondition for extreme success in most endeavours.

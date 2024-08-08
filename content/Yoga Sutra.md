@@ -16,16 +16,18 @@ The Yoga Sutras are structured into four chapters or "padas": Samadhi Pada, Sadh
 ---
 ###### Sutra 1:1: Introduction to yoga
 Atha yoganusasanam
-Atha: now therefore; yoga: (regarding) yoga; anusasanam: complete instructions
+
+Atha: now therefore; [[Yoga]]: (regarding) yoga; anusasanam: complete instructions
+
 >Now, therefore, complete instructions regarding yoga.
 
-*Atha*: The word atha is used here to denote that, after having purified oneself by karma yoga and after having unified the mental tendencies by bhakti yoga, the aspirant is being given instructions on yoga. Those instructions on yoga which follow will become intelligible, fruitful and also palatable to those whose hearts are pure and whose minds are at rest, otherwise not. Those who have impure minds and wavering tendencies will not be able to practice what has been instructed in this shastra.
+*Atha*: The word atha is used here to denote that, after having purified oneself by [[Karma Yoga]] and after having unified the mental tendencies by [[Bhakti Yoga]], the aspirant is being given instructions on [[Yoga]]. Those instructions on yoga which follow will become intelligible, fruitful and also palatable to those whose hearts are pure and whose minds are at rest, otherwise not. Those who have impure minds and wavering tendencies will not be able to practice what has been instructed in this [[Shastra]].
 
-*Anushasanam*: The actual word is shasanam, anu being a prefix to emphasize its completeness. Shasan is a word which means giving a ruling, command, order, instruction. The word shastra is developed from the word shasan. Shastra does not literally mean scripture. Shastra literally means a process of instructions and rulings. From the same word, another word has evolved - [[Ishwara]], meaning ruler, governor, commander, and which is commonly used for God.
+*Anushasanam*: The actual word is shasanam, anu being a prefix to emphasize its completeness. Shasan is a word which means giving a ruling, command, order, instruction. The word shastra is developed from the word shasan. [[Shastra]] does not literally mean scripture. Shastra literally means a process of instructions and rulings. From the same word, another word has evolved - [[Ishwara]], meaning ruler, governor, commander, and which is commonly used for God.
 
 ###### Sutra 1:2: What is yoga?
 Yogaschitta vrtti nirodhah
-Yogah: yoga; [[Chitta]]: consciousness; [[Vritti]]: patterns or circular patterns; nirodhah: blocking, stopping
+Yogah: yoga; [[Chitta]]: consciousness; [[Vritti]]: patterns or circular patterns; [[Nirodha|Nirodhah]]: blocking, stopping
 >To block the patterns of consciousness is yoga.
 
 This is often translated as "cessation of the fluctuations (or, waves) of the mind". But it's really just talking about control over the mind; mental discipline.
@@ -34,15 +36,16 @@ This is often translated as "cessation of the fluctuations (or, waves) of the mi
 
 "No tendencies in your mind" is [[Yoga]]. It's talking about cessation of **patterns** that we're carrying. [[Yoga]] is a way of seeing reality, which puts us into different states of power - called [[Vibhuti]]. And it brings us to a state of indescribable peace. From which, once we know ourselves as that peace, our interaction in the world comes from a very deep place. To do this, we must pass through the gates of Yoga, [[Yama]] & [[Niyama]].
 
-[[Nirodha]] - doesn't mean suppressing because [[Chitta]] refers to the total [[Consciousness]]. It's an act of blocking patterns of awareness, not awareness itself. Consciousness exists irrespective of the body, [[Mind]], [[Ten Senses]] and [[Prana]]. Our thoughts are a mere handful of our awareness. Consciousness is with the body and at the same time it can be without (or, outside) the body.
+[[Nirodha]] - doesn't mean suppressing because [[Chitta]] refers to the total [[Consciousness]]. It's an act of blocking patterns of awareness, not awareness itself. [[Consciousness]] exists irrespective of the body, [[Mind]], [[Indriya#Ten Senses]] and [[Prana]]. Our thoughts are a mere handful of our awareness. Consciousness is with the body and at the same time it can be without (or, outside) the body.
 
-The flow of consciousness that we are talking about is not the flow of your mind and thoughts; it is not the flow of your feelings, passions and desires; it is not the stock ofyour emotions and experiences. The word [[Chitta]] means the consciousness as a whole, in and outside the body, with and without it. In brief, the consciousness is like a thread connecting many lives and incarnations. Therefore, the word [[Nirodha]] does not mean blocking thoughts, desires, ambitions, passions and so forth, but it means the act or acts of blocking the process of consciousness responsible for remanifestation.
+The flow of [[Consciousness]] that we are talking about is not the flow of your [[Mind]] and thoughts; it is not the flow of your feelings, passions and desires; it is not the stock of your emotions and experiences. The word [[Chitta]] means the [[Consciousness]] as a whole, in and outside the body, with and without it. In brief, the consciousness is like a thread connecting many lives and incarnations. Therefore, the word [[Nirodha]] does not mean blocking thoughts, desires, ambitions, passions and so forth, but it means the act or acts of blocking the process of [[Consciousness]] responsible for remanifestation.
 
 [[Yoga]] is the blocking of the patterns arising in all the dimensions of consciousness. It is not only shutting yourself off from the external experiences.
 
+
 ###### Sutra 1:3: The culmination of yoga 
 Tada drastuh svarupe’vasthanam
-Tada: then; drastuh'. seer; svarupe: one’s own essential nature; avasthanam: establishment
+Tada: then; [[Drashta|Drastuh]]'. seer; svarupe: one’s own essential nature; [[Avasthanam]]: establishment
 >Then the seer is established (abides) in his own essential nature.
 
 Purity of mind, complete sense-control, desirelessness and so on, are all necessary before one is competent to reach the goal of yoga, [[Kaivalya]].
@@ -51,14 +54,18 @@ Purity of mind, complete sense-control, desirelessness and so on, are all necess
 
 ###### Sutra 1:4: What happens otherwise to [[Purusha]]?
 Vrtti sarupyamitaratra
-Vrtti: modification, pattern; sarupyam: identification; itaratra: in other state
+
+[[Vritti]]: modification, pattern; sarupyam: identification; itaratra: in other state
+
 >Or there is identification with the modifications of chitta.
 
 When the [[Chitta Vritti]]s are not in the state of [[Nirodha]], then the patterns or modifications of [[Chitta]] are superimposed on [[Purusha]].
 
 ###### Sutra 1:5: Vrittis - main classification
 Vrttayah panchatayyah klistaklistah
+
 Vfttayah: modifications of mind; panchatayyah: fivefold; klista: painful, lit. hard, difficult; aklistah: not painful
+
 >Modifications of mind are fivefold; they are painful or not painful.
 
 There five kinds of [[Vritti]]s & two modes f(painful or non-painful) or a total of ten modifications of the mind.
@@ -71,7 +78,9 @@ When we use the term mental modification, we mean the different patterns or pers
 
 ###### Sutra 1:6: Five kinds of vrittis
 Pramana-viparyaya-vikalpa-nidra smrtayah
+
 Pramana: right knowledge; viparyaya: wrong knowledge; vikalpa: fancy, imagination; nidra: sleep; smrtayah: memory
+
 >The fivefold modifications of mind are right knowledge, wrong knowledge, fancy, sleep and memory.
 
 The mind or consciousness has to be divested of all its forms so that the consciousness remains nameless and formless, which is the ultimate aim of yoga. Consciousness must be withdrawn from the senses. Yoga says that sleep is also a mental condition. Further on in the sutras, Patanjali says that even the lower savikalpa samadhi is a mental condition which has to be thrown out.
@@ -82,7 +91,9 @@ These five modifications constitute consciousness of mind. They form the [[Consc
 
 ###### Sutra 1:7: (i) Pramana - sources of right knowledge
 Pratyaksanumanagamah pramanani
+
 Pratyaksa: direct cognition, sense evidence; anumana: inference; agama: testimony, revelation; pramanani-. the sources of right knowledge
+
 >Direct cognition, inference and testimony are the sources of knowledge.
 
 [[Pramana]] can be gained from three sources: sense evidence, inference and testimony. If your [[Indriya]]s are intact, then sense evidence is one of the sources of right knowledge; however, our senses can also deceive us (for example, the mirage produced in a desert due to hot air - there is no water but our eyes believe the appearance of water to be a reality). 
@@ -97,7 +108,9 @@ In [[Yoga]] the authority is called a [[Guru]]. What he hands over to the discip
 
 ###### Sutra 1:8: (ii) Viparyaya - misconception
 Viparyayo mithyajnanamatadrupapratistham
+
 Viparyayah: misconception; mithya: false, illusory; jnanam: knowledge; atat: not its own; rupa\ form; pratistham: based
+
 >Wrong conception is false knowledge which is not based on its own form.
 
 The second type of [[Chitta Vritti]]which we have to block. [[Viparyaya]] - is not based on or does not correspond to a real object. 
@@ -109,7 +122,9 @@ Viparyaya is also called [[Avidya]], for all our knowledge is based on a misunde
 
 ###### Sutra 1:9: (iii) Vikalpa - unfounded belief
 Sabdajnananupati vastu-sunyo vikalpah
+
 Sabda: word, sound; jnana: cognition; anupati. following upon; vastu: object; sunyah: empty; vikalpah'. fancy, imagination
+
 >Following upon knowledge through words but empty of an object is fancy.
 
 The mind of spiritual aspirants sometimes becomes full of fancy and idealism; seeking to attain an imaginary goal, this is living in a world of ideas which is nothing but [[Vikalpa]].
@@ -124,10 +139,12 @@ Right knowledge, wrong knowledge and imagination are equally processes of consci
 
 ###### Sutra 1:10: (iv) Nidra - state of sleep
 Abhava-pratyayalambana vrttirnidra
-Abhava: absence; pratyaya: content of mind; alambana: support; vrttih: modification; nidra: sleep
+
+Abhava: absence; [[Pratyaya]]: content of mind; alambana: support; vrttih: modification; [[Sleep|Nidra]]: sleep
+
 >Sleep is the vritti of absence of mental contents for its support.
 
-Sleep is a condition of mind (unconscious) which hides or conceals the knowledge of the external world. Sleep is a [[Vritti]] in which the content of mind is absent. There are thoughts, but they aren't present before the mind.
+[[Sleep]] is a condition of mind (unconscious) which hides or conceals the knowledge of the external world. Sleep is a [[Vritti]] in which the content of mind is absent. There are thoughts, but they aren't present before the mind.
 
 When we see a rose inside our mind either in the form of a vision, a dream, or an ideal, the content of mind in all these states is called [[Pratyaya]].
 
@@ -135,14 +152,18 @@ When we see a rose inside our mind either in the form of a vision, a dream, or a
 
 ###### Sutra 1:11: (v) Smriti - memory
 Anubhutavisayasampramosah smrtih
+
 Anubhuta: experienced; visaya: objects of sense perception; asampramosah: not letting escape; smrtih: memory
+
 >Not letting the experienced objects escape from the mind is memory.
 
 [[Memory]] is the fifth [[Vritti]] of the [[Mind]].
 
 ###### Sutra 1:12: Necessity of abhyasa and vairagya
 Abhyasavairagyabhyam tannirodhah
-Abhyasa'. repeated practice; vairagyabhyam: by vairagya; tat: that; nirodhah: stopping, blocking
+
+[[Abhyasa]]'. repeated practice; vairagyabhyam: by vairagya; tat: that; nirodhah: stopping, blocking
+
 >The stopping of that (five vrittis) by repeated practice and vairagya.
 
 There are two methods for stopping the flow of the [[Chitta Vritti]]s:
@@ -150,22 +171,28 @@ There are two methods for stopping the flow of the [[Chitta Vritti]]s:
 - [[Vairagya]] is freedom from [[Raga]] and [[Dvesha|Dwesha]].
 Many spiritual aspirants try to concentrate their mind without first practicing [[Abhyasa]] and vairagya, without first conquering [[Raga]] and [[Dvesha|Dwesha]]. It is futile to make the mind silent without first removing the disturbing factors, namely [[Raga]] and [[Dvesha|Dwesha]], which make the mind unsteady.
 
+
+
 ###### Sutra 1:13: Abhyasa means constant practice
 Tatra sthitau yatno’bhyasah
+
 Tatra\ there, out of the two; sthitau: being fixed, established; yatnah: effort; abhyasah: practice
+
 >Of the two (mentioned in the previous sutra) ‘to be established in the endeavour’ is abhyasa.
 
-[[Abhyasa]] means to be perfectly fixed in the spiritual effort ([[Sadhana]]). The effort here involves the practice of chitta vritti nirodhah ([[Yoga Sutra#Sutra 1 2 What is yoga?]]).
+[[Abhyasa]] means to be perfectly fixed in the spiritual effort ([[Sadhana]]). [[Abhyasa]] must be stable ([[Sthitau]]) and effortful ([[Yatna]]). That means if you don't get something, you shouldn't give up. You should just go and do it and until you get it.
+
+The effort here involves the practice of chitta vritti nirodhah ([[Yoga Sutra#Sutra 1 2 What is yoga?]]).
 
 It may include [[Meditation]] or [[Karma Yoga]] or [[Bhakti]] or self [[Introspection]] and other practices. It should be remembered that just practicing something for some time is not [[Abhyasa]]. [[Abhyasa]] means continued practice; you cannot leave it at all. It becomes a part of your [[Personality]], a part of your individual nature. To emphasize this, the rishi has used the word [[Sthitau]], which means being firmly fixed or firmly established.
-
-[[Yatna]] indicates effort.
 
 When [[Abhyasa]] becomes natural, firmly rooted and complete, it leads to [[Samadhi]]. Paying utmost attention to regular and continued practice, when perfected, leads to the complete blocking of the [[Vritti]]s.
 
 ###### Sutra 1:14: Foundation of abhyasa
 Sa tu dirghakala nairantaryasatkarasevito drdhabhOmih
-Sah: that (abhyasa); tu: but; dirgha: long; kata: time; nairantarya: without interruption; satkara: reverence; asevitah: practised; drdha: firm; bhumih: ground
+
+Sah: that ([[Abhyasa]]); tu: but; dirgha: long; kata: time; [[Nairantarya]]: without interruption; satkara: reverence; asevitah: practised; drdha: firm; bhumih: ground
+
 >It becomes firmly grounded by being continued for a long time with reverence, without interruption
 
 There are three conditions for the practice of [[Abhyasa]]:
@@ -180,11 +207,12 @@ Patanjali declares that if we practice [[Abhyasa]] with [[Faith]] and conviction
 
 ###### Sutra 1:15: Lower form of vairagya
 Drstanusravika-visayavitrsnasya vasikara-sanjna vairagyam
+
 Dfsta: seen; anusravika: heard; visaya: object; vitrsnasya: of the one who is free of desire (trsna: craving, desire); vasikara: control; sanjna: awareness; vairagyam. absence of craving
 
 >When an individual becomes free of craving for the sense objects which he has experienced as well as those of which he has heard, that state of consciousness is vairagya.
 
-Vairagya is without craving for all the objects of pleasure ([[Drishta]]).
+[[Vairagya]] is without craving for all the objects of pleasure ([[Drishta]]).
 [[Anushmvika]] - those of which he has heard.
 
 [[Vairagya]] is completely a process of [[Buddhi]]. It isn't necessary to become a [[Sannyasis|Renunciate]], but rather to completely give up [[Raga]] and [[Dvesha|Dwesha]], which cause the subconscious agony.
@@ -197,10 +225,67 @@ There are five types of these basic urges, which may be described as subconsciou
 
 ###### Sutra 1:16: Higher form of vairagya
 Tatpararn purusakhyatergunavaitfsnyam
-7af: that; param: highest; purusakhyateh: true knowledge of purusha; gunavaitrsnyam: freedom from the desire for gunas
+
+7af: that; param: highest; purusakhyateh: true knowledge of [[Purusha]]; gunavaitrsnyam: freedom from the desire for [[Gunas]]
+
 >That is highest in which there is freedom from the desire for gunas on account of the knowledge of purusha.
 
-In the lower state of [[Vairagya]], the aspirant transcends the attachments for sense objects, but these still remain in a subtle form. This involves a process of suppression in the sense that there is discrimination and control through the development of religious consciousness and [[satsang]].
+There are two forms of [[Vairagya]].
+
+In the lower state of [[Vairagya]], the aspirant transcends the attachments for sense objects, but these still remain in a subtle form. This involves a process of suppression in the sense that there is discrimination and control through the development of religious [[Consciousness]] and [[Satsang]]. There is conscious control by the mind and the desires and cravings are kept under control.
+
+The higher form of [[Vairagya]] is called [[Paravairagya]].
+
+See [[Purushakhyateh]] for commentary on [[Purusha]].
+
+###### Sutra 1:17: Definition of samprajnata samadhi
+Vitarka-vicharanandasmitanugamat samprajnatah
+
+Vitarka: reasoning; vichara: reflection; [[Ananda]]: bliss; [[Asmita]]: sense of individuality; anugamat: by association; samprajnatah-. samadhi with prajna
+
+>Samprajnata yoga constitutes association respectively with reasoning, reflection, bliss and sense of individuality.
+
+[[Samadhi]] is the goal of yoga. It is the positive aspect. The negative aspect is laid by chitta vritti nirodha ([[Yoga Sutra#Sutra 1 2 What is yoga?]]).
+
+See [[Samadhi]] for more.
+
+###### Sutra 1:18: Definition of asamprajnata samadhi
+Viramapratyayabhyasapurvah samskaraseso’nyah
+
+[[Virama]]: stopping; [[Pratyaya]]: content of mind; [[Abhyasa]]: continued practice; purvah: coming before; samskarasesa: in which only the traces remain; anyah: the other samadhi
+
+>The other samadhi (asamprajnata) is preceded by a continued study of stopping the content of mind. In it the mind remains in the form of traces.
+
+See [[Samadhi]] for more.
+
+###### Sutra 1:19: Past merits needed for asamprajnata samadhi
+Bhavapratyayo videhaprakrtilayanam
+
+Bhavapratyayah: birth is the cause; videha: disembodied yogis; prakrtilayanam: the yogis who are merged into prakriti
+
+>The videha and prakritilaya yogis have birth as the cause of asamprajnata samadhi. (This is bhavapratyaya asamprajnata samadhi.)
+
+Usually [[Samadhi]] is attainable through [[Faith]], by courage, [[Memory]] and a higher form of intelligence. It is through these different methods, according to the intensity of application and urge, that the student can attain samadhi sooner or later. However, we find many people who have practiced nothing reaching the state of samadhi very easily. This is because at the time of birth they got all the traces of their past [[Karma]]. Thus there are examples of persons going beyond the barriers of the lower [[Consciousness]] at a very young age; for example, the great saint Jnaneshwar and, similarly, Ramana Maharshi of Arunachala, who attained [[Samadhi]] when he was in his teens. In this sutra, Patanjali says that the two types of yogis, namely, those who are disembodied and those who are merged into [[Prakriti]], can attain [[Asamprajnata]] [[Samadhi]] right from birth. They do not have to practice any preliminary stages like [[Dharana]], [[Dhyana]] or [[Vitarka]], [[Vichara]], etc.
+
+###### Sutra 1:20: Otherwise, merits needed for asamprajnata samadhi
+Sraddhavlryasmrtisamadhiprajnapurvaka itaresam
+
+[[Sraddha]]: faith; [[Veerya]]: energy, strong will; [[Smrti]]: memory; samadhiprajna: intelligence arising from samadhi; purvaka: preceded by; itaresam-. of others
+
+>Others (other than those disembodied and merged into prakriti) attain to asamprajnata samadhi through the stages of faith, strong will, memory and intelligence derived from samprajnata samadhi respectively
+
+[[Sraddha|Shraddha]] is the first essential principle required by a student of yoga. It is different from mere belief.
+
+It is, however, not the whole of truth, but only a glimpse; it is just the beginning of the path of [[Yoga]].
+
+A guru induces in the disciple an experience of truth or [[Samadhi]] through his own power and thus shraddha arises.
+
+[[Veerya]] - One must continue on his path at any cost. The mind is to be properly controlled, and a controlled mind is full of courage, veerya. In the Vedas there is a prayer in which the rishi asks for [[Veerya]] and [[Ojas]] for achieving courage and energy.
+
+[[Smrti]] - The word smriti here actually means [[Dhyana]], in which the aspirant remembers the symbol.
+
+samadhi prajna - 
+// todo - left off here, 8/7
 
 ###### Sutra 1:27: Pranava is verily Ishwara
 Tasya vachakah pranavah

@@ -1,0 +1,1 @@
+ So the fear of failure, the perception of failure is everything to do with trying to pursue something that's not truly highest on your values, where you're not willing to do whatever it takes to get it. And it's actually a feedback mechanism to try to guide you back to what is most important.

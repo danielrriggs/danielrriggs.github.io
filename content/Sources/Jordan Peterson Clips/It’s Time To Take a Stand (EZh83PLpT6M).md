@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=EZh83PLpT6M
+
+ Big tech and big pharma and big government colluding and having a similar mission. It's happening right in front of our eyes. And I'm saying that people like you and me, we have an obligation to expose that. We saw big government protect big pharma. We saw big pharma and big tech scratching each other's back. We saw the DOD in the United States provided more money to Pfizer in 2022 than they did to Boeing. The Department of Defense spends more money paying Pfizer than they spend Boeing, which is going to make weaponry and aircraft that will protect our nation.

@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=6SXAnBD0w8s
+
+ What you most want to be found will be found where you least want to look, essentially. And it's so interesting because it means that if you're willing to turn around and to stand up, say, and stand up straight, and face the darkness like fully, what you discover at the darkest part is the brightest light. And that's something that's so much worth discovering because there's going to be terrible darkness in your life. And it's going to make you cynical and bitter. And it could easily be that you're just not looking at it enough because if you looked at it enough and you didn't shy away, and you brought everything you had to bear on it, you'd find that there was more to you than there was to the horror.

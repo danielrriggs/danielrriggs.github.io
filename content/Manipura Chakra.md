@@ -2,6 +2,8 @@
 aliases:
   - Manipura
 ---
+Alias: Manipura.
+
 Situated at the navel or lower back, it governs our [[Agni]]. Our digestive fire.
 
 Governs our digestive processes (both physical and mental).

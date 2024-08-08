@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=LdtwgbHBTLs
+
+ Hi everyone April 19th at the Sony Center in Toronto, Ontario, Canada I'm debating Slavoj Žižek Slovenian philosopher and professor at the Institute for sociology and philosophy at the University of Ljubljana whose works on cultural studies psychoanalysis and Above all for the purposes of this announcement Marxism are world renowned the pre-sale code is JBPSZ and begins Thursday February 28th at 11 a.m. Local time until Thursday at 10 p.m. Local time General ticket sales begin Friday at 10 a.m. Local time the topic happiness Marxism versus capitalism Hope to see you there

@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=w4vh05LaiWA
+
+ There's a technical problem with being selfish. Let's say you're only acting in accordance with what's good for you Which you do you mean exactly? Do you mean you in the next five minutes or the next ten minutes or the next day? Or the next week or month or year or five years? I mean, you're an old person not yet, but you will be and so if you take yourself seriously as an entity that Exists collectively across time then you're faced with the problem of the collective instantly even if you're highly selfish So I don't think that there is a selfishness that's Logically juxtaposed against the interest of the collective

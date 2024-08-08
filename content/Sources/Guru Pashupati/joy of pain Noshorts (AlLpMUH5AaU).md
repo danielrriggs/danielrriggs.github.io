@@ -1,0 +1,1 @@
+ Never distract yourself from your pain. You learn nothing in joy, but you learn everything in pain.

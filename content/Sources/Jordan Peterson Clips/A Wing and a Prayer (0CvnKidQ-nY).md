@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=0CvnKidQ-nY
+
+ God forgive us our trespasses as we forgive those who trespass against us. May what is highest guide our vision May what is highest open our ears May what is highest guide our tongues and may we pray Fearful of the hell we could so easily and carelessly create Deliver us from evil Shine a light into the corners of our dark hearts For thine is the kingdom the power and the glory forever and ever Amen

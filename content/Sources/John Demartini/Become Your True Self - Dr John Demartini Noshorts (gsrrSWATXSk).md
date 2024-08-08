@@ -1,0 +1,1 @@
+ Schopenhauer says that we become our true self, the soul, to the degree that we make everyone else in the world ourself.

@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=v4jy89qgAW0
+
+ That's one of the great secrets of myth. Myth, when it is functioning efficiently, is not really to do with a long time ago. The stories that get remembered are the ones the day that was not like the day before. And when you didn't have endless iPads or even literacy, you had to decide, what am I going to choose to remember? It was a conscious act of will. And stories like the tuning fork, they do something to you. I'm very interested in the notion of noblesse oblige, which really translates as, if you are noble, you have to act noble. And to act noble, you really need to be around stories that externally show you through symbolic images what that looks like. And without consuming that, it's very hard to stay focused on it.

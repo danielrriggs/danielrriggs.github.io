@@ -1,0 +1,1 @@
+Son of [[Vishwamitra]]. Birthed [[Bharata]].

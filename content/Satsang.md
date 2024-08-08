@@ -1,0 +1,1 @@
+Derived from two roots: _sat_ meaning "true’" and sangha meaning community, company or association.

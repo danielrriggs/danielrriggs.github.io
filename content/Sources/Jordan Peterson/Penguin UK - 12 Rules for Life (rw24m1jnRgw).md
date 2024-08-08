@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=rw24m1jnRgw
+
+ I'm in the UK at Penguin, which I'm thrilled about because I think Penguin is the greatest book publisher in the world and England is the centre of the English language and that's really something because England has brought a tradition of truth and clarity to the world that has illuminated it in many ways and I'm hoping that this book extends that great English tradition one step farther like a good colonial should. So that's, and I hope you read it and I hope that it helps you sort out your life I think people have found the things that I've said helpful in that regard and I've tried to distill them and extend them in this book and deepen them so hopefully that's what you'll find when you read it

@@ -1,0 +1,1 @@
+"seal", "mark", or "gesture". A symbolic or ritual gesture or pose.

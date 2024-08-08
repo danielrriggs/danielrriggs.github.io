@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=1O5l2wn7GaE
+
+ You don't have to get to the goal. You have to aspire to the goal and move towards it. And that then that doesn't even matter if the goal recedes, which it will, as you approach it, because you're, you know, your ability to conjure up what constitutes the ideal is going to become more sophisticated as you move towards it. And you might think, well, that's terrible, but it isn't because it means the game doesn't have to end, right? Because if you may hit the ideal, Oh, well game over reset. No, no, that isn't going to be how it works. It's just, it's going to get better.

@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=e08yDGe9cZw
+
+ The positive emotion system is to facilitate movement forward to a better place. That's its function. So that's so interesting because it means that if you're not moving forward to a better place, then you don't have any positive emotion. And there's another conclusion that you can derive from that too, which is that if you don't have a value system, you don't have any positive emotion. Because a value system is what posits that one thing is worth doing more than another. And if one thing isn't worth doing more than another, then you don't have any place valuable to go. And if you don't have any place valuable to go, then you don't have any positive emotion.

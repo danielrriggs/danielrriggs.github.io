@@ -1,0 +1,1 @@
+ You always have energy for things that are important to you, and you run out of energy for things that aren't. If it's not valuable to you, it puts you to sleep. And maybe you're drained at the end of the day when you're doing something that's not meaningful.

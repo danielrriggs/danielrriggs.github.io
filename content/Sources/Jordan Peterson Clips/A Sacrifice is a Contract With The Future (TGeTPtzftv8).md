@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=TGeTPtzftv8
+
+ Sacrifice is a contract with the future, but it's not a contract with any particular person It's it's a contract with the spirit of humanity as such It's something like that and so when you think about it that way that should make you faint with Amazement because that is such a bloody amazing idea to come up with that idea that you can bargain with the future That is some idea man. That's that's like the major idea of human of humankind. We suffer. What do we do about it? We figured out how to bargain with the future

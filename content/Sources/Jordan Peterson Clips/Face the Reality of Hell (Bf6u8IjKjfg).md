@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=Bf6u8IjKjfg
+
+ You don't just have to face the reality of unjust suffering and death in your life. You have to face the reality of hell. You might say, well, I don't believe in hell. It's like, well, do you believe in Nazi Germany? You know, do you believe in Stalinist Soviet Union or Maoist China or Cambodia? That's hell. You can assess that more deeply. You could say, well, that's not as precise a formulation of hell as you might be able to conceptualize. Hell is actually participation in the process that led to the establishment of those countries. Maybe that's even worse than death, and I think you can make a case for that. I really do.

@@ -2,9 +2,14 @@
 aliases:
   - raga
 ---
-The Sanskrit word for the experience of attraction or likes. Raga means "attraction".
+The Sanskrit word for the experience of **attraction** or **likes**. Raga means "attraction".
 
 Attachment. Desire. Terrible emotions. Bad [[Vritti]].
+
+Raga is the emotion that diminishes you.
+###### Raga Emotions
+#wip
+- [[Desperation]]
 
 I've also seen it translated as "color".
 

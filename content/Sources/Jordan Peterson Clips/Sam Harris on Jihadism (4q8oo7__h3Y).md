@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=4q8oo7__h3Y
+
+ My sense is that you, and this is the same as Richard Dawkins, you guys identify the spirit that motivates people to act in a pathological direction, the Taliban. You identify that with the religious impulse. Well, I would say that it's not exclusively religious, but insofar as it is religious, it gets even more leverage in that context and towards the end. So, for instance, what is worse about jihadism than ordinary forms of terrorism, in my view? It is the religious top spin it has based on its motivating ideas.

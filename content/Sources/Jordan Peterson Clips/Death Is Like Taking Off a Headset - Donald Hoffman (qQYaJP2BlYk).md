@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=qQYaJP2BlYk
+
+ You have a very radical conception of consciousness. What has that done for you existentially? Well, I thought of myself as a little object in space-time. And the death of the body is ultimately the death of me. And now, it's well, our best science says that this is, you know, my body is just an icon in a headset. So in some sense, it's just an avatar. This body is just an avatar. And so death is more like taking off a headset.

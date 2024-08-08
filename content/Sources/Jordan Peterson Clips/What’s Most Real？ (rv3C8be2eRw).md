@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=rv3C8be2eRw
+
+ What's most real might be what's there when the times are hardest. That's how you define the reality of a friendship or a love affair. That's a different concept than, you know, the material is what's real. It's like, no, what's real is what sustains you through the worst catastrophe. And you might say, well, there's nothing there. It's like, well, that's one perspective. Your catastrophe is gonna be pretty damn grim if that's your a priori attitude, that nihilism or maybe the hedonism that goes along with it. You're not gonna be very well protected when the storms rise.

@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=QrFbyVc3KoA
+
+ undergraduates that I've observed, they would come into class with a veil of cynicism and sometimes that was while we're doing this for the grade or we have a practical reason in mind but if you could get under that and communicate something to them that was genuine genuinely philosophical and meaningful, they would drop that surface-level cynicism and dive into it like people who were starving.

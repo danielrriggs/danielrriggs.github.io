@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=HQMzNr_lDqs
+
+ When should you respond to a disruption in social communication? When should you call someone on it? And our answer has been something like the rule of three that's fairly typical of narrative descriptions of such things. If it happens once, you can ignore it. It's just random fluctuation. If it happens twice, you could mark it but still discount it. But if it happens three times, it establishes a pattern and then something has to be called into question. So I might say if I'm interacting with my wife and it doesn't go well three times in a row, I might say to her, I tried to be friendly three times in a row and I've been rebuffed. What that indicates to me is something else is going on here.

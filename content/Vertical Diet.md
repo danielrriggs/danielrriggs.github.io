@@ -9,3 +9,5 @@ Vegetables: Bell pepper, spinach, couple carrots.
 Miscellaneous stuff per day - few carrots, few almonds, some butter, little cranberry juice (**not from concentrate**), few blueberries, some Greek yogurt.
 
 (for athletes) Salt. Salt is huge. Salt your foods generously. Eat more salt.
+
+[[Periworkout, Intraworkout]]

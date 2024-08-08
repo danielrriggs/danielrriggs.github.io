@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=tTLIL1tqKG8
+
+ For example, like something like quantum physics, the general public doesn't need to know that or even believe in that in order for your computer to work. You know what I mean? They can just go buy the computer, it works or it doesn't. But with economics, it is important for the public to at least know the basics because like something like minimum wage laws, if Mises is right, then that actually makes it harder for teenagers with no job skills to get hired. And so if the public is supporting a hike in the minimum wage to $15 an hour in the US, thinking this is going to help young people, well, no, that's actually hurting a lot of them.

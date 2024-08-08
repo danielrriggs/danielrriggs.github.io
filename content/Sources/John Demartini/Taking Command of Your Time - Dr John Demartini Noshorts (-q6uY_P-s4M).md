@@ -1,0 +1,1 @@
+ Unless you take command of your time, nobody else is going to. But if it's pertinent to you and it helps you and it helps you fulfill your values, you'll prioritize it, you'll get onto it. Things that are high on your values, you make time for. Things that are low on your values, you don't make time for.

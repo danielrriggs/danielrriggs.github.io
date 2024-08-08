@@ -1,0 +1,1 @@
+ When you're doing a service and you're charging for it and you're charging more than its actual value, they're going to get narcissistic and treat you back. They're going to be greedy and not want to pay. If you do a service and give them more than they expect, they're going to feel altruistic and feel like they owe you more.

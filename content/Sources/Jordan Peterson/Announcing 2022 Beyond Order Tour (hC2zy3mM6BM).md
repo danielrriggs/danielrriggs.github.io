@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=hC2zy3mM6BM
+
+ Hey, Dag, what's your news? Well, I'm announcing my tour for next year. It begins January 25th. We're going to do 40 cities in the U.S. and then we'll hit Canada, Europe, Southeast Asia, including Australia, New Zealand. 150 cities or so in total, like the last tour. Beyond order, 12 more rules for life. And if you're interested in attending, go to the ticket sale site and away we go. Looking forward to seeing you there. Are you up for this? This is a pretty big tour. I think I'm up for it. It looks like it. I practiced in New York and in Cambridge and Oxford and it seemed to go well. So I'm thrilled to death to be able to do this again and hope everybody that attends is feeling the same way.

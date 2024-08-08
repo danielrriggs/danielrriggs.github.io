@@ -1,0 +1,1 @@
+Those objects which one has not experienced but of which one has heard from other persons and from books.

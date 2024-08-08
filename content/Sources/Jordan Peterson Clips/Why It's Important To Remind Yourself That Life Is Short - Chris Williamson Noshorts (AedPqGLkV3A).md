@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=AedPqGLkV3A
+
+ life is short, how can we add a sense of urgency to it? Well, I would say by reminding yourself that life is short, that'll add a sense of urgency by noticing. When my parents were in their seventies, sixties perhaps, I usually saw them about once every two years. We communicate a lot more than that, but we live a long ways apart. So I calculated, you know, well, my dad's probably gonna live till his mid eighties or late, you know, somewhere in there. And he's 70, let's say, I'm gonna see him 40 more times. It's like, okay, 40 more times. That's urgent. So you better get it right, because you don't have that many opportunities.

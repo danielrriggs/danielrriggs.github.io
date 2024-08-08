@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=NhdgtIca8-E
+
+ Before your discipline, you're not free, you're just chaotic. And so you have to practice some set of routines and rituals. Now, you could say, well, they don't necessarily have to be religious, and they could be secular, you could become a lawyer, you could become a plumber, you could become a carpenter, and I would say, yes, that's far better than not becoming anything. But the problem with an identity that isn't rooted into the archetypes is it leaves you incomplete. Because the archetypal rooting of the identity is what helps you grapple with the fundamental existential problems of life. And whether you're a carpenter or a plumber or a lawyer, your soul is still going to hunger for some deeper form of identity.

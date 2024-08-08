@@ -1,0 +1,1 @@
+ People who are not doing what they love and loving what they do have Monday morning blues, Wednesday hump days, thank God it's Fridays, and week friggin' ends.

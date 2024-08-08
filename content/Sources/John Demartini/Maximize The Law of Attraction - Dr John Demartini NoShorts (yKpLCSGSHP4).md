@@ -1,0 +1,1 @@
+ So you have to know what's really valuable to you. And to the degree that you do, and to the degree that you prioritize your actions and prioritize your life, you maximize what we call the law of attraction, which is the increasing probabilities of achieving what you set out for.

@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=UWLgFoC_2uc
+
+ Marriage is for children, not for adults. That's a very immature way of looking at the world, if you think your marriage is for you. You have a free choice when you have children, to have the children or not have the children. That's like having a free choice to take the job or not take the job. But once you take the job, you take the responsibilities with it.

@@ -1,7 +1,11 @@
 ---
 aliases:
   - dvesha
+  - Dwesha
+  - dwesha
 ---
-Means "repulsion". The experience of repulsion or dislike. Strong dislikes or avoidance.
+Alias: Dwesha.
+
+Means "**repulsion**". The experience of repulsion or dislike. Strong dislikes or avoidance.
 
 Hatred and judgment.

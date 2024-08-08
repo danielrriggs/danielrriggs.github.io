@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=QX6tpG95E8k
+
+ if you were to set up a hierarchy of importance of what makes a good seal, some people would think, Oh, well, it's probably being the best shot, or it's probably being the strongest, or it's probably being really good in the water. But if you offered them one thing, 99.9% of steals would agree. And that is you look out for your teammates. You put your team above yourself. If you don't take care of your teammates, none of that, none of those other things matter. You're not even wanted in the seal teams.

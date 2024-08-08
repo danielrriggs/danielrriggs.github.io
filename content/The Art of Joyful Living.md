@@ -33,7 +33,7 @@ The mind has 4 faculties (or, functions):
 2) [[Buddhi]]
 3) [[Manas]]
 4) [[Chitta]]
-(Related: [[Parts of the mind]]).
+(Related: [[Mind#The 5 parts of the mind]]).
 
 Later, we will discuss how to coordinate these four functions. For now, it is sufficient to understand that they are not the **real self**.
 
@@ -319,9 +319,9 @@ All your actions are controlled by your thoughts, and all your thoughts are cont
 
 The body, breath, and mind all work together. Your actions are virtually your thoughts, and your thoughts are your desires. Those desires are mingled with your emotions, which arise from [[Four Primitive Fountains]]. The combination of your emotional life and your thinking process is what you call the [[Mind]]. The mind, your thinking process, exists between you and reality.
 
-The mind has two separate compartments: the conscious mind and the unconscious mind. The conscious aspect of the mind is very small - you use and cutivate this small part during your waking state. The unconscious level of the mind that dreams and sleeps is not under your control, and you do not know much about it.
+The mind has two separate compartments: the conscious mind and the unconscious mind. The conscious aspect of the mind is very small - you use and cultivate this small part during your waking state. The unconscious level of the mind that dreams and sleeps is not under your control, and you do not know much about it.
 
-You're like a wheel - to rotate, it needs spokes (the [[Parts of the mind]]) and a hub (soul - doesn't move - it creates movement).
+You're like a wheel - to rotate, it needs spokes (the [[Mind#The 5 parts of the mind]]) and a hub (soul - doesn't move - it creates movement).
 There is something called the individual soul, or the center of consciousness, which is not subject to movement, change, destruction, or death. That central part of us is eternal. Because we are not in touch with this center, we are constantly afraid and insecure. We become caught up by our emotions. The little bit of consciousness that we presently experience is only a dim consciousness. You identify yourself with the spokes that move and change.
 
 [[Manas]] is limited - it has no power to make decusions. The faculty that decies is [[Buddhi]]. You are usually controlled by [[Manas]] because you do not take the advice of [[Buddhi]], the higher function.
@@ -496,7 +496,7 @@ Usually, you don't see things as they are; you see things only partially rather 
 
 You will not find this level of wisdom through the process of sense perception. If you see something with your senses, you don't actually see it as it is. For example, if you merely change an object's angle, it may look quite different, and if something looks different at different times, then the description or experience of that object is incomplete and partial. And when you describe something differently from time to time, it is difficult for others to understand your concept and thus their conceptualization may be entirely different from yours.
 
-Knowledge received or imparted through the senses is shallow and imperfect. This is why there is always doubt in your mind: "Am I right in doing this? Have I done this correctly?" You need external confirmation; you need evidence that you have done something accurately, because your sense perception is never totally correct and you cannot be secure in it. Yet in order to receive information from the external world and to function in the world, the poor mind must employ the [[Ten Senses]].
+Knowledge received or imparted through the senses is shallow and imperfect. This is why there is always doubt in your mind: "Am I right in doing this? Have I done this correctly?" You need external confirmation; you need evidence that you have done something accurately, because your sense perception is never totally correct and you cannot be secure in it. Yet in order to receive information from the external world and to function in the world, the poor mind must employ the [[Indriya#Ten Senses]].
 
 These ten senses are employed by your [[Mind]]. All of its input is filtered by these ten senses.
 

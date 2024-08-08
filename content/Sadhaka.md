@@ -1,0 +1,1 @@
+Someone who follows a particular [[Sadhana]].

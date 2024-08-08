@@ -1,10 +1,17 @@
 ---
 aliases: []
 ---
+###### Definition 1
 A collection of experiences and undigested emotional energy that gets stored in your mind.
 
 A memory impression. Thought generating machines that live in our [[Chitta]] which generates thoughts at the right time.
 
+###### Definition 2
+The word samskara may be translated in English as latent impression, or dormant or past impressions, but this is perhaps not the correct meaning.
+
+Samskara is the seed of [[Consciousness]] which survives up to the state of [[Samprajnata]] [[Samadhi]]. After that state it comes to an end, giving rise to [[Nirbeeja]] [[Samadhi]].
+
+###### Commentary
 In the east, they understand the western term "[[Personality]]" as a collection of samskaras.
 
 A lot of what hold us back and propel us forward are samskaras.

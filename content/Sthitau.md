@@ -1,0 +1,1 @@
+Being firmly fixed or firmly established. Stable.

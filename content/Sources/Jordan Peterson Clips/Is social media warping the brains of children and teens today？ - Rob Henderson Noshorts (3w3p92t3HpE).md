@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=3w3p92t3HpE
+
+ I feel very fortunate because I came of age just before fast internet and all of this stuff had started ticking off like right before YouTube, all of this stuff. And I can imagine that if I was a, I don't know, if I was 13 and all of this stuff had existed today, like I'm sure it would be warping my brain in one way or another. I mean, between the internet, between social media, and then of course the digital porn and the endless images. I don't know how like very young boys are dealing with this.

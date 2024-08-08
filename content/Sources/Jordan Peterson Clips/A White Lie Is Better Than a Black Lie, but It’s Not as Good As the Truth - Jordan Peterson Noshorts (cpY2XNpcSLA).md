@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=cpY2XNpcSLA
+
+ White lie is better than a black lie, but it's not as good as the truth right, so and I would say even in situations where you're called on to to Manifest a white lie It's still better if you can come up with something that isn't true at one level and false at another You know to keep it true all the way down right sometimes You're just not smart enough to whip up an answer like that on the fly though. Yeah So yeah, and that is we you know that is a situation where you're being asked to conflicting things at the same time Yes, it's not necessarily easy to do that correctly, but it's an adventure to tell the truth

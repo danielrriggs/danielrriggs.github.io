@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=HGeynJVSiNw
+
+ The Ontario College of Psychologists, which is the board that regulates the practice of psychology in Ontario and hypothetically protects the public interest, has levied a series of what are in essence lawsuits against me for unprofessional conduct pertaining primarily to my social media communication. They have decided in their wisdom that I am to be required to undertake a series of re-education lessons designed to ensure that I communicate in a manner they deem appropriate. And I have told them that there are no circumstances I can imagine under which I would be willing to do that. And the next step is to bring me before a public disciplinary hearing and then to suspend my clinical license.

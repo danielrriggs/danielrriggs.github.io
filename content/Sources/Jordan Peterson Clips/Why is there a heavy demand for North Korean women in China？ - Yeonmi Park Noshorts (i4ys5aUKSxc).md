@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=i4ys5aUKSxc
+
+ There's a heavy demand for North Korean women in China. And the fundamental reason for that, China instituted a one-child policy back in the 60s, and many, many female fetuses were more aborted than male. So there's a disproportionate number of young Chinese men who have no partner, and no probability of acquiring one, because there's an absolute shortage of women. And so, you and your mother were valuable commodities because of the shortage of women.

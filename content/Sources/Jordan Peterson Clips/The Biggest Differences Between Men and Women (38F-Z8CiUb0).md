@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=38F-Z8CiUb0
+
+ There is more similarity between men and women than there are differences. The biggest difference is in interest actually, and this is kind of interesting for someone mathematically minded, because there isn't much evidence that women and men differ in mathematical ability at a cognitive level. Maybe boys have a slight edge in spatial reasoning and that might be linked to testosterone. And I think that's probably true, but it's slight. But they have a whopping difference in interest. And women are reliably more interested in people and men are reliably more interested in things compared to the other sex.

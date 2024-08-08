@@ -1,0 +1,1 @@
+When attention goes beyond the gross and subtle levels of meditation, these recede into the background, as one is aware of the underlying bliss, a reality far subtler than mere emotion. In this still subtler experience, there is a simplicity, in that the multiplicity has been replaced by the awareness of [[Ananda|Bliss]].

@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=DwAez2v8SLE
+
+ Women initiate about 75% of divorces. There are multiple reasons for that. What one reason is, is that women are higher in trait neuroticism. They're more sensitive to negative emotion. So they feel more units of negative emotion subjectively per unit of stress. That's a way of thinking about it. And so they get unhappy faster. The world is more dangerous for them in some sense physically, but I think more importantly, they are going to bear primary responsibility for dependent infants. And if you have an infant depending on you, you should react to the world as if it's more dangerous than you might if it was just you navigating through it.

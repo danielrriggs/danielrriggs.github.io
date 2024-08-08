@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=A7Cmwfbg_pI
+
+ There is nothing that people like more and need more than to be listened to. You know, and that's partly why the left clamors all the time. You know, it says, look, there's all these people who aren't being listened to. It's like, there are a lot of people who aren't being listened to. They're absolutely right. There's no doubt about that. And I've dealt with people who were extraordinarily marginalized, so to speak, in my clinical practice. And some of those people, to straighten out their minds, they need like 10,000 hours of listening. I've had people in my clinical practice, no one ever listened to them their whole life.

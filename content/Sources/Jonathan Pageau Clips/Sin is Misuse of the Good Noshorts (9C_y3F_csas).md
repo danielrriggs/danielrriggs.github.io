@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=9C_y3F_csas
+
+ Wealth is useful to accomplish important things, but avarice rots the soul. Food is a wonderful thing and it's useful for life, but gluttony leads to our destruction. And so sin in this vision of the world, that horrible word that no one wants to hear, sin isn't just the breaking of arbitrary rules, but it's in the misuse of the world. And that misuse of the world ends up being an untruth, ends up being a lie or something that's false, something that separates things from each other. It's found when things are not aligned with their purposes. So for example, a person is not just a tool so that I can advance myself in the world. And if I treat a person exclusively like that, then I will inevitably sin against that person.

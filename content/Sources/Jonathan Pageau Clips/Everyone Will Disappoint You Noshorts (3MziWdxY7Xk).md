@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=3MziWdxY7Xk
+
+ Because people will disappoint you. The church will disappoint you. Your spouse will disappoint you. Your kids will disappoint you. Everybody will disappoint you. And then you will find out that you will disappoint yourself. So what are you going to do? You can just live in that despair. Or you can die. You can choose to die. And if you choose to die, then there is a surprise. There is actually a surprise. Which is, you could call it the resurrection. A little one. A little resurrection. Is that all of a sudden some of those things start to shine. Be fuller than what you thought when you were trying to hold on to them.

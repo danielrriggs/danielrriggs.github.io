@@ -1,0 +1,1 @@
+ Giving yourself a timeframe allows you to structure and organize and prioritize your time usage to get the most done in the least amount of effort. If you prioritize your daily actions on a daily basis and do the highest priority actions to achieve the highest priority goals, you end up having the highest degree of fulfillment life.

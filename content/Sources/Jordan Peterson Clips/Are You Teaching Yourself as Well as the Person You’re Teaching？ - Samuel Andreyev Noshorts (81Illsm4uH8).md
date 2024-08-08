@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=81Illsm4uH8
+
+ You should be teaching yourself while you're teaching, you know, as well as the person that you're teaching and having to explain something in detail certainly makes sure that you understand it more deeply. If you're interested and engaged in it, then it's liable to be a creative exercise and never a waste of time. And if that isn't happening, you're probably teaching incorrectly.

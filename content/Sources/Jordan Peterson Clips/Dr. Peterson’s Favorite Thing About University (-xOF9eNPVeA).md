@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=-xOF9eNPVeA
+
+ One of the things I found so exciting about university was that I was able to find a group of meta peers, I mean new friends, and that was wonderful, you know, it was a renewal in that, but by delving into these, into the great books of the past, I could acquaint myself with people like Friedrich Nietzsche and Dostoevsky and far more ancient thinkers than that, and pull out what was so valuable about their contributions, while still saying, well, not everything that was applicable in the past is applicable in the present, and I think that is part of that, honouring your father and your mother in a metaphysical and philosophical sense.

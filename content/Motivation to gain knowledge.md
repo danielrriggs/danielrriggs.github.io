@@ -1,0 +1,1 @@
+Lust for power or desire for relief.

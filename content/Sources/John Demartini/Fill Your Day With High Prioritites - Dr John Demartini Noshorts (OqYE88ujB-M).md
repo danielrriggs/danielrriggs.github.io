@@ -1,0 +1,1 @@
+ If you don't fill your day with high priority actions that inspire your day, fills up with low priority distractions, it don't. It's that simple. And nobody's going to get up in the morning and dedicate your life to your fulfillment. If you're not doing it, don't expect it.

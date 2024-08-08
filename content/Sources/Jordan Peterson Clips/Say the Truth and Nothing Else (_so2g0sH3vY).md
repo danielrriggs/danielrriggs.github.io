@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=_so2g0sH3vY
+
+ If you say the truth and nothing else, you'll have an immense adventure as a consequence. You won't know what's going to happen to you, and you have to let go of your clinging to the outcome. You have to let go. But the truth will reveal the world the way it's intended to be revealed, and the consequence for you will be that you'll have the adventure of your life. And the other part of that ethos is this, and it makes perfect sense to me. I can't see how it can be any other way, which is that whatever makes itself manifest as a consequence of the truth is the best possible reality that could be manifest, even if you can't see it.

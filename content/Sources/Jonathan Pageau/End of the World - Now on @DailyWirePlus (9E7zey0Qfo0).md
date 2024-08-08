@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=9E7zey0Qfo0
+
+ We are reaching towards the end of something. We're noticing our families fall apart, noticing more and more conflict between different groups, the breakdown of religious thought, the breakdown of your national narrative. You see mental health become an issue all around us. People can't hold on even to facts anymore. We're reaching the end of an epoch. I am here to give people a little bit of a roadmap. Together, we can survive the end of the world.

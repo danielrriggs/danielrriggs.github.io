@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=qwrDtEkB8pA
+
+ The only relationship you'll ever have in your life where you actually have a chance of establishing something that's close to perfect is with your kids because when they're delivered to you, so to speak, in some sense they're perfect and your job is to maintain that perfection if you can and you do that by being a good parent, by being encouraging, by being on their side, by taking care of them and you can have an absolutely pristine relationship with the child that doesn't mean it's not full of trouble, because it is, but it can easily be the best relationship you'll ever have in your life

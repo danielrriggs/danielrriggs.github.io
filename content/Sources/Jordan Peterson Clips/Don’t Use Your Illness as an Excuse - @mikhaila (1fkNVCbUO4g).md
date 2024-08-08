@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=1fkNVCbUO4g
+
+ I told Michaela when she was a little kid, you're going to have a very hard life. It's going to be brutal. Don't ever use your illness as an excuse. It's going to be difficult for you to do things, difficult for you to get up in the morning to go to school. She had the worst case of arthritis that the Toronto Sick Kids Hospital had ever seen. Well, so what's worse than that? Well, what's worse than that is adopting the role of victim, becoming resentful and turning against life. Don't fool yourself about your illness because then you won't be able to distinguish what you can do from what you can't do.

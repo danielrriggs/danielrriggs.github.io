@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=Y19X8phDg6g
+
+ Mark Zuckerberg wearing cargo shorts and a hoodie. It's just not that cool anymore to wear clothes that indicate that you're high social status. A lot of material has become so affordable that it's become harder to stand out in that way. Yeah, you see that reflected, I think, to some degree, in the decline in burglary. Material objects just aren't as worth as much as they were, and so they don't distinguish between people anymore.

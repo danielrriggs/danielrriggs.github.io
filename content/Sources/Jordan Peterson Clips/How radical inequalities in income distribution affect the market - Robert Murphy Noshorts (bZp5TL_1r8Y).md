@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=bZp5TL_1r8Y
+
+ You think about cell phones when they first come out, they're like $25,000. And so there's some people who can afford a $25,000 cell phone and they buy them and then now they're worth $20,000. And then more people can buy them because it's the $20,000 price range. I mean, if we didn't have radical inequalities in income distribution, would we ever be able to introduce new expensive products into the market?

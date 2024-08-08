@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=aKWU5wJEdVA
+
+ It's an attempt to box me in, in a sense. And the reason that it's an attempt to box me in is because the question is asked so that I can be firmly placed on one side of a binary argument. And the reason I don't like to answer it is because, A, I don't like to be boxed in, and B, because I don't know what the person means by belief or God. And they think they know. And the probability that they construe belief and construe God the same way I do is virtually zero. So, it's a question that doesn't work for me on multiple levels of analysis. But, strangely enough, just as we were talking, the answer to that question popped into my head. I act as if God exists.

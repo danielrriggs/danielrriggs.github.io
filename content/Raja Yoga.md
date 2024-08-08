@@ -6,7 +6,7 @@ A system of [[Yoga]]. Royal Yoga. The path of Kings. The path of willpower.
 
 Raja Yoga is the science of mental discipline and includes various methods of making the mind one-pointed. This is the theme of the entire [[Yoga Sutra]] scripture.
 
-Focuses on gaining [[Enlightenment]] through a stepwise process - [[Eight Limbs of Raja Yoga]].
+Focuses on gaining [[Enlightenment]] through a stepwise process - [[Eight Limbs of Raja Yoga]]. In other words, the goal of Raja Yoga is simply the transformation of [[Consciousness]].
 
 ###### Patanjali Yoga
 [[Patanjali Yoga]] is widely identified as being the same as [[Raja Yoga]], however Swami Satyananda Saraswati prefers to define it as a specific system within the wider framework of Raja Yoga. According his definition [^four-chapters-on-freedom], Raja Yoga includes the following systems:

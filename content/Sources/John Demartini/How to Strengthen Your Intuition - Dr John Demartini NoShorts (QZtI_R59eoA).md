@@ -1,0 +1,1 @@
+ So anytime you can, whatever you're perceiving, if you ask the question, where is the opposite, you strengthen your intuition. Because what it's doing is it's trying to bring the unconscious conscious so you can be fully conscious. That's what intuition's for.

@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=-xp0K0iDuvU
+
+ Why do some people end up courageous when so many don't? It's easier not to be. You know, it's easier to cut corners and not bear your responsibility, not take the opportunities that manifest themselves to you, not pay for your sins in the moment. It's easier. And so there's a thousand or a million ways that you can be dishonest. But some people, you know, they're paragons of virtue. And we've argued about that forever. The Calvinists thought that was predestination, right? It's the grace of God. I don't know how to explain it. It looks like choice to me.

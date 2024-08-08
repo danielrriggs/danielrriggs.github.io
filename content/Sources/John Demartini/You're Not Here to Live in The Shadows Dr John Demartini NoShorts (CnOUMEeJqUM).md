@@ -1,0 +1,1 @@
+ I believe that people have more of a magnificence capability than they realize. And they have a giant within, and so many people are living in the shadows of others, instead of standing on the shoulders of giants and letting their giant out.

@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=93etvCqn2Fs
+
+ One of the questions I've been asked quite repeatedly on the last tour is, how do I find the person who's right for me on social media dating platforms or just in the general world? I don't know how to answer that question. How do you find the person that's right for you? But I can say, generically, that's not a good question. It's the wrong question. And if you pose the question like that, you will not find an answer. The right question is, how can I make myself into the most attractive possible mate with young men? A huge part of the answer to that is, clean up your room. Put your life in order. Make your bed. Start there, at least. What you're aiming at is highly productive generosity with some spine.

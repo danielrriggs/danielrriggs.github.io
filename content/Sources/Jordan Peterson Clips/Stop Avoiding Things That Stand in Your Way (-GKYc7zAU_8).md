@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=-GKYc7zAU_8
+
+ You avoid things that stand in your way that frighten you at your great peril. If you cower from them in silence, or you turn away seeking security even, or even sensible security, you violate the principle of your own strength. And if you violate the principle of your own strength, you become weak. And if you're weak, there is no security. Like if you're weak and you have a pension, you're weak with a pension. All that'll mean is that you'll live longer in terror. That's not helpful.

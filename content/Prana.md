@@ -2,6 +2,7 @@
 aliases:
   - qi
   - breath
+  - Breath
 ---
 Alias: Qi.
 
@@ -24,6 +25,15 @@ Think about your life; your relationships, your financial situation, your health
 
 You need to use your chitta to move your prana in that direction. However, when you lack prana, or when some aspects of your life lack pranic energy, you will naturally flow towards the negative aspects of life. It will be easier to pull you down during conversations. It would be easier to make your relationships crumble. Or to make you financially dependent. But oppositely, if you have high prana, everything in your life will arrange itself, "naturally / magically", and where actions have to be taken, you will be called forth by your own subconscious, in the right direction to get the work done.
 
+###### Five Pranas (Vayus):
+There are five Pranas called [[Vayus]]. These are sub-categories of [[Prana]].
+- [[Prana]] - “forward moving air” - moves inward
+- apana - “air that moves away” - downward and outward
+- samana - “balancing air” - moves from the periphery to the center
+- udana - “upward moving air”
+- vyana - “outward moving air” - moves from the center to periphery
+
+###### WIP
 ---
 Prana gave rise to [[Prakriti]] which eats itself (it recycles itself).
 // todo - ^ fact check

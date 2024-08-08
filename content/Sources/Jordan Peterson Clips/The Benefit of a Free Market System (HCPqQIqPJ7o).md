@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=HCPqQIqPJ7o
+
+ God himself could not create a better system than the free markets. And the reason is that the free markets consist of billions and billions of decisions that are being made by consumers out of their own free will that are ultimately going to drive where we're going to end up. And it's so important to remember that consumers' attitudes change. Consumers are going to want to have, for example, Louis Vuitton is right now designing all of these new luxury leather goods that are made out of mushrooms so that they can say, this next very luxurious bag is carbon negative. And I promise you, they're going to sell a lot of those bags to people out there who really want to be able to say, look, I have a carbon negative bag.

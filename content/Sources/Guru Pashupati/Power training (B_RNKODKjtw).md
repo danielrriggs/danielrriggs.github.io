@@ -1,0 +1,1 @@
+ Step forward and punch him. Go, run. Go. Run. Punch him. Okay, that's how you learn how to get power. Now you learn how to get power. Go. Punch him. Nice one. .

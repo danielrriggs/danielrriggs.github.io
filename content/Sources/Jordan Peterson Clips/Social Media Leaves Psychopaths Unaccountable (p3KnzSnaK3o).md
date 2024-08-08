@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=p3KnzSnaK3o
+
+ Normally, the psychopaths are kept under some regulatory control because they get identified and isolated and punished. But I don't think that happens online. Psychopaths don't learn from punishment very well at all, and they don't learn from threat very well at all. But online, all of that's been removed. There's nothing but a field of opportunity for predatory psychopaths. And so I wonder to what degree virtualizing communication and opening up this hypothetically democratic front has actually magnified the degree to which our societies are susceptible to disruption by Machiavellian psychopaths.

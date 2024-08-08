@@ -1,0 +1,1 @@
+ The Power of Listening When someone's down and lost, you can't use reason to pull them back. We can use some logical argument to console them a bit, but matters of the heart are best handled by the heart alone. And sometimes, all it takes is to listen to the other person, to hear them out. Subtitles by the Amara.org community

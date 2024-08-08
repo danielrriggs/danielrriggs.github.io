@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=hhVg-g6Vu18
+
+ If someone asked me, do I believe that there are gender fluid people? I would say yes. And I would say a man who's, a young man who's gender fluid, I know what he's like temperamentally. He's high in agreeableness. He's high in neuroticism. So he has a feminine temperament. He's more interested in people than things. And he's extremely high in openness. And so his temperament is fluid. He's creative. And so he's one thing one day and one thing the next. And his fundamental temperament is tilted towards the feminine. But that doesn't mean he's not a man. Exactly. So that's, and then so it's murky thinking.

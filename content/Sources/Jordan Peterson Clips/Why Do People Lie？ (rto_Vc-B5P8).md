@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=rto_Vc-B5P8
+
+ People lie for two reasons. They lie because they want to avoid taking a responsibility for something that is their responsibility. Perhaps encountering the requisite punishment. Children often lie for that reason. Or they lie to gain something that they don't truly deserve. A lie is a form of avoidance. So you can understand that people lie because they're afraid.

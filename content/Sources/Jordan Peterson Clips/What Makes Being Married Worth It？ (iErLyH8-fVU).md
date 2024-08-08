@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=iErLyH8-fVU
+
+ What makes being married worth it? Wild sex. Sorry, it's kind of a flip answer, but I couldn't resist. What makes it worthwhile? So I noticed in my clinical practice that couples who stayed together had to spend about 90 minutes a week in intimate contact with one another, and also just talking for 90 minutes about their lives, about the domestic economy, about the kids, about the practicalities of life. And at the same time, they wove a rope that was their joint story. And that's something to have in your life, you know? To have someone who you're moving forward with, that you can communicate with honestly, who you can rely on in times of trouble, and to call you out on your stupidity. Thank God for that.

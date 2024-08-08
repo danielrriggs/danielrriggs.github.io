@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=frY-K1vuaqM
+
+ Lots of people come to God through contact with the devil. That's for sure. Yeah, well, you know, the thing is, is once you have encountered malevolence, you start to understand the reality of evil. And once you start to understand the reality of evil, you're compelled by logical necessity to posit the reality of good. You know, and God has been defined for a very long time as the pinnacle of what constitutes good. And if you start to believe in radical evil, well, you start to have to posit that its opposite exists.

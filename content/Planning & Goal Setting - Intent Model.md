@@ -44,7 +44,7 @@ Thinking about your [[Dharma]] is very important, because it **allows you to do 
 [[Dharma]] comes at a personal cost.
 - *Example: to be parent, you have to give up a lot of stuff for the sake of your kids. We bear this cost because it's an obligation as a parent to live up to our [[Dharma]]*.
 
-**Gains vs Costs*; Worldly vs Internal Axes**
+**Gains vs Costs; Worldly vs Internal Axes**
 When we satisfy a desire, we get a worldly gain; it's transient.
 When we do things we value, we get an internal gain because we're living in service to our values. Sure, there may be health benefits to eating healthy, but if it's my value, then I get to take pride in my choices.
 When we do something we [[Shoulds|should]] do, we're satisfying something outside of us. We're doing something for the world.

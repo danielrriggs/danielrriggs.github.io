@@ -1,0 +1,1 @@
+ We can't deserve fortune. Fortune has no judgment.

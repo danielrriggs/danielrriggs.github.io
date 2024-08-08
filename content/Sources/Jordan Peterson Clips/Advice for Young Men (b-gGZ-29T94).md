@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=b-gGZ-29T94
+
+ So look, if you're young, if you're a young guy, it's like straighten yourself up, you know, and don't be eating, you know, Cheetos in the basement, covering yourself with orange dust and being bitter about women. It's like go out there and make yourself useful in some dimension, or rather, and, you know, fortify yourself a bit and have some confidence, and then figure out how to present yourself in a manner commensurate with that, and, you know, get out there in the world so people can see you now and then, You know, some poor woman will be desperate enough to give you a shot at some point. Alright. That's how I caught her, you know. Actually, that's a lie too, because she actually caught me.

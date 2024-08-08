@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=vy-QP9ASd9A
+
+ North Korean regime is like run by central government economy. So they decide how much, how much rice you can eat that day per person based on their class. So even though the biggest irony of North Korea is that it was founded the idea of equality, make everybody the same, the communism, and then they call it themselves as a socialist paradise. But they made it into North Koreans into three big categories of classes and within three categories, they divided 50 subcategories of classes. So it became the most unequal society that you can imagine right now in our human history.

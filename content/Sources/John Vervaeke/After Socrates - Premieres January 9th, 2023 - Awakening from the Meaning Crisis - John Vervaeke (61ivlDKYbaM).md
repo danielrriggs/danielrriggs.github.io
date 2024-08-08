@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=61ivlDKYbaM
+
+ Right now we're witnessing the mindfulness revolution. Huge numbers of people are turning to a resurgence of interest in Stoicism. All these emerging communities of practice around authentic dialogue. What if I could show you a way that powerfully integrates them all together? I invite you to join me in exploring that way in my new series After Socrates.

@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=hPlncaxu7cM
+
+ Nietzsche knew that after the death of God, which was something he regarded as really the ultimate catastrophe, the ultimate murder, that two things were most likely to happen. One would be a descent into a kind of counterproductive nihilism, the loss of all values, that's how he construed it, and all the psychological disorientation that goes along with that, and the other would be a radical turn towards a replacement totalitarian certainty, which he believed and said would likely come from the radical left in the form of something approximating communism. He nailed that like 1850.

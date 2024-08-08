@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=nmTcQMcPBIM
+
+ The romantic and tremendous yearning that God has to be among His people is so clear from this language. He specifically says, it's not just I brought you out into the wilderness to serve me, which is the language of a king to his subject, it's I brought you out here to live with you, to dwell among you. And it's repeated twice in this section. I brought you out specifically so that I can dwell among you. He wants the closeness with us. He wants the romance with us. And that's why it's such a tremendous sin against him when the people end up essentially throwing him out. And then what they're about to do with the golden calf and the language that you'll see God's response is, OK, well, I'm withdrawing from you.

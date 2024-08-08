@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=Rt0ZT1MjRKI
+
+ One of my favorite saints, Saint Isaac the Syrian, he's quite radical in terms of this, and he says, the fire of hell is the love of God. Right, right. It is the fire that brings us close to God, the deifying fire that God wants us to come into participation in him, is the same fire that makes people suffer because they're holding on to their own sins, they're holding on to their passions. So the fire that's actually calling you, trying to purify you, if you hold onto it, it's going to make you suffer. Which is why love, which is why love, viewed from another angle, is judgment or justice.

@@ -1,0 +1,1 @@
+ When you manage money wisely, you get more money to manage. Money circulates through the economy from those who value it least to those who value it most. And where those who have the least order in organization around it to those who have the most order in organization around it.

@@ -1,0 +1,1 @@
+ She's the baddest black mom The baddest black mom She's the baddest black mom The baddest black mom She's the baddest black mom Do you wanna dance, baby? I know you see me looking at you on the baby Ooh, I'm in a trance, baby I need some, I need some empathy

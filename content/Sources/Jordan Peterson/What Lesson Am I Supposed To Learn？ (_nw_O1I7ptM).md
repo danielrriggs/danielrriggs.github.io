@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=_nw_O1I7ptM
+
+ The worst thing they can do to me is take my license. Now they're definitely planning to do that because the rule is I have to be educated by people of their choice at my expense for whatever length of time they deem suitable until by their standards, I've learned whatever the hell lesson I'm supposed to learn. And I can't even imagine what that lesson would be. It's like what? Don't tweet, don't speak, don't tell my clients the truth. So I don't know how to learn that lesson. I don't know how they're gonna measure whether or not I've learned it. I don't know who they're gonna get to measure it. I have no idea who they're gonna get to teach me.

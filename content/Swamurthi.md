@@ -1,0 +1,1 @@
+"one's own form". Meaning for self.

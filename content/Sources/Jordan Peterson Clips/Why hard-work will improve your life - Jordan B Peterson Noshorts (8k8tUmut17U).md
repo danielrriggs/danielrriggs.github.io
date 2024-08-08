@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=8k8tUmut17U
+
+ If you don't know what you're doing, aim at something. Is it the right thing? No. But it's better than just shooting randomly. So you aim at something and then as you aim and you move towards it, you're going to find out why you're wrong. And then you might recalibrate your aim. And that's going to happen over and over because as you move towards a goal, it recedes or it broadens or it recedes and broadens and otherwise you'd run out of things to do.

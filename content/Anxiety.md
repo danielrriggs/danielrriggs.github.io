@@ -9,3 +9,7 @@ Your body's natural response to stress. It's a feeling of fear or apprehension a
 - The first day of school, going to a job interview, or giving a speech may cause most people to feel fearful and nervous.
 
 Anxiety is a very rapid thought process that bounces all over the place.
+
+Related: [[A bad grade can be a portal through which snakes can crawl]]
+
+Anxiety is when your map blows up. Negative emotion signals the collapse of an organizing narrative (things are too complex for you to manage). Positive emotion signals progress towards the goal. There's less demand on energy output with each step forward.

@@ -1,0 +1,1 @@
+ The problem that you're willing to go and tackle with your service will determine the reward you get. So if you don't give yourself permission to go out and serve vast numbers of people, it's unrealistic to expect vast rewards financially.

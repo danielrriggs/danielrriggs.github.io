@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=sLjcrfi9d-E
+
+ Hopefully, when you drink too much, other people are going to start telling you. It's like, no, you're... And that's actually how you start diagnosing alcohol abuse. Are you getting in trouble with the law? Is it interfering with your intimate relationships? Is it interfering with your ability to hold a job? It means that the addictive substance is starting to dominate your life in a manner that's counterproductive. And other people are there to ensure that you stay balanced enough so that you don't deteriorate entirely. You're lucky if you have that.

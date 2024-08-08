@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=FR22A-8nOp0
+
+ everybody should be equal. It's like, well, wait a second, we trade on our inequality. You're better at something than I am at something. And that's an inequality. And you might even say, well, you became unjustly better at that than I did, you know, for historical reasons. But the fact of the matter is that inequality exists. So let's try to address it. Well, one way of dressing it would be for me to get as good as you are at that thing. But the other way would be for me to do what I'm good at and for you to do what you're good at and for us to trade. And then if we have money, well, we can transform the value of our labour into something that's universal. And that is an equalising force in and of itself.

@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=nNRlsViFfF0
+
+ Sounds to me very much like what seemed to happen in ancient greek culture with their Formulation of various psychedelic wines all these different people were just brewing all these different concoctions and experimenting to see what produced the most remarkable effect and And in greece they seemed to have stumbled across something that was perhaps lsd based or essentially lsd based whereas in the amazon jungle they came across both dmt and the And the chemical that inhibited its breakdown And so that it's very interesting to see that that is likely the case in both those disparate cultures

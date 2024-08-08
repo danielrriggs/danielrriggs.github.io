@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=I7_avXkyvBU
+
+ The plan was to cause as much damage as possible and die while doing it. But that wasn't really the goal of my attack. The goal of my attack was to cause my parents to deal with making me. I wanted to have them deal with the ramifications of creating me. So I wanted to cause as much damage as possible, as visibly as possible, die while doing it so that they had to deal with creating a monster. Do you think that would have made any difference?

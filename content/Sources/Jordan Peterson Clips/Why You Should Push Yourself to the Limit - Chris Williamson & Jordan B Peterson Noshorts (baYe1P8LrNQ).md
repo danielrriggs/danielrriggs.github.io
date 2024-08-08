@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=baYe1P8LrNQ
+
+ you have to kind of push yourself past your limits before you can retract to the optimal place and That can't be sort of defined a priority because each person's limit is different and I think so I think what you do when you're young in your 20s if you're operating in an optimal manner is you push yourself to your limits and then Pull back and adjust for sustainability

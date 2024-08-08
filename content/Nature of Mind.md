@@ -1,5 +1,5 @@
 ###### [[Sakshi Bhava]]
-The yogis noticed that we have a capacity to observe our own mind. There's a part of self (the truest self) that's outside of the mind. There are mental functions like thoughts & emotions; then there's an observer outside of that. In [[mindfulness]], we call this consciousness [[Sakshi Bhava]]. It is not a part of the [[Mind]] because it is able to look at the other [[Parts of the mind]].
+The yogis noticed that we have a capacity to observe our own mind. There's a part of self (the truest self) that's outside of the mind. There are mental functions like thoughts & emotions; then there's an observer outside of that. In [[mindfulness]], we call this consciousness [[Sakshi Bhava]]. It is not a part of the [[Mind]] because it is able to look at the other [[Mind#The 5 parts of the mind]].
 
 The observer & the observed are two fundamentally different things. When you look in the mirror, you see a [[Representation|reflection]] of yourself, not yourself. A photo of you is an [[image]] of you.
 

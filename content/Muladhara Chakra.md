@@ -1,3 +1,10 @@
+---
+aliases:
+  - Mooladhara
+  - Muladhara
+---
+Alias: Mooladhara, Muladhara.
+
 Situated at the base of the spine.
 
 Governs basic impulses.

@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=6njMgu8c_44
+
+ The great leaders that I've met, and I've met some now, they go listen to their constituents. It's not a policy discussion, it's not an ideology discussion. They go say, okay, what's your life like and what are your problems and tell me about them. And then they listen and then they're struck by them and then they gather up all that misery and they bring it to the congressional office or to the parliament and they think, here's what the people are crying out for. And the good leaders, that's a leader. Leader listens.

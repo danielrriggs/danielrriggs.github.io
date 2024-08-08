@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=0PB3EsYToYs
+
+ Dostoevsky's idea was that you know we were built for trouble And if we were ever handed everything we were we needed on a silver platter the first thing we would do is engage in some Form of creative destruction just so something unexpected could happen just so we could have the adventure of our lives And I think there's something well there's something to be said for that

@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=nwOeRzf30cU
+
+ I wrote a screenplay for a fairy tale, The Water of Life, and I wrote a bunch of songs for it. I took apart animated movies that I really liked, Pinocchio, Sleeping Beauty, Little Mermaid. I figured out how long they were. I figured out how many scenes there were. I figured out how many songs there were. And then I used that as a template to base my own work on. And it's derivative to some degree. But, you know, if you're smart, you're always being trained by people who took pains to establish themselves before you.

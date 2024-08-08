@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=bIbhflZtu4g
+
+ Part of who you think you are is a consequence of how you reflected in the eyes of others And you know people say you shouldn't base what you think of yourself on what other people think of you Of course, that's complete nonsense because the only person who doesn't base their own concept on what other people think is a psychopath Yeah, right. You have to be sensitive to public opinion Which doesn't mean that you should be nothing but a creature of public opinion, right? But when you're a public figure, let's say and you are reflected continually in the public Then it does tend to wreak havoc with your own conception of yourself

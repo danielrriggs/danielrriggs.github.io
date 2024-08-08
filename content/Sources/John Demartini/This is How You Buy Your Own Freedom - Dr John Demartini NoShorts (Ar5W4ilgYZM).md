@@ -1,0 +1,1 @@
+ I'm very grateful for my dad for his lessons he gave me. It taught me to be an entrepreneur and made me realize that there's no limit on what I can have in life, as well as I'm willing to go serve people. As long as I meet people's needs, I've got a source of income and I can buy my freedom.

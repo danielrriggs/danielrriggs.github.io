@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=-Avn-WZAhPc
+
+ If someone isn't listening to you, you should watch for them. If they're not listening, you should stop talking and you should start watching like a hawk. What's been revealed to you is the fact that your understanding of the situation is radically insufficient. You are not where you think you are and you are not talking to who you think you're talking to. Now if you cease talking and start watching and listening, they will tell you who they are and what they're up to. Now that might take a while, although it generally happens faster than you'd think. And then they'll tell you and then the communication will start to flow again.

@@ -2,10 +2,13 @@
 aliases:
   - doshas
   - doshic
+  - tridoshas
 ---
+Alias: tridoshas
+
 Elemental Balance. A central term in [[Ayurveda]], which refers to the three humors, the balance of which promotes health in the mind-body complex. A persons doshas are based on their individual physical and mental characteristics.
 
-The 3 [[Dosha]]s:
+The 3 [[Dosha]]s (tridoshas):
 
 |                     | [[Vata]] (Wind)                                                                                                                                          | [[Pitta]] (Fire)                                                                                                                                       | [[Kapha]] (Earth)                                                                                                                                    |
 | ------------------- | -------------------------------------------------------------------------------------------------------------------------------------------------------- | ------------------------------------------------------------------------------------------------------------------------------------------------------ | ---------------------------------------------------------------------------------------------------------------------------------------------------- |

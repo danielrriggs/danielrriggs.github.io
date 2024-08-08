@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=xFtG41BhUjI
+
+ To say that men are stronger, to say that men are faster, taller, whatever, that's not to say that women are inferior. That's not to say that we're not capable of amazing things and we're not strong and we're not, again, all of those words I previously mentioned, but we have different physical ceilings. I believe we deserve to be celebrated on our uniqueness. That's what makes the women's sporting category special. And there are still phenoms in women's sports, just like there are male sports. Look at Venus and Serena Williams. While by no means could they compete with the best male tennis player, they're phenomenal.

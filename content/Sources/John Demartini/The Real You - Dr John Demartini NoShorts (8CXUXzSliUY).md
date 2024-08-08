@@ -1,0 +1,1 @@
+ Pride is not who you are and shame is not who you are. Who you are is your heart and in the center. In fact, the word courage comes from the root heart. And the person who really has courage in life is not somebody that overcomes a fear. It's the person that actually has the courage to be authentic in a society that's demanding you not to be.

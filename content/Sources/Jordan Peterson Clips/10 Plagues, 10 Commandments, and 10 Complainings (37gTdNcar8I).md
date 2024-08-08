@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=37gTdNcar8I
+
+ It's certainly the case that the Israelites will in this situation continually is too weak. I mean, they're not only whining about the fact that they're in the desert, even though it's not been that long since they had the trees in the water, they're literally longing for the days of the Pharaoh. You can't see that other than bitterness and resentment. Ten plagues, ten commandments, and you have ten complainings. You count them all. Oh, really? This is the example, as the rabbis say, it takes the Lord one day to get them out of Egypt, and 40 years and counting to get Egypt out of them. Right.

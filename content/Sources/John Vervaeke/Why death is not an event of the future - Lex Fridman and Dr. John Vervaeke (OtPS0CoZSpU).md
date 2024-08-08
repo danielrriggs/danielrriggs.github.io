@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=OtPS0CoZSpU
+
+ The universe doesn't care about your personal narrative. You can just have met the person that is going to be the love of your life. It's the culmination of your whole project for happiness. And you step into the street and a truck hits you and you die. That's mortality. Mortality isn't just some far-flung event. It's that every moment we are subject to fate in that way. So you can think of lots of little deaths you experience whenever all the projects and the plans you make come up against the fact that the universe can just roll over them.

@@ -1,0 +1,1 @@
+Meaning, "with seed". (Meditation) with support.

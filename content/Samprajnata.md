@@ -1,0 +1,1 @@
+Means "fully aware".

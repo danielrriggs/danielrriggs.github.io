@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=Iewyhy1w2D0
+
+ People say, you're so brave that you risk your life for freedom. No, I wasn't. I didn't even know what freedom was then. Like, how do I know what freedom is? And I just was literally escaping to find some food to survive from hunger. And that's how we crossed that frozen river that night with my mother and myself when I was 13 years old, to China, leaving my father behind, back in North Korea.

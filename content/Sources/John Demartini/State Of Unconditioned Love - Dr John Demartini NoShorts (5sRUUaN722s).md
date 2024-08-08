@@ -1,0 +1,1 @@
+ When we are imbalanced, we have a judgment. When we're balanced, we have love. So I'm going to define the soul as that state of unconditioned love, where we are true, authentic, not exaggerating or minimizing ourselves.

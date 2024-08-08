@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=ieDai3JKInk
+
+ If you say something critical about me, and I perceive that it was motivated by hatred towards me on the basis of my sexuality, for instance, I could phone the police and that would be recorded and would appear on hate crime statistics in this in this country, because it's all about perception. That word is used about five or six times within the one passage in the in the hate crime legislation, the word perception of the victim.

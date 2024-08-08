@@ -1,4 +1,12 @@
-Situated at the crown of our head, when [[Kundalini Energy]] reaches this point, we become enlightened.
+---
+aliases:
+  - Sahasrara
+  - Brahmarandhra
+  - Nirvana Chakra
+---
+Alias: Sahasrara, Brahmarandhra, Nirvana Chakra.
+
+Situated at the crown of our head, when [[Kundalini Energy]] reaches this point, we become enlightened. It's the place that connects one with the universe.
 
 In the theory of [[Kundalini Yoga]], when the energy that you have in the bottom of your spine travels up to the top of your head, this is when you gain enlightenment.
 

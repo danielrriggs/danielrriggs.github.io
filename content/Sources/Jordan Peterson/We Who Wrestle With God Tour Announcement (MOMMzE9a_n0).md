@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=MOMMzE9a_n0
+
+ I'm pleased to announce my new tour for 2024. We who wrestle with God. God said, who told you that you were naked? And the man said, the woman, it was that woman. And you gave her to me. I'm going to be concentrating on the ideas I've been working through in my forthcoming book. Now, if you've watched my lectures on Genesis from 2017 or any of the Exodus seminar, you'll get an idea about the sorts of things that I'm attempting to deal with. Although I will be concentrating on biblical and general narrative matters. Everything I discuss is going to have a much broader general applicability. I'm thrilled to be able to go out on tour again and I look forward to seeing you all.

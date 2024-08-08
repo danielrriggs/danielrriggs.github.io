@@ -1,0 +1,1 @@
+ Don't obsess about what you can do. Obsess about how you feel. Your attitude is what brings you to training every day. You fail and you learn. There is no shortcut. Focus on your attitude. Every single day. You fail.

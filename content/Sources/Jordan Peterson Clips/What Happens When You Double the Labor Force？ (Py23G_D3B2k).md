@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=Py23G_D3B2k
+
+ Wages have been flat except in the upper 1% since 1973. Why? Well, it's easy. What happens when you double the labour for it? What happens? You have the value of labour. So now we're in a situation where it takes two people to make as much as one did before. So we went from a situation where women's career opportunities were relatively limited, to where they were relatively unlimited, and there were two incomes, to where, and so women could work, to a situation where women have to work, and they only make half as much as they would have otherwise, and now we're going to go into a situation, this is the next step, whereas women will work because men won't.

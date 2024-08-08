@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=weYA5B0IDQo
+
+ Are women more likely to evince regret in the aftermath of short-term mating episodes, one-night stands? Oh yeah, absolutely. There's a rich literature in sexual regret, and exactly as you would expect. When you look at what people regret sexually, women regret more these short-term mating opportunities that they participated in. Men more often regret those that they didn't participate in.

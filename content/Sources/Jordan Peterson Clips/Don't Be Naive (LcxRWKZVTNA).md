@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=LcxRWKZVTNA
+
+ If you're naive in that manner two things and I was naive Yeah What one is that you're much more likely to be exploited that definitely happens the other thing is you're much more likely to be traumatized because trauma sort of Occurs in proportion to how much of your belief it it demolishes and so if you have a too positive and too naive view of the world and you Especially if you encounter someone malevolent they can really do you in psychologically Yeah, and they often will too because while they have their their reasons

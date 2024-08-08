@@ -1,0 +1,1 @@
+Stopping or putting a full stop.

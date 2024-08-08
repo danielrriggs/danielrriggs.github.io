@@ -3,8 +3,7 @@ aliases:
   - Vishuddha
   - Throat Chakra
 ---
-
-Throat Chakra.
+Alias: Throat Chakra, Vishuddha.
 
 Situated at the base of our throat, it is about affecting change in the outside world.
 

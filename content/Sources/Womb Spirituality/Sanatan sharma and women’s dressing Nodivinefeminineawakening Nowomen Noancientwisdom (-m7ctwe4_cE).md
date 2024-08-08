@@ -1,0 +1,1 @@
+ Namaste Guruji! What do the Shastras tell us about a woman's dressing? Nothing! Wear what you want!

@@ -1,0 +1,1 @@
+ Once we empower all areas of our life, the victim mentality dissolves. Gratitude and love empowers the areas of life. Fear and guilt constricts it.

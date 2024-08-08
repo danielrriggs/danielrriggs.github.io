@@ -1,0 +1,1 @@
+Every ambition that we have should be done with [[Respect]], calculation, intelligence, knowledge and [[Power]].

@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=07e-VvEvXgM
+
+ If you are going to go to war, there's two types of will that you need. The first type of will that you need to have is you have to have the will to kill. It is not just the will to kill the enemy. War is an imperfect endeavor that sometimes you're going to drop a bomb and it's going to land and it's going to kill women and children. And then on top of that, obviously you have to have the will to die. You have to know and understand that if you embark in a war, your sons and daughters are going to be killed. That is what is going to happen. And anybody that says it's not going to happen is naive and ignorant.

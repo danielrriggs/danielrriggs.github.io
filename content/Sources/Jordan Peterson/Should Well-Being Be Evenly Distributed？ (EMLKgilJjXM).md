@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=EMLKgilJjXM
+
+ I'm not interested in a world where well-being is perfectly evenly distributed. I don't want it perfectly evenly distributed because that suggests... It's impossible in any case, but yes. Even if it were possible, a world in which everything is evenly distributed is a world that is punishing people who contribute more and rewarding people who contribute less.

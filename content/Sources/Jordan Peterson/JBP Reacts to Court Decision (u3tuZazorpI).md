@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=u3tuZazorpI
+
+ There's part of me that's thinking, well look, Peterson, the College of Psychologists is after you. You've taken it to court. Now the judges have decided that you're wrong. Maybe you're wrong. And I think, well, I expressed political sentiment and I'm actually informed. For the life of me, I can't see how I'm wrong. I think I have a responsibility to say what I think and I think many people agree with that and I think the fundamental consequence of that around the world has been massively beneficial to people. So I think, number one, what the hell, and number two, bring it on.

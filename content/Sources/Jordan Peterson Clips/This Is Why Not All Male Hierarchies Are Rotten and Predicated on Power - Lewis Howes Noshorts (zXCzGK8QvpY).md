@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=zXCzGK8QvpY
+
+ You think male hierarchies are predicated on power? You really think that? They are when they've gone rotten. But when they're not rotten, that's not what they're predicated on at all. The capacity, the exercise power, that's really important. You need that. It has to be part of you for you to be admirable. It's like you could be a badass son of a bitch. Yes, I see that. And that way I'm somewhat intimidated by you. And that's actually a testament to your moral virtue that you have enough force and power to be intimidating. But then if you can encapsulate that and take that potential for power and harness it to this broader good, well, that's unstoppable. And a real functional hierarchy. That's what it is.

@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=9gMHokXwaN4
+
+ Don't underestimate the whole, your absence would leave. You know, each of us, we're remarkable creatures and we have something to offer to the world. To our people we love, to the world at large. It's our responsibility to make that manifest and we move a little farther away from paradise every time that doesn't happen. Really, really. So, you know, this is serious business.

@@ -6,6 +6,8 @@ aliases:
 ---
 The fundamental quality of [[sakshi bhava]].
 
+According to [[Yoga]], consciousness or awareness is in the form of motion or vibration.
+
 #### States of Mind
 There are four states of consciousness:
 - _Jāgrat_ ([[Jagrat]]) - wakefulness
@@ -60,6 +62,8 @@ The individual consciousness is comprised of three stages, or, dimensions:
 - The **subjective** or astral consciousness
 - The **unconsciousness** or mental state of dormant potentiality.
 
+The consciousness can take its input from the [[Indriya]]s, your [[Imagination]]
+
 ###### Footnotes
 ---
-Related: [[Nature of Mind]]
+Related: [[Nature of Mind]], [[Samadhi#Three streams of awareness]]

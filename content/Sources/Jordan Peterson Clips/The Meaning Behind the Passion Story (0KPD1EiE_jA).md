@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=0KPD1EiE_jA
+
+ The passion story isn't the death of Christ, the passion story is the resurrection of Christ. Even though it's a catastrophically tragic story, it's a comedy. A comedy is a story with a happy ending. The comedic part is the Spirit resurrects. But it's a strange story because the resurrection of the Spirit is dependent on descent into the abyss. And I think that's right. I think that's true. You know perfectly well that when you make a most radical transformation in your life, it's because you've confronted something extraordinarily difficult, and it tore you apart in some real sense, but you did that successfully and then you reemerged.

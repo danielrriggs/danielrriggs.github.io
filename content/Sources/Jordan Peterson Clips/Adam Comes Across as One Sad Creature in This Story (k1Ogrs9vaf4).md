@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=k1Ogrs9vaf4
+
+ There's a modern feminist interpretation of the story of Adam and Eve that makes the claim that Eve was portrayed as the universal bad guy of humanity for disobeying God and eating the apple. It's like, fair enough, you know? Looks like she slipped up. And then she tempted her husband, and you know, that makes her even worse. Although he was foolish enough to immediately eat, so it just means she was a little more courageous than him and got there first. But it's Adam who comes across as really one sad creature in this story, as far as I'm concerned. Look at what he manages in one sentence. It's like, first of all, it wasn't him, it was the woman. And second, he even blames God!

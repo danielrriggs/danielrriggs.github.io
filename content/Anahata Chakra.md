@@ -2,6 +2,8 @@
 aliases:
   - Anahata
 ---
+Alias: Anahata.
+
 The Heart Chakra. Situated at our solar plexus or the middle of our upper back.
 
 Where our faculty of compassion or empathy come from.

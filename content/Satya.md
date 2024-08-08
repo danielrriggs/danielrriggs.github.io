@@ -1,5 +1,9 @@
 (Sat-yuh)
 
+*Sat* means what is (no lies; no denial). To exist.
+
+Satya means what exists. "Is-ness". [[Truth]]. [[Essence]].
+
 The observation of truthfulness, a [[Yama]] in [[Raja Yoga]].
 
 [[Niyama]]s are an important part of [[Raja Yoga]], spirituality, and personal growth.

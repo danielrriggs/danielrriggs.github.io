@@ -1,0 +1,1 @@
+ And when we in our mind come to a synthesis and synchronicity in our own mind, we have a moment of enlightenment instead of the moment of emotions. And I say that love and light are the synthesis and synchronicity of all complementary opposites and all complementary emotions.

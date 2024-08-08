@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=JNK9blKtibY
+
+ Those people who are wealthy, they don't store their money as dollars they store in assets, and those assets appreciate in value as a result of the inflation. Whereas those people who are living on fixed wages, salaries, you know, living week to week with a bank balance, because they're spending a larger proportion of their money on goods and services, they're the ones who are actually most unfairly targeted by inflation. So it actually has the effect of increasing inequality.

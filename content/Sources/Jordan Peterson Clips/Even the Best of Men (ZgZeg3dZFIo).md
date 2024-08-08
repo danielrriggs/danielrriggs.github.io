@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=ZgZeg3dZFIo
+
+ I see even the best of men degenerating into the exchange of blows. I see even the best of men identifying the enemy in our neighbors and friends. I see even the best of men falling prey to cowardice and self-righteous anger. It needs to stop. I need to stop. You need to stop. Before it's too late. Who is the enemy here? The snake in your heart? The lies on your tongue? The arrogance of your intellect? The cowardice of our refusal to see? The enemy is that which divides to sow discord. The enemy is the pride and the fear that stops us from lending a hand across the divide. The enemy is the great and eternal adversary of mankind.

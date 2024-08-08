@@ -1,0 +1,1 @@
+Control. To exert pressure and control. Hypnotic power of attraction. To bring under your influence. To control action and behavior.

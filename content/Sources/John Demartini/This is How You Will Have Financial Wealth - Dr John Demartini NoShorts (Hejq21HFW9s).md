@@ -1,0 +1,1 @@
+ Different people have different forms of wealth and whatever they have on the hierarchy of their values, the priorities that they live their life by, that determines the way their wealth is manifested. And what's interesting is many people don't realize that in order to have financial wealth, they have to have a value on financial wealth.

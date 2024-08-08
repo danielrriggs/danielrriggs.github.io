@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=X7aO9JXJQAY
+
+ So there's a gospel saying, knock and the door will open. Seek and you will find. Ask and you will receive. And you think, well, no, it can't be that way. It's like, well, it's that way a lot more than you think, because you transform the chaotic potential of the future into actuality with vision. And you might say, well, I don't really make plans. It's like, no, what you're saying is you'll just make bad plans. Because someone who doesn't make a plan, it isn't that they don't make plans. It's that they make unconscious plans, so they're ruled by their own whims, or their plans are so short term that they don't really count as plans.

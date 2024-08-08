@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=N6sc-UWj4jc
+
+ sick beyond belief to teach young people that all meaning is relative. It's the last thing you guys need to hear when you're like 20. And the reason that people teach it is because they're more afraid that things might have meaning than they are afraid that things might not. Because you might ask yourself, well, here's two options. One is, it doesn't bloody well matter what you do. Who the hell cares? Who's going to know in a thousand years? And everything's relative. Well, you think, God, nothing could be worse than that. Well, I can tell you something that would be worse than that. It's easy. Let's take the reverse. Everything you do matters.

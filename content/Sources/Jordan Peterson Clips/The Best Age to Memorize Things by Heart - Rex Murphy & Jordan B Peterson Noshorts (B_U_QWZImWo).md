@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=B_U_QWZImWo
+
+ If you wish to memorize poetry and things, your best years are 15, 16 to 25. Whatever you learn then and learn by heart, they stay. It's a lot harder to memorize at 50 or 60. Learning by heart is more than just a trite phrase. Once you put it in there, it expands your person. Do it when you're young and what you memorize at that period becomes permanently installed.

@@ -1,0 +1,1 @@
+ I'm a believer that there's a hidden order in our life and if you ask the right questions it's revealed and you can say thank you. I always say anything you can't say thank you for in life is baggage. Anything you can say thank you for is fuel. And so I try my best to help people see how to look at their life as not some sort of error, but something to say thank you for.

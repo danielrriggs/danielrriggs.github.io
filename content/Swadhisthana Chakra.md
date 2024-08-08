@@ -1,4 +1,11 @@
-Situated around the pubic bone / sacrum / tailbone.
+---
+aliases:
+  - Svadhishthana
+  - Swadhishtana
+---
+Alias: Svadhishthana, Swadhishtana
+
+Situated around the pubic bone / sacrum / tailbone. The genitals.
 
 Governs things like relationships and connections.
 

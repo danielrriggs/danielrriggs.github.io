@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=IW4EYu97tjk
+
+ Blessed the Lord, O my soul, Blessed art Thou, O Lord. O Lord, my God, Thou hast been magnified, Exceeding me, Blessed art Thou, O Lord. Confession and majesty hast Thou put on, Blessed art Thou, O Lord. Upon the mountains shall the waters stand, Wondrous are Thy works, O Lord. Between the mountains shall the waters run, Wondrous are Thy works, O Lord.

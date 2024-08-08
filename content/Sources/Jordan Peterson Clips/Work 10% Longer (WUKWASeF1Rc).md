@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=WUKWASeF1Rc
+
+ Why don't you just try to work as hard as you can at your damn job for like six weeks? Right? All flat out. You know, if you work 10% longer hours, you make 40% more money. That's something worth thinking about. You know, you've got a job, maybe you show up 15 minutes early, and you leave 15 minutes late. You know, and you actually work, and your boss notices, because he would probably notice, and then maybe someone's gonna get promoted, and maybe it'll be you, because something's gonna tilt the scales, and that little extra bit of work done without cynicism and resentment might be enough.

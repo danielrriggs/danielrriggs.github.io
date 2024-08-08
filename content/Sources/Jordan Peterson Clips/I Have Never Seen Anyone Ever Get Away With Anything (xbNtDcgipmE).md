@@ -1,0 +1,3 @@
+https://youtubetranscript.com/?v=xbNtDcgipmE
+
+ In all my years as a clinical psychologist, and this is something that really does terrify me, I have never seen anyone ever get away with anything at all, even once. What I see instead is that thing happens, right? Someone twists the fabric of reality. And they do it successfully, because it doesn't snap back at them that moment. And then like two years later, something unravels. And they get walloped, and they think, oh my god, that's so unfair. And then we track it. It's like, well what happened before that? This. Well then what? This. And then what? This. And then what? Oh! Oh this! Oh that's where it went wrong. It's yeah, because you can't twist the fabric of reality without having it snap back.
