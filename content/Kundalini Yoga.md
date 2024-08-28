@@ -2,7 +2,7 @@
 aliases:
   - Laya Yoga
 ---
-Also called laya yoga.
+Alias: Laya yoga.
 
 A system of Yoga that focuses on meditation on the [[Chakras]] in order to develop particular faculties. The seven [[Chakras]] come out of Kundalini Yoga.
 

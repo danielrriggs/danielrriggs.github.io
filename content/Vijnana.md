@@ -15,14 +15,14 @@ If you're applying your knowledge and you're not growing, you're not learning ne
 V means opposite. As in [[Viparita]] or [[Virodha]].
 Marriage is [[Vivaha]] - it is the V (opposite) of [[Vaha]] flow. Anything that stops your flow is called marriage.
 
-So, according to Yoga, intelligence is what challenges knowledge. To challenge the knowledge that you already have.
+So, according to [[Yoga]], intelligence is what challenges knowledge. To challenge the knowledge that you already have.
 
 The intelligence [[Kosha]] of a [[Human Being]] is the [[Vijnanamaya Kosha]].
 
 ###### The head of the [[Vijnanamaya Kosha]] is [[Sraddha|Shraddha]] (faith).
 Faith is the first part of intelligence.
 
-In order to have faith, confidence, and belief, you must have understanding. This **understanding** is called [[Samskara]]. The basis of understanding is stored in you. If you don't have understanding (of the nature of something) then you can't have [[Sraddha|Faith]] (which kills fear). 
+In order to have faith, confidence, and belief, you must have understanding. This **understanding** is called [[Samskara]]. The basis of understanding is stored in you. If you don't have understanding (of the nature of something) then you can't have [[Sraddha|Faith]] (which kills fear).
 
 The **skill** of **understanding** is the skill to change [[Samskara]]s.
 

@@ -6,6 +6,8 @@ Alias: Sankhya.
 
 Dualistic orthodox school of Hindu philosophy.
 
+Samkhysa is an atheistic doctrine. Yoga philosophy is an offshoot of Samkhya.
+
 [[Samkhya]] divides existence and individual being into two aspects: [[Purusha]] and [[Prakriti]]. Existence and the individual being arise when [[Purusha]] and [[Prakriti]] come together.
 
 The two sides of Sankhya, [[Purusha]] and [[Prakriti]], are the source of all [[Creation]].

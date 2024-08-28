@@ -1,0 +1,3 @@
+Thinking and experience are two different things. The whole structure of Indian philosophy is divided into tattwa chintana and [[Tattwa Darshan]].
+
+Tattwa chintana means contemplation and reflection on supreme consciousness. Tattwa chintana gave rise to the six systems of Indian philosophy. It is a rational approach to the understanding of the supreme consciousness, but that remains incomplete. [[Chintana]] is knowledge.

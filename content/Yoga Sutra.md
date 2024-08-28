@@ -129,7 +129,7 @@ Sabda: word, sound; jnana: cognition; anupati. following upon; vastu: object; su
 
 The mind of spiritual aspirants sometimes becomes full of fancy and idealism; seeking to attain an imaginary goal, this is living in a world of ideas which is nothing but [[Vikalpa]].
 
-In [[Meditation]], [[Dhyana]], there is sometimes a flight of imagination. This form of vikalpa is also to be set aside.
+In [[Meditation]], [[Dhyana]], there is sometimes a flight of imagination. This form of [[Vikalpa]] is also to be set aside.
 
 There is a [[Sadhana]] of conscious day-dreaming which is a dull state of mind and must be overcome through right knowledge. This sadhana is very helpful for a beginner in as much as it can make an aspirant capable of going deeper and deeper in the state of concentration. However, it should not be forgotten that this sadhana, although helpful for a beginner, has to be discarded afterwards.
 
@@ -284,25 +284,95 @@ A guru induces in the disciple an experience of truth or [[Samadhi]] through his
 
 [[Smrti]] - The word smriti here actually means [[Dhyana]], in which the aspirant remembers the symbol.
 
-samadhi prajna - 
-// todo - left off here, 8/7
+samadhi [[Prajna]] - 
+According to yoga, [[Vijnana|Intelligence]] is of two types: worldly intelligence, which we require for being successful in daily life, and a higher type of consciousness which develops as a result of samprajnata samadhi (see [[Samadhi#Sabeeja Samadhi]].
 
-###### Sutra 1:27: Pranava is verily Ishwara
+###### Sutra 1:21: Quicker is intensity of eagerness
+Tivrasamveganamasannah
+
+Tivra: intense; samvega: urge; asannah: quite near
+
+>Those who have an intense urge attain asamprajnata samadhi very soon
+
+###### Sutra 1:22: Three degrees of eagerness
+Mrdumadhyadhimatratvat tato’pi visesah
+
+Mrdu: mild; madhya; medium; adhimatra: extremely strong; tvat: due to; tatoapi: also, more than that; visesah: special, peculiar
+
+>With the intensity of urge rising through the mild, medium and strong conditions, asamprajnata samadhi can be achieved sooner.
+
+Intensity of speed depends upon one’s earnestness and sincerity. Earnestness is a mental attitude. Earnestness does not mean hard or difficult [[Sadhana]].
+
+These three classes of aspirants have three different sadhanas, according to the intensity of their eagerness. Usually the teachers who give spiritual lessons judge the intensity of the aspirants and guide them accordingly.
+
+###### Sutra 1:23: Or by devotion to Ishwara
+Isvarapranidhanadva
+
+Isvara: Lord; pranidhanat: devotion; va: or
+
+>Or by devotion to the Lord (asamprajnata samadhi can be attained).
+
+[[Ishwara]]
+
+If an aspirant experiences that he is incapable of going through the stages of faith, energy, etc., then he may use intense devotion to the Lord as another means for reaching the highest goal. Many aspirants cannot put in the required effort because they lack the necessary faculties. Yet for them there is hope.
+
+The word va indicates that an optional method is being described.
+
+[[Pranidhana]] means placing completely, absolutely, thoroughly. It is the complete placing of one’s awareness, one’s mind, one’s thought and consciousness into [[Ishwara]].
+
+[[Yoga]] philosophy is an offshoot of [[Samkhya]], which is an atheistic doctrine. It is really a wonder that here Patanjali, who took his philosophical ideas from Samkhya, should speak of God and of devotion to him. The principal purpose of Patanjali's [[Yoga]] was to give a practical way of life to mankind, in which one was allowed to make progress on the spiritual path according to one’s beliefs, limitations and suppositions.
+
+###### Sutra 1:24: Definition of Ishwara
+Klesakarmavipakasayairaparamfstah purusavisesa isvarah
+
+Klesa: afflictions; karmavipaka: fruits of acts; asaya: store of the traces of past karma; aparamrstah: untouched; purusavisesa: special kind of soul; Isvarah: God
+
+>God is a special soul untouched by afflictions, acts, their traces and their fruits.
+
+Patanjali's idea of God is that of spiritual consciousness which is so pure that it is completely free of any relation with [[Karma]] and its effects.
+
+In addition to [[Ishvara Pranidhana|Ishwara Pranidhana]], an aspirant should do his other [[Sadhana]].
+
+[[Purushavishesha]]
+
+###### Sutra 1:25: Attribute of Ishwara
+Tatra niratisayam sarvajnabijam
+
+Tatra: there (in God); niratisayam-. limitless; sarvajha: omniscient; bijam: principle, seed
+
+>In Ishwara there is the seed of limitless omniscience.
+
+###### Sutra 1:26: Ishwara is the jagatguru
+Purvesamapi guruh kalenanavachchhedat
+
+Purvesam: of those who came before; api: even; guruh: greater, teacher; kalena: by time; anavachhedat: because unlimited by time
+
+>Not being limited by time he is the guru ofthe earliest gurus.
+
+###### Sutra 1:27: Pranava is verily [[Ishwara]]
 Tasya vachakah pranavah
-Tasya: of it; vachakah: designator, indicator; pranavah: Aum
+
+Tasya: of it; vachakah: designator, indicator; pranavah: [[Om Chanting|Aum]]
+
 >Aum is the word denoting God
 
-###### Sutra 1:28: Sadhana for Ishwara 
+###### Sutra 1:28: Sadhana for [[Ishwara]] 
 Tajjapastadarthabhavanam
-Tat: that; japa: repetition of the word; tat: that; artha: meaning; bhavanam: dwelling upon mentally
+
+Tat: that; [[Japa]]: repetition of the word; tat: that; artha: meaning; bhavanam: dwelling upon mentally
 
 >That (the word Aum) should be recited repeatedly while dwelling mentally on its meaning.
 
+[[Ishwara]] is described by [[Om Chanting|Aum]]
+
 ###### Sutra 1:29: Result of this sadhana
 Tatah pratyakchetanadhigamo’pyantarayabhavascha
+
 Tatah: from that (practice of meditation on Aum); pratyak: turned in, in opposite direction; chetana: consciousness; adhigama: attainment; api\ also; antaraya: obstacle; abhava: absence; cha\ and
 
 >From that practice the consciousness turns inward and the obstacles are overcome.
+
+Ishwara pranidhana is meant for those who are neither videhas nor prakritilayas ([[Yoga Sutra#Sutra 1 19 Past merits needed for asamprajnata samadhi]]) and who do not have [[Sraddha|Shraddha]], [[Veerya|Virya]] and the other qualities. It is meant for those who have an unsteady, vacillating mind, who have attachment to the lower things of life.
 
 ###### Resources
 ---

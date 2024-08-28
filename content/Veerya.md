@@ -1,8 +1,9 @@
 ---
 aliases:
   - Virya
+  - Energy
 ---
-Alias: Virya.
+Alias: Virya, Energy.
 
 "energy", "diligence", "enthusiasm", "effort" or "heroism".
 

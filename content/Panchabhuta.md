@@ -4,8 +4,9 @@ aliases:
   - Five Primary Elements
   - Element
   - Five Gross Elements
+  - Pancha Bhuta
 ---
-Alias: Five Elements, Five Primary Elements.
+Alias: Five Elements, Five Primary Elements, Element, Five Gross Elements, Pancha Bhuta
 
 ###### The 5 Gross Elements
 The five primary elements.

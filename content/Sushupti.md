@@ -1,1 +1,7 @@
-Deep sleep state
+---
+aliases:
+  - Susupti
+---
+Alias: Susupti
+
+Deep sleep state.

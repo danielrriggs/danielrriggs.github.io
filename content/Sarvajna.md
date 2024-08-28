@@ -1,0 +1,1 @@
+Limitless knowledge. There is nothing in the universe which is outside its sphere.

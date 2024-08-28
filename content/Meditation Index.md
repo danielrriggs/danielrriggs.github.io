@@ -1,12 +1,12 @@
 
 | Meditation Name                                  | Type                          | Chakra                                                     | Cognitive                   | Level    | Diagnosis                   |
 | ------------------------------------------------ | ----------------------------- | ---------------------------------------------------------- | --------------------------- | -------- | --------------------------- |
-| Posture                                          | -                             | -                                                          | -                           | Basic    | -                           |
+| [[Meditation Posture]]                           | -                             | -                                                          | -                           | Basic    | -                           |
 | [[Nadi Shuddhi]]                                 | Breath                        | -                                                          | Grounding, Focusing         | Basic    | [[Anxiety]] [[Depression]]  |
-| Anuloma Viloma                                   | Breath                        | -                                                          | Grounding, Focusing         | Advanced | -                           |
-| Prana Shuddhi                                    | Breath                        | [[Ajna Chakra\|Ajna]]                                      | Focusing                    | Expert   | -                           |
-| Kapalbhati (Breath of Fire)                      | Breath                        | -                                                          | Grounding                   | Basic    | [[Anxiety]]                 |
-| Bhastrika Pranayama (Bellows Breath)             | Breath                        | [[Manipura Chakra\|Manipura]]                              | Grounding                   | Advanced | [[Depression]]              |
+| [[Anuloma Viloma]]                               | Breath                        | -                                                          | Grounding, Focusing         | Advanced | -                           |
+| [[Prana Shuddhi]]                                | Breath                        | [[Ajna Chakra\|Ajna]]                                      | Focusing                    | Expert   | -                           |
+| [[Kapalbhati]] (Breath of Fire)                  | Breath                        | -                                                          | Grounding                   | Basic    | [[Anxiety]]                 |
+| [[Bhastrika Pranayama]] (Bellows Breath)         | Breath                        | [[Manipura Chakra\|Manipura]]                              | Grounding                   | Advanced | [[Depression]]              |
 | Triphasic Breathing                              | Breath                        | -                                                          | Grounding, Focusing         | Basic    | [[Depression]]              |
 | [[Om Chanting]]                                  | Breath, Sound, Mantra, Energy | -                                                          | Grounding                   | Basic    | [[Anxiety]], [[Depression]] |
 | Japa                                             | Sound, Mantra                 | -                                                          | Grounding, Focusing         | Advanced | -                           |
@@ -45,3 +45,9 @@
 [[Antar Mouna]] - todo
 [[Khechari Mudra]] - todo
 [[Ajna Chakra Sadhana]] - todo
+
+
+###### Progression Plan
+- Practice [[Nadi Shuddhi]] for 2-4 weeks for 5 - 20 minutes.
+- Practice [[Anuloma Viloma]] for 2-4 weeks. ([[Nadi Shuddhi]] for ~10 minutes, then [[Anuloma Viloma]] for ~10 minutes)
+- 

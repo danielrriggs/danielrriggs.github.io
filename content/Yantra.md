@@ -1,6 +1,6 @@
 Derived from the Sanskrit words “yam” (meaning “to control”) and “tra” (meaning “tool” or “instrument”), a **yantra** is a geometric figure or diagram representing an energetic or spiritual aspect of the universe.
 
-A [[tantra|tantric]] symbol of power. The [[tantra|Tantrics]] believed that when you meditate on them, they harness / cultivate various cosmic spiritual energies.
+A [[Tantra|tantric]] symbol of power. The [[Tantra|Tantrics]] believed that when you meditate on them, they harness / cultivate various cosmic spiritual energies.
 
 ![[2. Sri_Yantra_Correct_Colors_Johari_1974.jpg]]
 

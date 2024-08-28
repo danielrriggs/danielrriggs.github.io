@@ -4,22 +4,27 @@ aliases:
   - Yogic
   - yogic
 ---
-Yoga is a state of being. Yoga is [[Mental Health]].
+Yoga is a state of being.
 
-Another meaning of Yoga is union (to unite with), but to unite with what?
- It's uniting your skill level with the outcome that you want. Yoga means to be worthy. Yoga is the science of becoming worthy to achieve your desires ([[Samadhi]]).
+ Yoga is a **spiritual science**, but it isn't divorced from the material world. Where does your spirit reside? In your physical body. Yoga is a **practical** path.
  
- Yoga is a spiritual science, but it isn't divorced from the material world. Where does your spirit reside? In your physical body. Yoga is a practical path. Yoga is a philosophy; a way of life; something you do in any profession.
+ Yoga is a philosophy; a way of life; something you do in any profession.
 
-Yoga means to get rid of your justice system (in the [[Vijnanamaya Kosha]] where logic is stored; we learn to empty all that) and to start falling in alignment with the universe's justice system.
+ Yoga is simply keeping a healthy body and a healthy mind. Yoga is [[Mental Health]].
 
-Yoga is simply keeping a healthy body and a healthy mind.
+Another meaning of Yoga is **union** ('to unite with'), but to unite with what? It's uniting your **skill** level with the outcome that you want.
+ 
+ Yoga means to be **worthy**. Yoga is the science of becoming worthy to achieve your desires ([[Samadhi]]).
+
+Yoga means to get rid of your [[Justice System]] (in the [[Vijnanamaya Kosha]] where logic is stored; we learn to empty all that) and to start falling in alignment with the universe's justice system.
 
 "Yoga is the control of the patterns of consciousness". See [[Yoga Sutra#Sutra 1 2 What is yoga?]].
 
 Yoga is An eastern system of introspection and self-discovery whose goal is to allow the practitioner to realize their true nature, get rid of [[Dukkha|suffering]], and become blissful by nature. Yoga is about discovering how we are connected to the infinite consciousness. The goal of Yoga is [[Kaivalya]].
 
-The Tantrics discovered [[tantra]] and molded their discoveries into Yoga.
+The Tantrics discovered [[Tantra]] and molded their discoveries into Yoga
+
+Yoga takes the [[Samkhya]] philosophy into the realm of experience through gradual and systematic progression.
 
 ###### Metaphysics & Union
 Yoga comes from the Sanskrit word "Yug," meaning "to join." From the same source comes the English word "yoke", or "union". But, in the [[Yoga Sutra]], Patanjali refers to yoga as a process of separation.
@@ -118,7 +123,7 @@ Some people are very physical.
 - [[Kundalini Yoga]]
 - [[Kriya Yoga]]
 
-Some people are mystical by nature. Understanding esoteric forces & how to cultivate the energy of the universe to make certain manifestations in your life. Then [[tantra]] might be a good path.
+Some people are mystical by nature. Understanding esoteric forces & how to cultivate the energy of the universe to make certain manifestations in your life. Then [[Tantra]] might be a good path.
 
 Patanjali knew that success in [[Bhakti Yoga]] leads to success in [[Raja Yoga]]; [[Jnana Yoga]] leads to perfection of [[Raja Yoga]], and so forth. A person on the path of [[Raja Yoga]] must integrate his whole being. Petty-mindedness and egoism have to be removed by any available method. All negative and limiting functions of the mind have to be erased.
 

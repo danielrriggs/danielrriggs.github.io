@@ -7,4 +7,4 @@ The Niyamas are focused within. They're intended to harmonize one's inner feelin
 - Contentment ([[Santosha]])
 - Discipline. Asceticism. ([[Tapas]])
 - Self-Study (of scripture) ([[Swadhyaya]])
-- Surrender to the Divine. Devotion to God. Recognizing that there's something within you that is divine. ([[Ishvara pranidhana]])
+- Surrender to the Divine. Devotion to God. Recognizing that there's something within you that is divine. ([[Ishvara Pranidhana]])

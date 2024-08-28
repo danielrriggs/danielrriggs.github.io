@@ -1,8 +1,8 @@
-Klesha = poison. The root causes of suffering. The things that create the emotional blockages.
+Klesha = poison. The root causes of [[Dukkha|suffering]]. The things that create the emotional blockages.
 
-There are five Kleshas:
-- [[Avidya]]
-- [[Asmita]]
-- [[Raga]]
-- [[Dvesha]]
-- [[Abhinivesha]]
+###### The Five Kleshas:
+- [[Avidya]] (ignorance)
+- [[Asmita]] (I-feeling)
+- [[Raga]] (Attachment, Desire)
+- [[Dvesha]] (Repulsion)
+- [[Abhinivesha]] (Fear of death)

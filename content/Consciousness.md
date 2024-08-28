@@ -9,16 +9,7 @@ The fundamental quality of [[sakshi bhava]].
 According to [[Yoga]], consciousness or awareness is in the form of motion or vibration.
 
 #### States of Mind
-There are four states of consciousness:
-- _Jāgrat_ ([[Jagrat]]) - wakefulness
-- _Jāgrat svapna_ (Jagrat svapna) - Deep imagination. Dreaming in the state of wakefulness.
-- _Jāgrat Suṣupti_ (Jagrat Susupti) - Deep sleep in the state of wakefulness.
-- _Jāgrat Turīya_ (Jagrat Turiya) - a super-conscious state.
-
-We have various and those states of [[Mind]] have varying degrees of [[Consciousness]].
-
-There are various states of mind.
-Some states of [[Mind]] have different degrees of consciousness or mental activity.
+We have various states of [[Mind]] and those states of [[Mind]] have varying degrees of [[Consciousness]], or or mental activity.
 
 ```mermaid
 
@@ -32,9 +23,8 @@ quadrantChart
     Day Dreaming: [0.1, 0.15]
     Meditation / Dhyana: [0.9, 0.9]
 ```
-
 Normal Waking Activity:  + Mental Activity, + Consciousness
-Sleep:  - Mental Activity, - Consciousness
+Sleep ([[Sushupti]]):  - Mental Activity, - Consciousness
 Dreaming:  + Mental Activity, - Consciousness
 DayDreaming:  + Mental Activity, - Consciousness
 - *When we "get lost" in a day dream, we have mental activity without awareness.
@@ -56,6 +46,14 @@ Vairagya --> flowState[Flow State]
 flowState[Flow State] --> Dhyana
 Dhyana --> HighConsciousness[High Conscioussness, Low Mental Activity]
 ```
+
+###### Jagrat, wakefulness
+The state of Jagrat, wakefulness, exists in these four states:
+- _Jāgrat_ ([[Jagrat]]) - wakefulness
+- _Jāgrat svapna_ (Jagrat Svapna) - Deep imagination. Dreaming in the state of wakefulness.
+- _Jāgrat Suṣupti_ (Jagrat Susupti) - Deep sleep in the state of wakefulness.
+- _Jāgrat Turīya_ (Jagrat Turiya) - a super-conscious state.
+
 ###### Three Dimensions of Consciousness
 The individual consciousness is comprised of three stages, or, dimensions:
 - The sense or objective **consciousness**

@@ -36,7 +36,7 @@ Once the mantra is implanted in the unconscious, it will start to "generate up" 
 ###### Stage 3: Achieving [[Samadhi]]. The spiritual level of mantra practice. Cultivating cosmic forces to create manifestation in life.
 This is the ultimate goal of mantra. We will now depart far from science and entering into esoteric territory.
 
-The [[tantra|Tantrics]] believe that the universe is composed of cosmic consciousness, and that when it's directed in a particular way, or, when it has a particular oscillation, it leads to a particular manifestation of reality. This is the level at which mantra is supposed to work. You're playing with the cosmic building blocks of reality & you're generating some kind of weird spiritual, energetic vibration which manifests in the real world in a particular way.
+The [[Tantra|Tantrics]] believe that the universe is composed of cosmic consciousness, and that when it's directed in a particular way, or, when it has a particular oscillation, it leads to a particular manifestation of reality. This is the level at which mantra is supposed to work. You're playing with the cosmic building blocks of reality & you're generating some kind of weird spiritual, energetic vibration which manifests in the real world in a particular way.
 
 The tradition of mantra has mantras about attaining certain things in this life. Like mantras for health, wealth, & success. If you chant them diligently with the right frame of mind, it will actually work like a magic spell in this life.
 

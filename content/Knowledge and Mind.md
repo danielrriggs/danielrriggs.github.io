@@ -4,13 +4,13 @@ Assertion 1 - the more calm the active [[Mind]] is, the easier it is to learn.
 - Studying in a burning building isn't effective because your [[Mind]] is thinking of a lot of different things. The more the [[Mind]] is distracted, the more activity there is in the conscious mind, the hard it is for things to sink into the [[Chitta|unconscious]] .
 
 Assertion 2 - the yogis believed that all knowledge comes from within.
-- This posits that it isn't the information in the page or the # of repetitions (of reading) that's important; it's actually the calmness of my [[Mind]] that determines how many times I need to read the page. If the knowledge was just on the page, then we should only have to read the page once. However, our experience of studying is that a "light bulb goes off", which is our discovery of that knowledge inside of us. Knowledge is a thing that is inside our mind, which is then recalled.
+- This posits that it isn't the [[Information]] in the page or the # of repetitions (of reading) that's important; it's actually the calmness of my [[Mind]] that determines how many times I need to read the page. If the knowledge was just on the page, then we should only have to read the page once. However, our experience of studying is that a "light bulb goes off", which is our discovery of that knowledge inside of us. Knowledge is a thing that is inside our mind, which is then recalled.
 The yogis looked at things like creativity & being able to invent stuff. Does that come from the outside world or the inside world? They reached a radical conclusion which is that, even when you read external information (such as in a book), it isn't that you absorb the information, but that it triggers your pre-existing knowledge of that subject. Is the "light bulb" on the outside or the inside?
 
 Use the hour of [[Brahmamuhurtha]] to [[Studying|study]] if it works for you.
 
 Take aways:
-The more we can calm down conscious thoughts, the more knowledge actually sinks in. Learning is actually recalling knowledge from our [[Chitta|unconscious]] [[Mind]] to our conscious mind.
+The more we can calm down conscious thoughts, the more knowledge actually sinks in. [[The Learning Process|Learning]] is actually recalling knowledge from our [[Chitta|unconscious]] [[Mind]] to our conscious mind.
 
 See [[Studying]] for tips on how to study well.
 
@@ -21,7 +21,7 @@ Understanding what makes people successful can be done through [[Vidya]] & [[Jna
 When we ask "why is that person successful & I'm not?" The answers we give are things like "I'm not motivated / disciplined", or "I'm lazy". These are umbrella terms. They're unsophisticated ways of us looking from the outside at someone and saying "that's the reason". It's like saying lightening is caused by Zeus. The Zeus of today is discipline, laziness, and motivation.
 
 If we want to understand what makes someone successful, all we have to do is ask them & listen to them; that will give us the answer.
-The [[Linguistic cortex]] is what helps us choose words. When successful people are asked how they change their lives (like an alcoholic who sobers up), they'll say things like, "I woke up one day and I realized; I just knew; I discovered, ... etc." The words which they use are not words of motivation, discipline, or energy. They use words of ***knowledge***.
+The [[Linguistic cortex]] is what helps us choose words. When successful people are asked how they change their lives (like an alcoholic who sobers up), they'll say things like, "I woke up one day and I realized; I just knew; I discovered, ... etc." The words which they use are not words of motivation, discipline, or energy. They use words of ***[[Vidya|knowledge]]***.
 In [[Addiction]], it isn't the people who *want* (desire) to be sober more that are able to do it. The first week or two of getting sober, the desires to relapse are way stronger than the person who isn't sober. The answer isn't in desire. The answer is in knowledge.
 
 [[Jnana]] isn't transmissible. It's the difference between being in love & reading a romance novel. The yogis believed that [[Jnana]] is closer to the [[Truth]] than [[Vidya]]. No amount of objective knowledge will give you the taste of a strawberry. [[Jnana]] is about understanding. There are no books or podcasts about [[Jnana]]. All we can do is make books & podcasts about [[Vidya]]. And this is why people who don't get better, don't get better. Subjective understanding that creates behavioral change which transforms you as a person cannot be put down into any kind of medium.

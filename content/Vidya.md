@@ -4,7 +4,10 @@ aliases:
   - fact
   - facts
 ---
-Alias: fact, facts.
+Alias: fact, facts, knowledge.
+// Knowledge is an alias for both VIdya & Jnana.
+
+As opposed to [[Jnana]].
 
 (vid-yuh)
 
@@ -13,7 +16,5 @@ Literally translated as "[[information]]". It is **objective** and it is **trans
 Any book has vidya.
 [[Fact|Facts]] are vidya (they're universally verifiable by lots of different people).
 
-As opposed to [[Jnana]].
-
 ---
-Related: [[Knowledge and Mind]]
+Related: [[Knowledge and Mind]], [[Vijnana|Intelligence]] (Vijnana)

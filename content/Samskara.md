@@ -57,6 +57,6 @@ The key thing is that you have to feel the feelings in the present and then let 
 ###### How to implant positive samskaras
 Just like negative samskaras, positive samskaras come from powerful emotional experiences.
 
-When the [[Mind]] is "one-pointed", a samskara can move past the surface layers of the [[Mind]] and implant deeply in the unconscious. If we think about a traumatic experience, we are so intensely focused on it that the [[Mind]] is" one-pointed." If we can train our minds to be still and send a message into the depths of the unconscious, then a positive samskara will arise.
+When the [[Mind]] is "one-pointed", a samskara can move past the surface layers of the [[Mind]] and implant deeply in the unconscious. If we think about a traumatic experience, we are so intensely focused on it that the [[Mind]] is "one-pointed." If we can train our minds to be still and send a message into the depths of the unconscious, then a positive samskara will arise.
 
 Do [[Yoga Nidra]] to achieve a deep state of relaxation. Then, when you're very very calm, take a [[Sankalpa]] & plant it deep into your unconscious.

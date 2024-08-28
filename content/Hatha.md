@@ -1,4 +1,4 @@
-
+Hatha literally means 'violent'; not physical, or worse, 'yoga of health'.
 
 A hybrid tradition of Yoga that focuses on attaining enlightenment by purifying the body and [[Mind]] through [[asana]] (physical postures) and [[pranayama]] (breath control).
 

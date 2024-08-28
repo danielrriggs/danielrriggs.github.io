@@ -5,7 +5,7 @@ aliases:
 ---
 Alias: Semen, Semen Retention
 
-Ojas is spiritual energy that is stored up in the brain.
+Ojas is spiritual energy (or, force) that is stored up in the brain.
 
 ###### How Ojas is Produced
 One drop of Ojas is made from forty drops of blood (I've seen some sources say eighty).

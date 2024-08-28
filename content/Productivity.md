@@ -73,7 +73,9 @@ Oftentimes, if we can take off our brakes, we don't need to worry about applying
 https://www.youtube.com/watch?v=8ExZIFWVG98
 Is what I'm doing now the best thing I could be doing to achieve my mission (or goal)?
 
-[[Cal Newport]] - Life is about doing, not hoarding knowledge. Put the knowledge to work. 80/20. If your marginal returns on your productivity is starting to fall off.
+[[Cal Newport]] - Life is about doing, not hoarding knowledge. Put the knowledge to work. 80/20. If your marginal returns on your productivity is starting to fall off, stop.
+To learn hard things quickly, you must focus intensely without distraction.
+Summary of Deep Work - [A summary of the tips & tricks in Cal Newport's "Deep Work" · GitHub](https://gist.github.com/chrisbodhi/cd31dc730ff56378430967c1b44a6ecf)
 
 
 https://www.youtube.com/watch?v=8ExZIFWVG98

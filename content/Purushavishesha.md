@@ -1,0 +1,1 @@
+A special state of consciousness (of supreme being). Requires direct conception or experience of [[Ishwara]]; intellectual conception is not enough.

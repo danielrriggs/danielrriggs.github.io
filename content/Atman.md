@@ -5,6 +5,8 @@ aliases:
 ---
 Alias: Atmic, Soul.
 
+"self,” “soul” or “individual spirit.”
+
 Pure consciousness. The center of consciousness.
 
 [[Jiva-atman|Jivatman]] minus [[Chitta]] is atman.
