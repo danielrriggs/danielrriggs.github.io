@@ -7,6 +7,8 @@ A few Starting Places
 	- [[Meditation Index]]
 - [[Yoga]]
 	- [[Yoga Sutra]]
+	- [[The Art of Joyful Living]] book notes
+	- [[Science of Breath]] book notes
 - [[ADHD & Motivation Overview]]
 - [[AWS Solutions Architect Test/AWS Solutions Architect Test Notes]]
 
