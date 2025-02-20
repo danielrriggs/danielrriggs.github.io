@@ -1,0 +1,8 @@
+- Basically Available
+	- READ and WRITE operations are available 'as much as possible' but without any consistency guarantees - kinda, maybe.
+		- Rather than enforcing immediate consistency, base-modeled NoSQL databases will ensure availability of data by spreading and replicating that data across all of the different nodes of that database.
+- Soft State
+	- BASE breaks off with the concept of a database which enforces its own consistency. It delegates this responsibility to developers. Your application needs to be aware of consistency and state, and work around the database.
+		- If you need immediate consistency, so if you need a read operation to always have access to all of the writes which occurred before it immediately, and if the database optionally allows it, then your application needs to specifically ask for it. Otherwise, your application has to tolerate the fact that what it reads might not be what another instance of that application has previously written.
+- Eventually Consistent
+	- If we **wait long enough**, **reads** from the system will be **consistent**.

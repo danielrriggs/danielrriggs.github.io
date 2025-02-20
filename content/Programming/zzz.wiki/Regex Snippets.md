@@ -1,0 +1,1 @@
+**Delete all empty lines**: replace \n\n with \n.

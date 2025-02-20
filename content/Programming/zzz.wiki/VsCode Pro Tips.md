@@ -1,0 +1,17 @@
+- You can use [[Regex Snippets]] in VS Code's Find & Replace w/ Ctrl + H (Find and replace, select the option to use regex instead of text).
+- To list extensions, run `code --list-extensions`
+- You can customize the vscode's workspace file in the .vscode folder. Common use case: exclude submodules from Vs Code (so you don't have to search against projects you don't care about, or clutter the IDE).
+- `ctrl + p, @` to findy by symbol.
+- `ctrl + p, #` to findy by symbol, globally.
+- `ctrl + g` to move efficiently by line #.
+- `ctrl + d` to select the highlighted word. can press `ctrl + d` again to select the same word, multiple times.
+- `alt + click` to set multiple cursors.
+- `ctrl + x` to cut a line (or selected lines).
+	- Also, personal VsCode keyboard setting override: Delete Line (`editor.action.deleteLines`) to `Ctrl + Shift + X`.
+- `ctrl + /` to comment selected lines.
+- [[VS Code Snippets]]
+- [[VsCode ProTip ]]
+- TODO: Create .gif archive?
+	- Live in local planner file.
+- Reduce Hover delay: Vs Code Settings: editor.hover.delay
+- Give Zen Mode a Try `Ctrl + K, Z`

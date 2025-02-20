@@ -1,0 +1,3 @@
+A managed process should run **automatically** when the operating system **starts** up, and should be restarted if the process crashes or dies for any reason.
+
+We can use a **process manager** to put processes under management. There are many process managers, but operating systems usually have defaults. On OS X, [launchd](http://launchd.macosforge.org/) is the built-in process manager; on Ubuntu, [Upstart](http://upstart.ubuntu.com/) the built-in process manager.

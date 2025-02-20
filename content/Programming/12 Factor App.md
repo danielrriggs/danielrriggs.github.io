@@ -1,0 +1,45 @@
+- Codebase
+	- 1 codebase, many deploys
+- Dependencies
+	- A 12 factor app doesn't imply on implicit system wide packages or tools (like curl)
+		- Use both a **dependency declaration** manifest (ex: package.json / pip) AND a **dependency isolation** tool (ex: package-lock.json / virtualenv)
+- Config
+	- Separate config from code - use environment variables.
+		- Ex: dev.myDbHost.zzz
+- The code for a twelve-factor app makes no distinction between local and third party services
+	- should be able to swap out a local MySQL database with one managed by a third party (like Amazon RDS) without changes to app's **code**.
+- Build, release, run
+	- There shouldn't be a way to back propagate code changes from run back to build ("hot fixes")
+	- Build artifact; release combines it with deployment's config; run launches app processes against release. tag releases with unique id (time / incrementing id).
+- Processes
+	- Execute the app as one or more stateless processes. Processes are stateless and share nothing. Session state data is a good candidate for a datastore that offers time-expiration (memcached or Redis).
+- Port Binding
+	- In deployment, a routing layer handles routing requests from a public-facing hostname to the port-bound web processes.
+		- HTTP is not the only service that can be exported by port binding. Nearly any kind of server software can be run via a process binding to a port and awaiting incoming requests. Examples include [ejabberd](http://www.ejabberd.im/) (speaking [XMPP](http://xmpp.org/)), and [Redis](http://redis.io/) (speaking the [Redis protocol](http://redis.io/topics/protocol)).
+- Concurrency
+	- Scale your app by adding more processes rather than relying on a single monolithic instance.
+- Disposability
+	- Processes can be started or stopped at a moment's notice.
+		- Processes should strive to **minimize startup time**.
+	- Processes **shut down gracefully when they receive a [SIGTERM](http://en.wikipedia.org/wiki/SIGTERM)** signal from the process manager.
+	- Processes should also be **robust against sudden death**
+		- Use a robust queueing backend.
+- Dev/prod parity
+	- Keep dev, staging, and production as similar as possible
+		- Make the time gap small - deploy faster.
+		- Make the personnel gap small - - developers who wrote code are closely involved in deploying it and watching its behavior in production.
+		- Make the tools gap small - keep development and production as similar as possible.
+			- Resist the urge to use different backing services between dev and prod - even when adapters theoretically abstract away any differences in backing services.
+- Logs
+	- Treat logs as event streams
+		- Don't attempt to write to or manage local files.
+		- Instead, each running process writes its event stream, unbuffered, to `stdout`.
+- Admin processes
+	- Example one-off admin processes:
+		- Running database migrations.
+		- Running one time scripts against the app's repo (ex: "fixBadRecords.script")
+	- One-off processes should be rehearsed in a prod identical environment (ex, cloned stage env)
+	- Admin code must ship with application code to avoid synchronization issues.
+
+---
+Here's a summary: [The Twelve-Factor App: Best Practices for Cloud-Native Applications | by Rapidcode Technologies | Medium](https://medium.com/@tech_18484/introduction-701b7a8f4730)

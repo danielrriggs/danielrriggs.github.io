@@ -1,0 +1,1 @@
+a type of AWS [[Resource Policy]]. Associated with s3 buckets.
