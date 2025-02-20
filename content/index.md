@@ -9,7 +9,4 @@ Start with one of these:
 - [[Meditation]]
 - [[Yoga]]
 - [[ADHD & Motivation Overview]]
-
-Concepts, Quotes, Principles:
-- [[Concepts, Quotes, Principles]]
-
+- [[AWS Solutions Architect Test/AWS Solutions Architect Test Notes]]

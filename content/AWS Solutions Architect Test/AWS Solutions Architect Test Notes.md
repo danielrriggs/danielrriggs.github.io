@@ -1,0 +1,15 @@
+- [[1.0 Course Fundamentals and AWS Accounts]]
+- [[2.0 AWS Fundamentals]]
+- [[3.0 IAM, Accounts, and AWS Organizations]]
+- [[4.0 SIMPLE STORAGE SERVICE (S3)]]
+- [[5.0 VIRTUAL PRIVATE CLOUD (VPC) BASICS]]
+- [[6.0 ELASTIC COMPUTE CLOUD (EC2) BASICS]]
+- [[7.0 Containers & ECS]]
+- [[8.0 ADVANCED EC2]]
+- [[9.0 Route 53 - Global DNS]]
+- [[10.0 Relational Database Service (RDS)]]
+- [[11.0 NETWORK STORAGE & DATA LIFECYCLE]]
+
+- [[AWS Well Architected Framework]] // incomplete
+
+last updated - 2/20/2025
