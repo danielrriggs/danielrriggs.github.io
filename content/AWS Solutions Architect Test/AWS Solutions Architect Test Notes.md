@@ -9,7 +9,6 @@
 - [[9.0 Route 53 - Global DNS]]
 - [[10.0 Relational Database Service (RDS)]]
 - [[11.0 NETWORK STORAGE & DATA LIFECYCLE]]
+- [[12.0 HA & SCALING]]
 
-- [[AWS Well Architected Framework]] // incomplete
-
-last updated - 2/20/2025
+[[AWS Well Architected Framework]] // WIP
