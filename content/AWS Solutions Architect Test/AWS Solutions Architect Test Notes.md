@@ -10,5 +10,6 @@
 - [[10.0 Relational Database Service (RDS)]]
 - [[11.0 NETWORK STORAGE & DATA LIFECYCLE]]
 - [[12.0 HA & SCALING]]
+- [[13.0 SERVERLESS AND APPLICATION SERVICES]]
 
 [[AWS Well Architected Framework]] // WIP
