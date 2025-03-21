@@ -142,7 +142,15 @@ This energy, this sex energy, is a manifestation of God. It is It is Shakti, (Pa
 
 Add ex from PG 133.
 
-
-
 ---
 [[Urge Surfing]]
+
+---
+Some Semen Retention related YouTube Channels:
+[The Masked Masculinity - YouTube](https://www.youtube.com/@TheMaskedMasculinity)
+[Men With Discipline - YouTube](https://www.youtube.com/@4MenWithDiscipline)
+[Teachings of the Wise - YouTube](https://www.youtube.com/@teachingsofthewise)
+[GODS OF SEMEN - YouTube](https://www.youtube.com/@godsofsemen)
+[Library of Tehuti - YouTube](https://www.youtube.com/@libraryoftehuti)
+[Beyond The Alchemy - YouTube](https://www.youtube.com/@BeyondTheAlchemy)
+[Spiritual Renaissance - YouTube](https://www.youtube.com/@spiritualrenaissance)
