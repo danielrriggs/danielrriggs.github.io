@@ -154,3 +154,6 @@ Some Semen Retention related YouTube Channels:
 [Library of Tehuti - YouTube](https://www.youtube.com/@libraryoftehuti)
 [Beyond The Alchemy - YouTube](https://www.youtube.com/@BeyondTheAlchemy)
 [Spiritual Renaissance - YouTube](https://www.youtube.com/@spiritualrenaissance)
+
+Books:
+PRACTICE OF BRAHMACHARYA by SRI SWAMI SIVANANDA
