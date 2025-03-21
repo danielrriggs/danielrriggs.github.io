@@ -14,5 +14,7 @@
 - [[14.0 GLOBAL CONTENT DELIVERY AND OPTIMIZATION]]
 - [[15.0 ADVANCED VPC Networking]]
 - [[16.0 HYBRID ENVIRONMENTS AND MIGRATION]]
+- [[17.0 SECURITY, DEPLOYMENT & OPERATIONS]]
+- [[18.0 Infrastructure as Code (CloudFormation)]]
 
 [[AWS Well Architected Framework]] // WIP

@@ -22,7 +22,6 @@ Adrian Cantrill > Stephane
 
 For faster prep, Stephen + Tutorials Dojo
 
-
 Various Resources Recommended
 - **Gascelino Rostero's practice exam book**
 	- [Gascelino Rostero's 20 practice exams for mastering the AWS SAA-C03 Certified Solutions Architect Associate Exam - Super Learner](https://superlearner.xyz/product/gascelino-rosteros-20-practice-exams-for-mastering-the-aws-saa-c03-certified-solutions-architect-associate-exam/)
@@ -71,3 +70,10 @@ For whitepapers, focus on the following:
 5. [Security Best Practices for Manufacturing OT](https://docs.aws.amazon.com/pdfs/whitepapers/latest/security-best-practices-for-manufacturing-ot/security-best-practices-for-manufacturing-ot.pdf#security-best-practices-for-manufacturing-ot)
 
 The AWS Documentation and FAQs will be your primary source of information.
+
+[How I Studied For an AWS Solutions Architect — Associate Exam | Dmytro Khmara](https://www.dmytrokhmara.com/blog/how-i-studied-for-aws-soultions-architect-associate-exam)
+Mentioned Jon Bonso's practice tests: [AWS Certified Solutions Architect Associate Practice Exams SAA-C03 2025](https://portal.tutorialsdojo.com/courses/aws-certified-solutions-architect-associate-practice-exams/)
+
+**Cheat Sheets & Review**
+[sv222/AWS-Solutions-Architect-Associate-Exam-2024: This repository contains a cheatsheet with key information to help you prepare for the AWS Certified Solutions Architect Associate (SAA-C03) exam.](https://github.com/sv222/AWS-Solutions-Architect-Associate-Exam-2024?tab=readme-ov-file)
+[E8rKA-TWQAYFPvR-scaled.jpg (2560×1270)](https://bezha.od.ua/wp-content/uploads/2022/01/E8rKA-TWQAYFPvR-scaled.jpg)
