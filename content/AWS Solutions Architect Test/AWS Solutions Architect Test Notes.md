@@ -16,5 +16,8 @@
 - [[16.0 HYBRID ENVIRONMENTS AND MIGRATION]]
 - [[17.0 SECURITY, DEPLOYMENT & OPERATIONS]]
 - [[18.0 Infrastructure as Code (CloudFormation)]]
+- [[19.0 NOSQL Databases & DynamoDB]]
+- [[20.0 Machine Learning 101]]
+- [[21.0 Other Services & Features]]
 
 [[AWS Well Architected Framework]] // WIP
