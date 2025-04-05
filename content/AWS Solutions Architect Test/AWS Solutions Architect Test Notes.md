@@ -1,3 +1,4 @@
+- [[0.0 Cloud, Networking and Technical Fundamentals]]
 - [[1.0 Course Fundamentals and AWS Accounts]]
 - [[2.0 AWS Fundamentals]]
 - [[3.0 IAM, Accounts, and AWS Organizations]]
