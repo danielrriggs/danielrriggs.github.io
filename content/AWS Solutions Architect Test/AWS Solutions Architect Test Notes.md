@@ -25,7 +25,11 @@
 ## AWS Certified Solutions Architect - Professional (SAP)
 - (SAA-CO3 100% redundant) [[1.0 (SAA-C03) Course Fundamentals and AWS Accounts]]
 - (SAA-CO3 100% redundant) [[0.0 (SAA-C03) Cloud, Networking and Technical Fundamentals]]
-- 
+- [[3.0 (SAP) ADVANCED PERMISSIONS & ACCOUNTS]]
+- [[4.0 (SAP) ADVANCED IDENTITIES & FEDERATION]]
+- [[5.0 (SAP) NETWORKING & HYBRID]]
 
 ## Other
 [[AWS Well Architected Framework]] // WIP
+
+Search for 'exam' & 'MEMORIZE' for key highlighted points.
