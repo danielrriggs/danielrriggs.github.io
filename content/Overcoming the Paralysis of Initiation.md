@@ -4,7 +4,14 @@ This is a pretty okay thing to do. It's a way we adapt to our circumstances to m
 
 This starts with our **emotions**. In the paralysis of initiation, there's a lot of **negative emotion**. Pay attention to what happens inside you when you try to get started. A lot of people will say, "I just don't feel like it. I'm just [[Procrastination|procrastinating]]". This is where [[Hemispheric Lateralization]] comes in. If you grew up numb to your emotions, you won't feel what you're afraid of. What keeps you from getting started is you're afraid of the consequences. As we employ alternate emotional coping techniques, the fear of getting started will decrease and we will act.
 
-We have to train our [[Frontal lobes]] to **think about the future**. The brain is plastic. If you didn't learn this as a kid, you can still learn this as an adult.
+1) We have to train our [[Frontal lobes]] to **think about the future**. The brain is plastic. If you didn't learn this as a kid, you can still learn this as an adult.
 
 Think about the future in a tiny way and see if you can do something small for tomorrow. Do something. We want to take the part of your brain that plans for the future and work it out a little bit. As you do this, it will be [[Anxiety]] provoking. If you pay attention to this, that [[Anxiety]] will keep you from even trying. Do you want to stop attempting to live life because there's a chance that it may be punishing?
 
+2) The next thing we need to consider is **perfectionism**. Behind perfectionism is negative emotion that keeps us from getting started. We want a guarantee that everything will go well so that we will have no emotional pain in the future. Being **afraid** of negative consequences creates an emotional experience in the present that is negative. People with [[Trauma]] are [[Addiction|Addicted]] to guarantees and perfectionism because they can't afford for things to go bad. This is actually an [[Anxiety]] or a fear in the present.
+
+3) You have to pay attention to your own **behavioral reinforcement**. When you grow up in an environment where our desires & autonomy is not reinforced, you internalize those cognitive patterns - you learn this language the same way that you learn our native tongue because your parents spoke it. What propagates this internalized process is your [[Mind]]. We take our wins and turn them into losses. Even though you did an okay job, all you see is what you could have done better. What are you doing to the effort you put in? Are you reinforcing it? No, you're criticizing yourself even when you do a good job and things worked out pretty well.
+
+You don't need to try to force yourself to change this habit. Even **noticing** what your mind does will change the way you reinforce your autonomy and desires.
+
+A lot of people that struggle with these problem don't think of these as [[Trauma]] related issues.

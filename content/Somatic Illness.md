@@ -12,7 +12,7 @@ Today, there is a clear understanding of the **tight link between mind and body*
 
 In the East, people separated out emotions as fundamentally different from our analytical capability & assigned them different layers - [[Manomaya Kosha]], [[Vijnanamaya Kosha]]. They said emotions and thoughts are different things entirely and aren't part of one [[Mind]]. They thought that we have two separate minds in the same way that we have multiple organ systems in the body.
 
-Panchakosha Theory explains how **one layer can support another layer** if it's assaulted. If my energy is robust I can fight off a physical infection more easily. If I get an emotional assault (bad news from a phone call), if I'm intellectually strong, can my cognition be used to support and protect my emotions? Can I rationalize / reframe this thing?
+Panchakosha Theory explains how **one layer can support another layer** if it's assaulted. If my energy is robust I can fight off a physical infection more easily. If I get an emotional assault (bad news from a phone call), if I'm intellectually strong, can my cognition be used to support and protect my emotions? Can I [[Rationalization|Rationalize]] / [[Cognitive reframing|Reframe]] this thing?
 
 The other thing Panchakosha Theory discusses how **damage in one layer reverberates** through all the other layers. If I receive bad news, that shock to my emotional self will redistribute itself to all of the other selves (parts of being). We actually have good scientific evidence for this. If I receive bad news, then that emotional impact will cause changes in my immune functioning. There are studies that show that your emotional state affects the rate at which you respond to vaccines.
 

@@ -5,7 +5,7 @@ aliases:
 ---
 Resistance emotions. Self-sabotage. Habits that hold us back in life. Motivation struggles.
 
-One of the confusing things about motivation is that we know what's good for us, but fail to bring ourselves to do it. We think we lack motivation.
+One of the confusing things about [[Motivation]] is that we know what's good for us, but fail to bring ourselves to do it. We think we lack motivation.
 
 The world of self help that promises more motivation doesn't work because they're treating the wrong problem. We don't have a lack of motivation; we're highly motivated, just in the wrong direction.
 
