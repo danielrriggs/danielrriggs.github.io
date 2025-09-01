@@ -4,7 +4,11 @@ aliases:
   - Tantrics
   - tantrics
   - Tantra
+  - Tantrism
+  - Tantric
 ---
+Alias: tantric, Tantrics, tantrics, Tantra, Tantrism, Tantric
+
 The Tantrics - the group of people in ancient India that discovered [[Tantra]].
 Tantra - The Teachings of the Tantrics.
 

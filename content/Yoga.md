@@ -26,6 +26,8 @@ The Tantrics discovered [[Tantra]] and molded their discoveries into Yoga
 
 Yoga takes the [[Samkhya]] philosophy into the realm of experience through gradual and systematic progression.
 
+The overall Hindu view concerning the practice of authentic yoga may be summarized with these words: "Very few are qualified for yoga, and even fewer are those who succeed in it."
+
 ###### Metaphysics & Union
 Yoga comes from the Sanskrit word "Yug," meaning "to join." From the same source comes the English word "yoke", or "union". But, in the [[Yoga Sutra]], Patanjali refers to yoga as a process of separation.
 

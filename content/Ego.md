@@ -7,7 +7,7 @@ aliases:
 ---
 (Uh-hum-kah-ruh)
 
-Ahamkara. Ego. Identity.
+Alias: Ahamkara. Ego. Identity. identity. ahamkara. egotistical.
 
 Our sense of identity. Ahamkara gets translated as "the feeling of 'I'", or, "the 'I' feeling".
 - *When we think about ourselves, we think about certain characteristics (race, age, profession, gender, etc.)*

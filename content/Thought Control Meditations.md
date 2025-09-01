@@ -33,7 +33,7 @@ Practice for 5-10 minutes for at least 3 days (after doing the previous practice
 
 #### Practice 3) Discarding Thoughts
 Prerequisites: Practice # 1 & 2 for at least 3 days *each*.
-Now do practice #2,but without indriyas and focus on simply discarding thoughts.
+Now do practice #2, but without indriyas and focus on simply discarding thoughts.
 
 Close your eyes and as a thought arises, discard it.
 - After you discard a thought, you create a space for a new one

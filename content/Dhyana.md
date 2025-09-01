@@ -14,3 +14,10 @@ Eventually, this leads to an elimination of duality; the seer, seen and seing me
 
 ---
 In Dhyana, we start to focus on one goal: [[Lakshya]].
+
+---
+This third phase has a noetic character and a cognitive penetration of the chosen object. In itself, [[Dharana]] is sometimes thought of as a process facilitating hypnosis, since it is believed to neutralize thought and to free purely spiritual energy, which is thus enabled to act without being bound to the senses.
+
+---
+Dhyana is an essentially intellectual and suprarational process. It's like pointing the mind at one object until it "melts", or, "catches fire".
+The object must be penetrated in all of its aspects and examined from every possible perspective, letting it say what it is in its essence. One will then be able to perceive it in its unity and in a synthesis that regards its existence as secondary.

@@ -2,10 +2,11 @@
 aliases:
   - Dharana
   - Concentration
+  - focus
 ---
 (Dhaa-ruh-nuh)
 
-Alias: Concentration.
+Alias: Concentration, focus
 
 (verb) Translated as 'focusing', or, 'technique'.
 
@@ -23,3 +24,11 @@ Examples: Focusing on the breath, a guided meditation, or a sound based meditati
 
 ---
 Dharana is a stream of information that flows from telepathically or in some other way, electromagnetically. We start receiving it from the person with whom we have said yes to. And then there is [[Dhyana]].
+
+---
+Dharana is a development from [[Ekagriya]].
+
+The stasis of the mind gathered in itself is shattered, and the spirit now focuses on only one object, excluding everything else, including sensory impressions, thoughts, and causal mental associations.
+
+---
+The mind is fixed on the same object, image, symbol, or phenomenon as a support to neutralize thought. What will ensue is the passage from a merely technical phase to a phase of spiritual realization. One shouldn't *try* to neutralize thought or detach from external factors. The total absorption of the I into the object to be disclosed leads automatically to the spirit's release from all bonds.

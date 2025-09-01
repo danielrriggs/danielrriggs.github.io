@@ -1,0 +1,1 @@
+Secure [[HTTP]]. Google flags websites as "not secure" & penalizes them in search rankings if they aren't [[SSL]] protected.

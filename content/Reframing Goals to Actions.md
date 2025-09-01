@@ -13,7 +13,7 @@ When we set big goals, the [[Mind]] has a vision to get in shape (sexy beast). A
 We don't move towards large, abstract, long-term goals. This is how we get stuck in life. We can do things that involve instant gratification. This is because the brain sees the behavior, and sees the reward right away.
 
 *Example*
-- *An addiction patient comes in with high initial motivation to achieve a big sobriety goals ("I wanna be sober for one year. That's my goal"). The problem is that sobriety isn't something you can do. Sobriety can happen. It isn't something a motivated person can come in and do that day. I'm gonna do sobriety today and then have accomplished my goal for the year.*
+- *An addiction patient comes in with high initial motivation to achieve a big sobriety goal ("I wanna be sober for one year. That's my goal"). The problem is that sobriety isn't something you can do. Sobriety can happen. It isn't something a motivated person can come in and do that day. I'm gonna do sobriety today and then have accomplished my goal for the year.*
 - *The people who are successful at sobriety forget about being sober for a year. What they try to do is be sober today. Just in this hour. Or in this minute. They can tunnel down even further. They have a very present focused approach.*
 
 From a yogic standpoint, how can we let go of the future & focus on the present?

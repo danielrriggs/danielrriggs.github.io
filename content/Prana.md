@@ -4,7 +4,7 @@ aliases:
   - breath
   - Breath
 ---
-Alias: Qi.
+Alias: qi, breath, Breath.
 
 Vital life-force energy that flows throughout us. (This is the difference between something that's living & a rock).
 
@@ -37,3 +37,5 @@ There are five Pranas called [[Vayus]]. These are sub-categories of [[Prana]].
 ---
 Prana gave rise to [[Prakriti]] which eats itself (it recycles itself).
 // todo - ^ fact check
+
+---

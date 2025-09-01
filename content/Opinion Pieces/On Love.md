@@ -1,0 +1,1 @@
+In Love, you see someone's hidden [[Atman|Soul]]. You get a glimpse of the light that they could reveal to the world if they revealed it. To act in love is to encourage that to come forward and to discourage anything that gets in its way.

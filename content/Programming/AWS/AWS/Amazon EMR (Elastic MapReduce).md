@@ -1,0 +1,5 @@
+Primarily used for big data processing with frameworks like Apache Spark and Hadoop.
+
+1. **Primary (Master) Node:** Manages the **distribution** of data and tasks among other nodes, monitors the **health** of the cluster, and communicates with external clients. It’s responsible for orchestrating the processing of data across the cluster.
+2. **Core Nodes:** These nodes store data and execute tasks. They are crucial for both data storage in HDFS (Hadoop Distributed File System) and for processing tasks. There is only one core instance group or instance fleet per cluster, but there can be multiple nodes running on multiple Amazon EC2 instances in the instance group or instance fleet. With instance groups, you can add and remove Amazon EC2 instances while the cluster is running. You can also set up automatic scaling to add instances based on the value of a metric.
+3. **Task Nodes:** Task nodes are optional and dedicated solely to processing tasks. They do not store data. Task nodes can be added or removed from the cluster to increase the processing power as needed, making them a flexible resource for managing workload demands.

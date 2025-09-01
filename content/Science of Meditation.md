@@ -12,11 +12,10 @@ We want [[Eustress]] to enter [[Flow State]].
 Meditation works through your hormones & through [[Stress Physiology]].
 As we train the [[Mind]] in meditation, we're creating a hormonal balance; for a lot of people, that means de-stressing because we face a lot of stress in our society, but some people need to stress up a little bit.
 
-#### [[The Autonomic Nervous System]]
-
+#### The [[Autonomic Nervous System]]
 The yogis & traditional Indian & Chinese doctors realized that there are times when our Sun (or, yang ([[Surya]])) is more active, and there are times when our Moon (or, yin ([[Chandra]])) is more active.
 
-There's no evidence that yin & yang exist in the body, but pysiciological correlates in the [[The Autonomic Nervous System]] are the [[Sympathetic Nervous System]] & the [[Parasympathetic Nervous System]].
+There's no evidence that yin & yang exist in the body, but pysiciological correlates in the [[Autonomic Nervous System]] are the [[Sympathetic Nervous System]] & the [[Parasympathetic Nervous System]].
 
 For people with too much [[Chandra|yin]], like a low energy depressed person, we want a [[Stimulating meditation technique]].
 

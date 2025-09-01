@@ -3,7 +3,7 @@ aliases: []
 ---
 (Aa-nun-duh-may-uh Koh-sh-uh)
 
-The bliss body. Layer 5 in [[Panchakosha Theory]]. The part of us that's divine. The part which is in some cultures called the [[Atman|Soul]].
+The bliss body. Layer 5 in [[Panchakosha Theory]]. The part of us that's divine. The part which is in some cultures called the [[Atman|Soul]]. The spiritual body.
 
 It's the part of humanness that isn't contained in the other parts.
 

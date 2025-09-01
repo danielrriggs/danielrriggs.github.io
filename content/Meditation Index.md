@@ -35,7 +35,14 @@
 | [[Indriya of Internal Sound]]                    |                               |                                                            |                             |          |                             |
 | [[Kaya Shtiram]]                                 |                               |                                                            |                             |          |                             |
 | [[Sound with Eyes Open and Closed]]              |                               |                                                            |                             |          |                             |
+| [[Mentality Materiality Meditation]]             |                               |                                                            |                             |          | [[Trauma]]                  |
+| [[Negativity Meditation]]                        |                               |                                                            |                             |          | [[Trauma]]                  |
+| [[Walking Meditation]]                           |                               |                                                            |                             |          | [[Trauma]]                  |
 |                                                  |                               |                                                            |                             |          |                             |
+**Meditation Tracks**
+[[Beginner Meditation Track]]
+[[Focus & Impulse Control Meditation Track]]
+[[Emotional Processing Meditation Track]]
 
 [[Vishuddha and Manipura Linking]] - !TODO
 
@@ -50,4 +57,3 @@
 ###### Progression Plan
 - Practice [[Nadi Shuddhi]] for 2-4 weeks for 5 - 20 minutes.
 - Practice [[Anuloma Viloma]] for 2-4 weeks. ([[Nadi Shuddhi]] for ~10 minutes, then [[Anuloma Viloma]] for ~10 minutes)
-- 

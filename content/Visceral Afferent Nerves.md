@@ -1,0 +1,1 @@
+Nerves that detect signals and travel to our [[Thalamus]] and tell the thalamus what's going on in the body.

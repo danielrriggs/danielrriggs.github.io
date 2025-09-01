@@ -1,0 +1,3 @@
+**AWS OpsHub** is a **graphical user interface (GUI)** application that makes it easy to manage AWS Snow Family devices like **AWS Snowcone** and **AWS Snowball Edge**.
+
+AWS OpsHub is a **free desktop application** (available for Windows, macOS, and Linux) that allows users to **set up**, **manage**, and **operate** Snow devices **locally**, especially in edge environments or disconnected locations.

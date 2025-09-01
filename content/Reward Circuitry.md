@@ -42,4 +42,4 @@ By better understanding the different parts of our brain, we'll better understan
 
 ---
 https://youtu.be/SPjUCLFtN8g?si=ydhaEq1DGtyvWgI4
-"There's only 1 currency in the world, and that's [[dopamine]]" - Huberman- 
+"There's only 1 currency in the world, and that's [[dopamine]]" - Huberman.

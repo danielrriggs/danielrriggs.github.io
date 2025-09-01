@@ -1,0 +1,57 @@
+Duration: 5 Weeks
+Difficulty: Beginner
+
+- Week 1
+	- Day 1 - 3
+		- Nadi Shuddhi - 5 min
+	- Day 4 - 6
+		- Nadi Shuddhi - 7 min
+	- Day 7
+		- Nadi Shuddhi - 10 min
+- Week 2
+	- Day 1 - 2
+		- Nadi Shuddhi - 10 min
+	- Day 3 - 5
+		- Nadi Shuddhi - 7 min
+		- Anuloma Viloma - 3 min
+	- Day 6 - 7
+		- Nadi Shuddhi - 10 min
+		- Anuloma Viloma - 3 min
+- Week 3
+	- Day 1 - 3
+		- Nadi Shuddhi - 10 min
+		- Anuloma Viloma - 5 min
+	- Day 4 - 5
+		- Nadi Shuddhi - 7 min
+		- Anuloma Viloma - 5 min
+		- Prana Shuddhi - 3 min
+	- Day 6
+		- Nadi Shuddhi - 5 min
+		- Anuloma Viloma - 7 min
+		- Prana Shuddhi - 3 min
+	- Day 7
+		- Nadi Shuddhi - 3 min
+		- Anuloma Viloma - 7 min
+		- Prana Shuddhi - 5 min
+- Week 4
+	- Day 1 - 3
+		- Anuloma Viloma - 7 min
+		- Prana Shuddhi - 5 min
+		- Activating Ajna Chakra (Charging the Laser Beam) - 2 min
+	- Day 4 - 6
+		- Anuloma Viloma - 5 min
+		- Prana Shuddhi - 7 min
+		- Activating Ajna Chakra (Charging the Laser Beam) - 2 min
+	- Day 7
+		- Anuloma Viloma - 3 min
+		- Prana Shuddhi - 10 min
+		- Activating Ajna Chakra (Charging the Laser Beam) - 2 min
+- Week 5
+	- Day 1 - 2
+		- Anuloma Viloma - 3 min
+		- Prana Shuddhi - 10 min
+		- Activating Ajna Chakra (Charging the Laser Beam) - 4 min
+	- Day 3 - 7
+		- Anuloma Viloma - 3 min
+		- Prana Shuddhi - 10 min
+		- Activating Ajna Chakra (Charging the Laser Beam) - 5 min

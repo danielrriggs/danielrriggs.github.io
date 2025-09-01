@@ -1,0 +1,1 @@
+**AWS Health** events are generated for ACM certificates that are eligible for renewal.

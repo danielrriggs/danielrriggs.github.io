@@ -1,0 +1,3 @@
+Out-of-band is an old telecommunications term. In an IT context, it generally means a method of accessing something that is out of the system. 
+
+For example, you might use out-of-band server management. This lets you connect to a management card that's in a server using the cellular network. That way, if the server is having networking issues with the normal access method, so the normal network, then you can still access it.

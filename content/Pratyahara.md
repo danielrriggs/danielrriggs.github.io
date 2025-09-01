@@ -4,6 +4,8 @@ aliases:
 ---
 The practice of sensory withdrawal, or, sensory control. The fourth step in the [[Eight Limbs of Raja Yoga|eightfold path of Raja Yoga]].
 
+Pratyahara is the actualization of the [[Mind]]'s de-identification from various impressions and stimuli. The object is to gather the mind in itself, in its substance, through the power of excluding, at will, sensory impressions and mental modifications. The theory behind it is not that one sees through the eye or hears through the ear, but that it is the [[Manas]] that sees through the eye, hears through the ear, and so on.
+
 Pratyahara is a set of techniques that teaches us to restrain our sense organs, or [[Indriya|Indriya]]s. The practice is concerned with checking and curbing outgoing tendencies of the [[Mind]] so that awareness can be directed inwards. It also includes cutting the inner psychic and mental sensations.
 
 To meditate, one-pointedness of the [[Mind]] involves restraining our sense & being able to put our attention where we want it to go, instead of chasing after sensory stimuli.

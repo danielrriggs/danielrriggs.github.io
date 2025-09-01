@@ -1,0 +1,1 @@
+Amazon QuickSight is primarily a business intelligence tool for visualizing data.

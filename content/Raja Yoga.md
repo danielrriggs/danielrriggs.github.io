@@ -13,7 +13,7 @@ Focuses on gaining [[Enlightenment]] through a stepwise process - [[Eight Limbs 
 - [[Kundalini Yoga]]; also called [[Kundalini Yoga|Laya Yoga]].
 - [[Kriya Yoga]]
 - [[Mantra Yoga]]
-- [[Dhyana Yoga]] as described in the [[Bhagavad Gita]]
+- [[Dhyana]] Yoga as described in the [[Bhagavad Gita]]
 - [[Patanjali Yoga]]
 
 Some call 'Raja Yoga': 'Ashtanga Yoga' or 'Patanjali Yoga'.

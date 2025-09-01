@@ -8,7 +8,7 @@ The observation of truthfulness, a [[Yama]] in [[Raja Yoga]].
 
 [[Niyama]]s are an important part of [[Raja Yoga]], spirituality, and personal growth.
 
-We know that people who meditate regularly are a little bit better at life. Their less prone to [[Depression]], [[Anxiety]], [[Addiction]]s, are more able to [[focus]], & have improvements in [[Memory]].
+We know that people who meditate regularly are a little bit better at life. Their less prone to [[Depression]], [[Anxiety]], [[Addiction]]s, are more able to [[Dharana|focus]], & have improvements in [[Memory]].
 
 When we look at spirituality, there are lots of phrases that people say, like "learn how to live in the present," "learn how to detach," "learn how to let go." When we talk about these vague concepts, people always tell you to "**learn to** ..."; they won't tell you "**how to** ... live in the present, etc".
 

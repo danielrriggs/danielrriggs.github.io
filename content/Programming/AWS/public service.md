@@ -1,0 +1,1 @@
+Anything using it needs to either be an AWS service or have access to the AWS public space endpoints.

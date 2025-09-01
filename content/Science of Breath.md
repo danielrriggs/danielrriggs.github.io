@@ -84,4 +84,4 @@ Breathing through the mouth admits cold air to the organs, injuring them.
 
 How to clear the nostrils if they're clogged: put water up them & expunge the water through the mouth.
 
-// pg 33
+// left off pg 33

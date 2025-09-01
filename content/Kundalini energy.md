@@ -4,6 +4,11 @@ aliases:
 ---
 'Kund' is a pond. 'Lin' means to be absorbed in.
 
+---
+The term kundalini, or kundali, literally means "wrapped up," and it conveys the idea of sleep, or of a latent and unutilized potential.
+
+---
+
 So, Kundalini is absorbed in the pond. What is the pond? There is a pond at the bottom which is your [[Jal|Water]] element. It is lying at your pelvic floor.
 - Urinary bladder
 - Men have the Prostrate gland, Women have the uterus.

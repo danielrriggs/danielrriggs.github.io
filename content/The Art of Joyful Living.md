@@ -20,7 +20,7 @@ You're like a wheel in motion. There's a hub (soul) that doesn't move. This is t
 
 Reality is your center hub, but to know the inner cause of all your movements, you first need to know the nature of the faculties which make you move.
 
-There are three aspects of yourself to understand: that which moves, that throuh which it moves, and that which is the cause of the movement.
+There are three aspects of yourself to understand: that which moves, that through which it moves, and that which is the cause of the movement.
 
 The nature of the hub within cannot be imagined with the mind because your mind is conditioned by time, space, and causation.
 
@@ -98,7 +98,7 @@ No action can ever be performed unless you think or want it on some level of the
 
 Your habits have a powerful role in your life and a strong influence on your spiritual development.
 
-Anything you do repeatedly creates a subtle groove in your unconscious mind, and then you don't have control over it any longer. Only by consciously creating a new goroove will your mind begin to flow toward that new groove and you will form new habit patterns.
+Anything you do repeatedly creates a subtle groove in your unconscious mind, and then you don't have control over it any longer. Only by consciously creating a new groove will your mind begin to flow toward that new groove and you will form new habit patterns.
 
 - [[Preyas]]
 - [[Shreyas]]

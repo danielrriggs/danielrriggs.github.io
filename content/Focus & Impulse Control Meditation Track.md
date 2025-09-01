@@ -1,0 +1,76 @@
+Duration: 8 Weeks
+Difficulty: Intermediate
+
+- Week 1
+	- Day 1
+		- Nadi Shuddhi - 5 min
+	- Day 2 - 3
+		- Nadi Shuddhi - 5 min
+		- Kaya Shtiram - 2 min
+	- Day 4 - 5
+		- Nadi Shuddhi - 5 min
+		- Kaya Shtiram - 2 min
+		- Trataka (Fixed Point Gazing) - 2 min
+- Week 2
+	- Day 1 - 2
+		- Nadi Shuddhi - 5 min
+		- Kaya Shtiram - 3 min
+		- Trataka (Fixed Point Gazing) - 3 min
+	- Day 3 - 5
+		- Anuloma Viloma - 5 min
+		- Kaya Shtiram - 3 min
+		- Trataka (Fixed Point Gazing) - 3 min
+- Week 3
+	- Day 1 - 5
+		- Anuloma Viloma - 5 min
+		- Kaya Shtiram - 5 min
+		- Trataka (Fixed Point Gazing) - 5 min
+- Week 4
+	- Day 1 - 2
+		- Anuloma Viloma - 5 min
+		- Kaya Shtiram - 5 min
+		- Trataka (Fixed Point Gazing) - 5 min
+	- Day 3 - 5
+		- Anuloma Viloma - 5 min
+		- Kaya Shtiram - 5 min
+		- Trataka (Fixed Point Gazing) - 5 min
+		- Thought Control - 2 min
+- Week 5
+	- Day 1 - 5
+		- Anuloma Viloma - 5 min
+		- Kaya Shtiram - 5 min
+		- Trataka (Fixed Point Gazing) - 5 min
+		- Thought Control - 5 min
+- Week 6
+	- Day 1
+		- Anuloma Viloma - 5 min
+		- Kaya Shtiram - 5 min
+		- Trataka (Fixed Point Gazing) - 5 min
+		- Thought Control - 2 min
+		- Thought Control 2 - 3 min
+	- Day 2 - 5
+		- Anuloma Viloma - 5 min
+		- Kaya Shtiram - 5 min
+		- Trataka (Fixed Point Gazing) - 5 min
+		- Thought Control 2 - 3 min
+- Week 7
+	- Day 1 - 5
+		- Anuloma Viloma - 5 min
+		- Kaya Shtiram - 5 min
+		- Trataka (Fixed Point Gazing) - 5 min
+		- Thought Control 2 - 5 min
+- Week 8
+	- Day 1 - 3
+		- Anuloma Viloma - 5 min
+		- Kaya Shtiram - 5 min
+		- Trataka (Fixed Point Gazing) - 5 min
+		- Thought Control 2 - 8 min
+	- Day 4 - 5
+		- Anuloma Viloma - 5 min
+		- Kaya Shtiram - 5 min
+		- Trataka (Fixed Point Gazing) - 5 min
+		- Thought Control 2 - 10 min
+
+Thought Control - In this meditation, we’ll train our mind’s ability to observe by learning to recognize thoughts as they arise, without judgment or distraction.
+
+Thought Control 2 - In this continuation of thought control, we’ll explore consciously bringing thoughts into focus, a key step in mastering the mind.

@@ -9,3 +9,9 @@ I don't have to have an experience to get a desire; I just need a sensory experi
 
 The satisfaction of [[Desire|desires]] lead to is **temporary** in nature.
 - *When someone else gets a promotion, you want a promotion, then after you get a promotion, you're only satisfied for a little while.*
+
+---
+The nature of desire is that it is about what you don't have. Gratitude is focusing on what you have. Conquering desire is about focusing about what you have. You will become more content, and desire will have less pull on you.
+
+---
+Related: [[Raga]]

@@ -1,0 +1,1 @@
+Defines who a statement applies to, which identities, which principles.

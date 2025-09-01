@@ -1,0 +1,1 @@
+The path of purification. A text which describes the way to purify ones self.

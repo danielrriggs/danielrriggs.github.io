@@ -2,3 +2,4 @@
 aliases:
   - PTSD
 ---
+Related: [[Trauma]]

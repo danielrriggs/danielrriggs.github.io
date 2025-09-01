@@ -6,7 +6,7 @@ Alias: Rasa Theory.
 
 Emotion, mood, feeling. Essence.
 
-Rasa is like Aristotle's [[Catharsis]].
+Rasa is like Aristotle's Catharsis.
 
 From the [[Bharata Natyashastra]].
 ###### 9 Rasas:

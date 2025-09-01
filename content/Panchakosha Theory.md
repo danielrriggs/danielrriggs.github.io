@@ -2,6 +2,8 @@
 aliases:
   - Panchakosha
 ---
+Alias: Panchakosha
+
 Pancha means "five". [[Kosha]] means 'Sheath'.
 
 Panchakosha Theory, described in the [[Taittiriya Upanishad]], is a hierarchical theory of [[Personality]]. Our [[Personality|personhood]] is composed of different elements. People are made up of 5 [[Kosha]]s.

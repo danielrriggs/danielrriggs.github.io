@@ -49,7 +49,7 @@ In Azure, make yourself a Git Credential to clone the Ad-Hoc-File Transfer repos
 How to Check SSL Cert Validity
 //  where does it live (on disk)?
 // where does it come from? who's the owner?
-Related: [[Certbot]], [[SSL]]
+Related: [[Certbot]], [[zzz.wiki/SSL]]
 
 
 todo - nvm documentation. How to install. How to use.

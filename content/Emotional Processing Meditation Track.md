@@ -1,0 +1,54 @@
+Duration: 8 Weeks
+Difficulty: Advanced
+
+- Week 1
+	- Day 1 - 5
+		- Bhastrika Pranayama (Bellows Breath) - 3 min
+		- Nadi Shuddhi - 5 min
+		- Om Chanting - 4 min
+- Week 2
+	- Day 1 - 2
+		- Bhastrika Pranayama (Bellows Breath) - 3 min
+		- Nadi Shuddhi - 5 min
+		- Om Chanting - 4 min
+	- Day 3 - 5
+		- Bhastrika Pranayama (Bellows Breath) - 3 min
+		- Nadi Shuddhi - 5 min
+		- Om Chanting - 4 min
+		- Shanmukhi Mudra - 4 min
+- Week 3
+	- Day 1 - 5
+		- Bhastrika Pranayama (Bellows Breath) - 3 min
+		- Nadi Shuddhi - 5 min
+		- Om Chanting - 5 min
+		- Shanmukhi Mudra - 4 min
+- Week 4
+	- Day 1 - 5
+		- Bhastrika Pranayama (Bellows Breath) - 3 min
+		- Nadi Shuddhi - 5 min
+		- Om Chanting - 5 min
+		- Shanmukhi Mudra - 5 min
+- Week 5
+	- Day 1 - 5
+		- Bhastrika Pranayama (Bellows Breath) - 4 min
+		- Nadi Shuddhi - 5 min
+		- Om Chanting - 5 min
+		- Shanmukhi Mudra - 5 min
+- Week 6
+	- Day 1 - 5
+		- Bhastrika Pranayama (Bellows Breath) - 4 min
+		- Nadi Shuddhi - 5 min
+		- Om Chanting - 9 min
+		- Vishuddha and Manipura Linking - 5 min
+- Week 7
+	- Day 1 - 5
+		- Bhastrika Pranayama (Bellows Breath) - 4 min
+		- Nadi Shuddhi - 5 min
+		- Om Chanting - 9 min
+		- Vishuddha and Manipura Linking - 5 min
+- Week 8
+	- Day 1 - 5
+		- Bhastrika Pranayama (Bellows Breath) - 4 min
+		- Nadi Shuddhi - 5 min
+		- Om Chanting - 9 min
+		- Vishuddha and Manipura Linking - 10 min

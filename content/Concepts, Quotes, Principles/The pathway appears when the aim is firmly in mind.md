@@ -1,0 +1,1 @@
+That which dominates the perceptual & emotional landscape aren't just impulses, they're personalities. They come with [[Rationalization]]s.

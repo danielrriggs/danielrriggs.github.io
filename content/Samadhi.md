@@ -103,3 +103,5 @@ Samadhi is knowing the [[Frame]].
 
 This is a good place to be. So, from here you have power. Samadhi is a place of power. If you find yourself powerless, you are not in samadhi. If you find that you have power, you may or may not be in samadhi. You might be having unbalanced power without distributing it around your environment. If you are the only powerful person and everybody else is looking to you for their power, you will get exhausted and die. You have to create second levels of leadership in whatever you are doing. Everybody has to be powerful. That's samadhi.
 
+---
+In Samadhi, the [[Idam]] element

@@ -1,0 +1,1 @@
+Connects the left and right hemispheres of the brain, allowing our emotional brain and logical brain to talk.

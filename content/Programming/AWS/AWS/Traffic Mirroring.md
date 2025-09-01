@@ -1,0 +1,1 @@
+An Amazon VPC feature that you can use to copy network traffic from an elastic network interface. Traffic mirror filters can’t inspect the actual packet of the incoming and outgoing traffic.

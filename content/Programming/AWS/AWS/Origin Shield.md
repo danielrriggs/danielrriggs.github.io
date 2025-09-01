@@ -1,0 +1,1 @@
+The Origin Shield feature in Amazon CloudFront is simply a centralized caching layer that helps increase your cache hit ratio which effectively reduces the load on your origin.
