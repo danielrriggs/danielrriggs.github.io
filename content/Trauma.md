@@ -40,6 +40,7 @@ Research on trauma shows that these adaptations can happen to children or adults
 	- [[Emotions 101]]
 	- [[Causes of the Paralysis of Initiation]]
 	- [[Overcoming the Paralysis of Initiation]]
+	- [[Impulsivity]]
 - Relationships
 	- [[Personality and Samskara]]
 - Clinical Track
