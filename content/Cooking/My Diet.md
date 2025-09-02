@@ -17,8 +17,6 @@ Stuff I cook fresh
 - Sweet Potato - baked. Reheat in air fryer @ 300 ~20 min.
 
 - Snacks
-	- [[Tuna Salad]]
-	- [[Beet Jicama Salad]]
 	- Jackfruit chips
 	- Sorbet - put **frozen fruit** in juicer
 		- I consume this post workout or before bed
@@ -99,6 +97,8 @@ From ??
 	- Goddess Dressing / Avocado Dressing
 - Chicken - Kroger?
 - Goat Cheese - Kroger?
+- Jicama
+- Beef Tallow
 
 
 From **Amazon**
