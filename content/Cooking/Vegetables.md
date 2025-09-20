@@ -1,14 +1,18 @@
 Bake vegetables in a tray.
 
 - Butternut squash
-- Green / Yellow Squash
+- Green Squash
+- Yellow Squash
 - Zucchini
 - Beet
 - Broccoli
+- Cauliflower
 - Chick Pea
 - Mushroom
-- Carrot?
-
-- Dressing Choice
-	- Goddess Dressing / Avocado Oil / Dressing
-- Herbs - thyme, basil, oregano
+- Jalapeno
+- Sweet Potato
+- Herbs
+	- Thyme
+	- Basil
+	- Oregano
+- Coconut cooking oil (unflavored)

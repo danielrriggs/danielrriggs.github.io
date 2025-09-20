@@ -6,7 +6,7 @@ The Base:
 - Lemon
 - Ginger
 
-- Anything Sweet
+- Then, add anything sweet, to taste
 	- Watermelon
 	- Apple
 	- Pear

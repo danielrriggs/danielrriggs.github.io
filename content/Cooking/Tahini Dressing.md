@@ -1,0 +1,6 @@
+- Tahini
+- Apple Cider Vinegar
+- Soy Sauce
+- Garlic
+- Dry Parsley
+- Lemon Juice

@@ -1,5 +1,5 @@
-- **Beets** - steam. Peel. Chop.
-- **Fennel Root**
-- **Apple**
-- **Pine Nuts**
-- **Goat Cheese**
+- Beets - steam. Peel. Chop.
+- Fennel Root
+- Apple
+- Pine Nuts
+- Goat Cheese
