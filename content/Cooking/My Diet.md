@@ -50,7 +50,7 @@ From **Costco**
 			- Whole Black Peppercorn
 - For [[Vegetables]]
 	- Mushroom
-	- Asparagus
+	- Asparagus? Usually Kroger.
 	- Dried Herbs
 		- Oregano
 		- Basil
@@ -92,7 +92,8 @@ From **Kroger**
 	- Cauliflower
 	- Garlic
 	- Jalapeno
-	- Sometimes Asparagus
+	- Brussel Sprouts
+	- Asparagus. Sometimes Costco.
 	- Chick Pea (Garbanzo beans) (canned)
 - For [[Juice]]
 	- Celery

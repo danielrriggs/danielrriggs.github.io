@@ -4,6 +4,8 @@ Bake vegetables in a tray.
 - Green Squash
 - Yellow Squash
 - Zucchini
+- Brussel Sprouts
+- Asparagus
 - Beet
 - Broccoli
 - Cauliflower
