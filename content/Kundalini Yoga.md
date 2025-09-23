@@ -10,6 +10,6 @@ The Kundalini Yogis realized that we have this vital energy that flows through o
 
 There isn't actually evidence that the Chakras exist. People have been trying to find evidence for qi or prana for many years and haven't found it, yet. However, the Yogis figured out that these different dimensions (or, Chakras) involve different parts of our brain. The Yogis stumbled upon different practices that cultivate different circuits in  our brain.
 
-For example, [[Anahata Chakra]] practices may effect our [[Default mode network]].
+For example, [[Anahata Chakra]] practices may effect our [[Default Mode Network]].
 
 It is a hypothesis that the various meditation practices can be mapped out onto neuroscience, but the research hasn't been done, yet.

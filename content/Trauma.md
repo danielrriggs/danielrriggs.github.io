@@ -1,8 +1,10 @@
 ---
 aliases:
   - traumatic
+  - traumatized
+  - traumatizing
 ---
-Alias: traumatic.
+Alias: traumatic, traumatized, traumatizing
 
 Most people have some trauma. It can manifest as all kinds of other diagnoses, [[ADHD]], chronic [[depression]], panic attacks, etc - can have their origin in trauma.
 
@@ -43,7 +45,22 @@ Research on trauma shows that these adaptations can happen to children or adults
 	- [[Impulsivity]]
 - Relationships
 	- [[Personality and Samskara]]
+	- [[Identity (trauma)]]
+		- [[Shoonya Meditation]]
+		- [[Who Am I Meditation]]
+	- [[Narrative]]
+	- [[Post Traumatic Growth]]
+	- [[Relationships]]
+	- [[Attachment Theory]]
+	- [[Sex and Attachment]]
 - Clinical Track
-	- zzz
+	- [[Post Traumatic Stress Disorder|PTSD]]
+	- [[Dissociative Disorders]]
+	- [[Treatment of Trauma Disorders]]
 - Spiritual Track
-	- zzz
+	- [[Spirituality and Trauma]]
+	- [[Science of Karma]]
+	- [[Theory of Karma]]
+	- [[How Karma Affects Life]]
+	- [[Mental Karma]]
+- [[Trauma Outro - Healing]]

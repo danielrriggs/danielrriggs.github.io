@@ -1,7 +1,10 @@
 ---
 aliases:
   - desires
+  - want
 ---
+Alias: desires, want
+
 **[[Desire|Desires]]** come from the **[[Indriya]]s**, are **transient** in nature, and **don't drive** a lot of **[[Motivation]]**. 
 
 I don't have to have an experience to get a desire; I just need a sensory experience / impression. Marketing bombards you with sensory impressions.

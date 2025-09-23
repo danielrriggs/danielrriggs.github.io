@@ -3,7 +3,10 @@ aliases:
   - dukkha
   - suffering
   - suffer
+  - Suffering
 ---
+Alias: dukkha, suffering, suffer, Suffering
+
 (Doo-kh-uh)
 
 Sanskrit word for suffering.

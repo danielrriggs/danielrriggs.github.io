@@ -7,11 +7,11 @@ aliases:
 
 Sanskrit word for the causative principle, or, action. The principle of cause & effect.
 
-The yogis believed that all actions have effects and that all effects have causes.
+The [[Yogis]] believed that all actions have effects and that all effects have causes.
 
 Karma also represents the energy principle, or, the idea that any amount of energy can only be transformed and not destroyed. If I throw a ball up in the air, it has to fall down. If I make some kind of effort in the world, it must bear fruit.
 
-The path of Karma (to enlightenment) involves doing good deeds & purifying yourself through selfless action & making the world a better place. Belief in God is not required. Meditation is not required.
+The path of Karma (to [[Enlightenment]]) involves doing good deeds & purifying yourself through selfless action & making the world a better place. Belief in God is not required. Meditation is not required.
 
 ###### How to find your [[dharma]] by exploring your Karma
 Your [[dharma]] is intrinsically linked to your karma. Finding the right dharma has a lot to do with your life circumstances. Your dharma & karma are both evolving processes.
@@ -29,3 +29,10 @@ The Eastern perspective on this is the [[ashrams]], but there's a western perspe
 
 In Western psychology, [[Erik Erikson]] said life is divided into different stages & people have different psychological growth points at different stages of their life
 For example, teenagers' primary "psychological goal" is to figure out what their identity (who they are). People who are 50 - 60's primary goal is to look back on their life & muse on whether they've done enough, & appreciate the impact they've had on the world. If we fail at these goals, we can suffer or get stuck.
+
+---
+Related: 
+- [[Science of Karma]]
+- [[Theory of Karma]]
+- [[How Karma Affects Life]]
+- [[Mental Karma]]

@@ -1,0 +1,1 @@
+A Support. An object for [[Dharana|focus]] (in [[Meditation]]).

@@ -1,8 +1,9 @@
 ---
 aliases:
   - Addicted
+  - addict
 ---
-Alias: Addicted
+Alias: Addicted, addict
 
 You want to figure out something in your life that's worth not getting drunk & screwing up, because that's fun.
 

@@ -24,3 +24,8 @@ The yogis discovered that the real self is the observing self. It's the capacity
 
 ---
 For more, see [[The Art of Joyful Living#Ch 1 - Knowing your own true self]]
+
+
+---
+Related:
+[[Self-Image]]

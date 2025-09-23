@@ -1,4 +1,4 @@
-[[Mood disorders]] such as [[Depression|Major Depressive Disorder]] are statistically way more likely than [[ADHD]] and [[Anxiety]], but clinically, most people are worried about [[ADHD]] & [[Anxiety]].
+[[Mood Disorder]]s such as [[Depression|Major Depressive Disorder]] are statistically way more likely than [[ADHD]] and [[Anxiety]], but clinically, most people are worried about [[ADHD]] & [[Anxiety]].
 
 There's a 25 to 28% comorbidity between ADHD and anxiety. That means is that if you have [[ADHD]], there's actually about a one in three to one in four chance that you also have an [[Anxiety]] disorder & vice versa.
 

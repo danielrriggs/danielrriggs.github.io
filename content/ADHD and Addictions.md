@@ -2,7 +2,7 @@ One of the most devastating aspects of [[ADHD]] is how vulnerable your brain is 
 
 An [[ADHD]] brain has altered circuits which makes the it more vulnerable to the mechanisms of [[addiction]].
 - Altered reinforcement circuitry. Pleasurable activities can be more rewarding.
-- Impaired Cost Analysis. Due to difficulty delaying gratification, it's easier for someone with [[ADHD]] to no see the cost of engaging in a behavior and only see its' benefit.
+- Impaired Cost Analysis. Due to difficulty delaying gratification, it's easier for someone with [[ADHD]] to not see the cost of engaging in a behavior and only see its' benefit.
 - Emotional Dysregulation
 	- Our [[Amygdala]] & [[Limbic system]] produce negative emotion. Our [[Frontal lobes|Frontal lobe]] kick in to turn them down / off. The [[ADHD]] brain has a weaker connection between the [[Frontal lobes|Frontal lobe]] & [[Amygdala]] / [[Limbic system]] (making the [[ADHD]] brain worse at regulating negative emotions). There are even some hypotheses that there's a subtype of [[ADD]] that actually is specifically emotional dysregulation.
 

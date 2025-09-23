@@ -1,0 +1,1 @@
+"A great sentence". "The Great Sayings" of the [[Upanishad]]s.

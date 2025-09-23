@@ -1,3 +1,9 @@
+---
+aliases:
+  - Memories
+---
+Alias: Memories
+
 [[Memory]] is the fifth [[Vritti]] of the [[Mind]].
 
 It is of two kinds: **conscious memory** and **subconscious memory**. 

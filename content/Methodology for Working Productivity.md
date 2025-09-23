@@ -1,5 +1,5 @@
 Related: [[Productivity]]
-Business analog:
+
 1) Show up & just work
 2) Work effectively
 	1) Work on the right things; ruthless [[Prioritize|prioritization]]; [[Scaling Yourself by Scott Hanselman]]

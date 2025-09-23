@@ -10,6 +10,7 @@ Major depressive disorder (MDD) is characterized by persistent sadness or low mo
 1 out of 3 adults will experience [[Depression]] at some point in their life.  It usually starts around puberty, but then strikes most heavily between the ages of 18 and 29. From a gender standpoint, women are anywhere between two to three times as likely to experience major depressive disorder, but personally I think the number is far closer to like one-to-one. If you look at studies, it appears that men are far less likely to engage with mental health professionals and treatment. So my guess is that there's a large number of men with major depressive disorder who simply haven't been diagnosed. From a genetic perspective, if you have a nuclear family member, so like either parent, child or sibling with depression, you're about twice as likely to get it yourself, which still means that the majority of people with family members with depression are still fine.
 
 There are 2 "buckets" of disorders that can lead to depression - mood disorders, and personality disorders.
+
 #### Mood Disorders
 ###### Major Depressive Disorder (MDD) Diagnosis
 Someone needs five out of these nine symptoms, including sadness, for at least two weeks.

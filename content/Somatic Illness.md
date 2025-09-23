@@ -7,7 +7,6 @@ In modern medicine, "psychosomatic illnesses" refer to conditions with **both ps
 Today, there is a clear understanding of the **tight link between mind and body**, acknowledging that they constantly interact.
 
 ###### Panchakosha Theory
-
 [[Panchakosha Theory]] explains humans as being composed of five layers. In clinical trials, some energetic practices (like [[Yoga]] & [[Tai Chi]], which are energetic in nature & work on the [[Pranamaya Kosha|Pranamayakosha]]) outperform pure physical practices on various illnesses like osteoarthritis.
 
 In the East, people separated out emotions as fundamentally different from our analytical capability & assigned them different layers - [[Manomaya Kosha]], [[Vijnanamaya Kosha]]. They said emotions and thoughts are different things entirely and aren't part of one [[Mind]]. They thought that we have two separate minds in the same way that we have multiple organ systems in the body.

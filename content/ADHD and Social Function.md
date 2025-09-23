@@ -5,7 +5,7 @@ Researchers studying the link between [[ADHD]] and [[Depression]] found three fa
 	- Emotions get out of control, which can lead to [[Depression]] in adulthood. Depression manifests as powerlessness, hopelessness, a lack of motivation, a very low self-esteem, negative self-worth, low self-attitude.
 
 Children with ADHD are less likely to be invited to birthday parties.
-Kids with ADHD develop into adults with low [[low self-esteem]].
+Kids with ADHD develop into adults with low [[Self-Image|Self-Esteem]].
 
 Impulsivity, inattention, and inability to regulate emotions cause problems.
 

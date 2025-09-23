@@ -1,4 +1,4 @@
-We can set all kinds of goals, but unless they come from the right place, we struggle to find the motivation to achieve them.
+We can set all kinds of goals, but unless they come from the right place, we struggle to find the [[Motivation]] to achieve them.
 
 There are probably some goals in your life you're highly motivated to do, but others which you *should* do, but struggle to enact upon.
 
@@ -17,7 +17,7 @@ This is how we understand peer pressure - how you dress; the stuff you want to b
 
 Most people aren't motivated towards their profession for their own sake. Their actual motivation is trying to make their parents happy - not wanting them to yell at you, or to get them off your back. Where our goal comes from heavily influences how motivated we are to do it.
 
-How can we find motivation to stay up extra, work extra hard, work extra hard for a goal we "should" do? We can do this by reframing our goals to align our actions to internal goals. To do that, we need to understand the origin of goals.
+How can we find motivation to stay up & work extra hard for a goal we "should" do? We can do this by reframing our goals to align our actions to internal goals. To do that, we need to understand the origin of goals.
 
 **[[Desire|Desires]]** - come from the **[[Indriya]]s**, are **transient** in nature, and **don't drive** a lot of **[[motivation]]**.
 

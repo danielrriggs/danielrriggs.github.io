@@ -1,7 +1,7 @@
 Many problems we see are rooted in [[confidence]] or [[Ego]].
 
 *Example Problems:*
-- *[[low self-esteem]] - people who don't believe in themselves & never try.*
+- *Low [[Self-Image|Self-Esteem]] - people who don't believe in themselves & never try.*
 - *Arrogance (Egotistical people) - people who believe in themselves too much. Can result in relationship problems. Not making the right decision at the right time.*
 
 Some of us want to be a little more confident, for example, to step outside of our 9-5 jobs & pursue a different career / dream. This comes down to our ability to be secure in ourselves; to be confident. To step away from our [[Ego]].

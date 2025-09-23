@@ -9,7 +9,7 @@ Periworkout / Intraworkout nutrition. Got this tip from the [[Vertical Diet]].
 	- You can do 1 - 12 g depending on tolerance. Start low (1g) & increase incrementally. Diarrhea is a sign of too much salt &/or heat stress.
 
 Optional:
-- Caffeine - 100mg max.
+- Caffeine - 100mg max. Less is more.
 - Creatine mono - 5g (~1 90% tsp)
 	- [Amazon.com: BulkSupplements.com Creatine Monohydrate Powder - Creatine Supplement, Micronized Creatine 1kg, Creatine Powder - Unflavored & Gluten Free, 5g (5000mg) per Servings, 1kg (2.2 lbs) (Pack of 1) : Health & Household](https://www.amazon.com/BULKSUPPLEMENTS-COM-Creatine-Monohydrate-Powder-Supplement/dp/B00E9M4XEE/ref=sr_1_5_pp?crid=358143MIMHR8H&dib=eyJ2IjoiMSJ9.Mt0NqMvDxkWbPGs4ooMBN61s55rNc1_IrVGthViUOG-s-gTPYngxz5nqIELno4fBEyB18SgAoF2wQwSvzg4rTm1p7t7LxYzSB35r1wyLvaUp8_mXw0YJvF1lMMULhTYE8Mwgwx5AF2CjixHqIWBL6Gf0qYU8uLqf92kskVv7zDwN0Gxccn_mHPZQr_M6rp2jpT3C5DkO_0ddxjJ-FWpsPM0xw2XkG8J5BoucPkfe4dT0ad30HgfQD12RLsIjLoe50a0rcHmLWHVr7GydBcLHBbtyJaKKhVm4l00-b-ghB7o.ajN6WwtN72P4x04OWvMAMVDDTOuHp1o7eZk-FG-Qa3c&dib_tag=se&keywords=creatine+monohydrate&qid=1724807558&sprefix=createine+monohydrate%2Caps%2C127&sr=8-5)
 - Beta Alanine - 6g (~1 90% tsp)

@@ -4,4 +4,6 @@ aliases:
 ---
 Part of your brain responsible for higher cognitive functions such as memory, emotions, impulse control, [[Executive function]], problem solving, social interaction, motor function, and maturity.
 
+Gives us a sense of discipline, willpower, and impulse control.
+
 Includes the [[Ventral Medial Prefrontal Cortex]].

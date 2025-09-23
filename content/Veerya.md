@@ -16,7 +16,7 @@ Virya has been associated with the phallus. Virile strength.
 [[Ojas]] is the occult force that is derived from Virya.
 
 ###### Mind, Prana, and Veerya
-Mind, Prana and Veerya are one. By controlling the mind, you can control [[Prana]] and [[Ojas|Semen]]. By controlling Prana you can control the mind and semen. By controlling semen, you can control the mind and Prana.
+[[Mind]], Prana and Veerya are one. By controlling the mind, you can control [[Prana]] and [[Ojas|Semen]]. By controlling Prana you can control the mind and semen. By controlling semen, you can control the mind and Prana.
 
 Mind, Prana and Veerya are under the one [[Sambandha]].
 

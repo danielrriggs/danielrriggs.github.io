@@ -9,6 +9,8 @@ aliases:
 
 Alias: Ahamkara. Ego. Identity. identity. ahamkara. egotistical.
 
+For more, see: [[Identity (trauma)]].
+
 Our sense of identity. Ahamkara gets translated as "the feeling of 'I'", or, "the 'I' feeling".
 - *When we think about ourselves, we think about certain characteristics (race, age, profession, gender, etc.)*
 
@@ -63,4 +65,5 @@ See [[Ego work]].
 ###### Notes from The Art of Joyful Living
 Since childhood, your concept of "I" has become so strong that it has forgotten its proprietor, its real owner, the place from which the knowledge comes. It is the [[Atman]] that appointed this sense of "I" to its position, but the ego has forgotten its role. The ego says "This body is mine, this home is mine, this wife is mine, these children are mine."
 
-The ego is that which separates you from the whole. It builds a boundary around you and makes you petty and selfish, and you don't want to share with anyone. The more egotistical and the more egocentric you are, the more you do not communicate with or related well to others. Observe how much you feed your ego.
+The ego is that which separates you from the whole. It builds a boundary around you and makes you petty and selfish, and you don't want to share with anyone. The more egotistical and the more egocentric you are, the more you do not communicate with or relate well to others. Observe how much you feed your ego.
+

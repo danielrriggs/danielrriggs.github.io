@@ -1,1 +1,7 @@
+---
+aliases:
+  - Will
+---
+Alias: Will
+
 Don't waste willpower on things you don't want to do. Save it for overcoming fear in life and death situations. You can't self generate feelings (wants & likes).

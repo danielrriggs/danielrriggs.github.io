@@ -5,6 +5,8 @@ aliases:
   - detach
   - Detachment
 ---
+Alias: detached, detachment, detach, Detachment
+
 Vairagya is a mental condition of freedom from [[Raga]] and [[Dvesha|Dwesha]].
 
 ###### Definition 1
@@ -15,7 +17,7 @@ The Sanskrit word for detachment.
 The ability to "take a step back," & "look at the big picture", or "get some distance from events in your life".
 
 ###### Definition 2
-Vairagya comes when you have [[Vashikara]] over matters. Mastery over what you have seen and heard. This is a very high standard of Vairagya. It isn't non-attachment. You are a master. You can't be a master if you aren't attached to something. You have to passionately feel for something to be a master of it. Once you master something, you can experience vairagya because you're free from [[Raga]]. You have [[Spiritual Emotions]]
+Vairagya comes when you have [[Vashikara]] over matters. Mastery over what you have seen and heard. This is a very high standard of Vairagya. It isn't non-attachment. You are a master. You can't be a master if you aren't attached to something. You have to passionately feel for something to be a master of it. Once you master something, you can experience vairagya because you're free from [[Raga]]. You have [[Spiritual Emotions]].
 
 ###### Commentary
 [[Raga]] means "color". [[Vairag]] means "no color" - you have become transparent. If you have become transparent, if what is behind you is red, you turn red too. Wherever you are, you become a part of that, but nothing sticks to you.

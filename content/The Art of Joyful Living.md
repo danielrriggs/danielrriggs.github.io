@@ -1,5 +1,5 @@
 #### Ch 1 - Knowing your own true self
-Your mind and personality prevent you from knowing the reality that is eternal and experiencing the state of peace and equilibrium that is your essential nature - the center of consciousness within.
+Your mind and personality prevent you from knowing the reality that is eternal and experiencing the state of peace and equilibrium that is your essential nature - the center of [[Consciousness]] within.
 
 Time, space, and causation are the [[Three Prime Conditionings]] or filters that affect the mind.
 - Time is the most powerful of the filters that condition the mind. It is a powerful filter of reality.

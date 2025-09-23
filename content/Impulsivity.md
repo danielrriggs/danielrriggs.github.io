@@ -1,8 +1,9 @@
 ---
 aliases:
   - Impulse
+  - impulsive
 ---
-Alias: Impulse
+Alias: Impulse, impulsive
 
 The pattern of impulsive behavior, the inability to stick to a particular goal, or even [[Resistance|self-sabotage]] can be tracked back to [[Trauma]].
 
